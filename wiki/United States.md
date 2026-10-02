@@ -1,0 +1,13 @@
+### United States(検索日時 / searched at: 2026-10-01)
+
+Tags: `United States` `2026-10`
+
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 13 hours ago - View the latest national news from The Associated Press. Stay tuned in to all of the current events within the U.S. borders and breaking U.S. news stories.
+- [ABC News - Breaking News, Latest News and Videos](https://abcnews.com/) — Your trusted source for breaking news, analysis, exclusive interviews, headlines, and videos at ABCNews.com
+- [World news - breaking news, video, headlines and opinion | CNN](https://www.cnn.com/world) — View CNN world news today for international news and videos from Europe, Asia, Africa, the Middle East and the Americas.
+- [US News Headlines, Latest USA News, US news live on Times of India](https://timesofindia.indiatimes.com/world/us) — Wyoming spent $1.8 million to buy an 80-year-old hot-springs water park inside a state park; after closing it, officials may now spend another $1 million to demolish almost everything · Florida’s python team followed 40 tagged male snakes and ended the season with 177 Burmese pythons removed and more than 4,100 eggs taken from the ecosystem · Drugged with ketamine, raped for hours: Ex-student sues Cornell University, 7 fraternity members · At 98, Iowa man Paul Little finally received his high school diploma 80 years after leaving school in 1946 to support his family · Rocky Hill-Glastonbury Ferry continues its historic Connecticut River service, carrying three cars at a time on a crossing that dates to 1655 · After arriving in the US with $500, former tennis player Andres Bernal began investing in Connecticut real estate in 2016; a decade later, he says he owns more than 60 rental units worth over $12 million ·
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 1 week ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [United Airlines - Airline Tickets, Travel Deals and Flights](https://www.united.com/ual/en/us/) — Find the latest travel deals on flights, hotels and rental cars. Book airline tickets and MileagePlus award tickets to worldwide …
+- [United Airlines - Wikipedia](https://en.wikipedia.org/wiki/United_Airlines) — United Airlines, Inc. is a major airline in the United States headquartered in Chicago, Illinois. It operates an extensive domestic and …
+- [ユナイテッド 航空 - フライトチェックイン](https://www.united.com/ja/jp/checkin) — ユナイテッドについて 商品およびサービス 人気の旅行先 このリンクをクリックすると、別のタブが開き、アクセシビリティガイド …
+
