@@ -11,3 +11,9 @@ Tags: `Cambodia` `2026-10`
 - [ព្រឹត្តិការណ៍​កម្ពុជា​ប្រចាំថ្ងៃ](https://www.rfi.fr/km/%E1%9E%80%E1%9E%B6%E1%9E%9A%E1%9E%95%E1%9F%92%E1%9E%9F%E1%9E%B6%E1%9E%99%E1%9E%94%E1%9F%92%E1%9E%9A%E1%9E%85%E1%9E%B6%E1%9F%86%E1%9E%90%E1%9F%92%E1%9E%84%E1%9F%83/%E1%9E%96%E1%9F%92%E1%9E%9A%E1%9E%B9%E1%9E%8F%E1%9F%92%E1%9E%8F%E1%9E%B7%E1%9E%80%E1%9E%B6%E1%9E%9A%E1%9E%8E%E1%9F%8D%E2%80%8B%E1%9E%80%E1%9E%98%E1%9F%92%E1%9E%96%E1%9E%BB%E1%9E%87%E1%9E%B6%E2%80%8B%E1%9E%94%E1%9F%92%E1%9E%9A%E1%9E%85%E1%9E%B6%E1%9F%86%E1%9E%90%E1%9F%92%E1%9E%84%E1%9F%83/) — July 9, 2025 - ឯកអគ្គរាជទូតកម្ពុជាប្រចាំប្រទេសបារាំង លោក លុយ ដាវីត បានឲ្យដឹងថា បារាំងបានត្រៀមខ្លួនផ្ដល់ឯកសារចាំបាច់នានា ដើម្បីដោះស្រាយជម្លោះព្រំដែនកម្ពុជា-ថៃ នៅតុលាការយុត្តិធម៌អន្តរជាតិ(ICJ)។ នេះបើតាមទីភ្នាក់ងារសារព័ត៌មានកម្ព
 - [ក្រសួងប្រៃសណីយ៍និងទូរគមនាគមន៍: ទំព័រដើម](https://mptc.gov.kh/en/) — June 1, 2026 - announcements Minister’s Message This website serves as a comprehensive hub of diverse information related to postal services, telecommunications, and information technology. It includes the policies of the Royal Government of Cambodia, the Ministry’s strategic plans, annual reports, technology management, projects, action plans, achievements, and an information center that allows all Cambodian citizens—especially students, intellectuals, researchers,...
 
+### Cambodia(検索日時 / searched at: 2026-10-02)
+
+Tags: `Cambodia` `2026-10`
+
+- (no items / 記事なし)
+

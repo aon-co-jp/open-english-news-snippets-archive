@@ -23,3 +23,9 @@ Tags: `Ukraine (Japanese)` `2026-10`
 - [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — 侵攻開始当初の状況 · Jeremy Bowen in Irpin · ロシア軍、 ウクライナ主要 都市の市街地に激しい爆撃 「戦争犯罪」と · 「私たちはここにいる、独立を守る」 首都から ...
 - [ロシアの ウクライナ 侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — 2022年2月24日に開始されたロシアによる ウクライナ への侵攻。ロシア軍が ウクライナ 東・南部4州の掌握を目指して攻撃を続ける一方、 ウクライナ 側は欧米の軍事支援を受け ...
 
+### Ukraine(検索日時 / searched at: 2026-10-02)
+
+Tags: `Ukraine` `2026-10`
+
+- (no items / 記事なし)
+

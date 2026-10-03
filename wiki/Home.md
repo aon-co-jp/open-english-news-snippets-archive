@@ -39,7 +39,6 @@
 - [Taiwan](wiki/Taiwan.md)
 - [Tajikistan](wiki/Tajikistan.md)
 - [Talking Shop](wiki/Talking Shop.md)
-- [Testland](wiki/Testland.md)
 - [Thailand](wiki/Thailand.md)
 - [The Point 2_ Vietnam – EFTA_ A New Gateway _ 19.09.2026 [...] ### Community tourism preserves living culture](wiki/The Point 2_ Vietnam – EFTA_ A New Gateway _ 19.09.2026 [...] ### Community tourism preserves living culture.md)
 - [Top leader To Lam’s upcoming visit to U.S. to strengthen confidence, create new opportunities](wiki/Top leader To Lam’s upcoming visit to U.S. to strengthen confidence, create new opportunities.md)

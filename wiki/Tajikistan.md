@@ -23,3 +23,9 @@ Tags: `Tajikistan (Japanese)` `2026-10`
 - [ニュース 及びイベント | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/information/news-and-events-ja?page=8) — これに関連して、 タジキスタン 首脳は、困難な国際的および地域的状況、ならびに共通の脅威と課題の存在を考慮して、安全保障の分野での協力を拡大する必要性を強調しました ...
 - [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 · Video.
 
+### Tajikistan(検索日時 / searched at: 2026-10-02)
+
+Tags: `Tajikistan` `2026-10`
+
+- (no items / 記事なし)
+

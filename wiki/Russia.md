@@ -23,3 +23,9 @@ Tags: `Russia (Japanese)` `2026-10`
 - [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — Russia. ロシア、政権に批判的な政治学者を逮捕 違法薬物容疑で · プーチン氏が強調「欧州との敵対行為、準備していない」 · ロシア・シベリアでクマ被害急増、1か月 ...
 - [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — 日本を代表する ロシア の専門家が、様々な角度から ロシア と周辺国の実像を描き出します。
 
+### Russia(検索日時 / searched at: 2026-10-02)
+
+Tags: `Russia` `2026-10`
+
+- (no items / 記事なし)
+
