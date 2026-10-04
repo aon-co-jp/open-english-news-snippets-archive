@@ -35,6 +35,7 @@
 - [Russia](wiki/Russia.md)
 - [South Africa](wiki/South Africa.md)
 - [South Korea](wiki/South Korea.md)
+- [Spain](wiki/Spain.md)
 - [Switzerland](wiki/Switzerland.md)
 - [Taiwan](wiki/Taiwan.md)
 - [Tajikistan](wiki/Tajikistan.md)
