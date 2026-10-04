@@ -24,3 +24,16 @@ Tags: `United States` `2026-10`
 - [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Accessibility Statement · News Sitemap · Video Sitemap · LIVE UPDATES · Coveted US fighter jet sits at the center of Trump’s latest Iran pressure test · DOE worker nabbed for allegedly sneaking into Yemen to boost Houthi war machine · US sends a third aircraft carrier to Middle East · HOT TOPICS · FOUL PLAY · 4 min read · FRESH FEAST · 4 min read · WATCH: Supermarket chain CEO shares reaction to winning USA Today readers' choice ranking · Published: 28 minutes ago
 - [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 4 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
 
+### United States(検索日時 / searched at: 2026-10-03)
+
+Tags: `United States` `2026-10`
+
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 5 hours ago - View the latest national news from The Associated Press. Stay tuned in to all of the current events within the U.S. borders and breaking U.S. news stories.
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 12 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [ユナイテッド 航空 - 航空券、キャンペーン情報、運航状況](https://www.united.com/ja/jp/) — アクセシビリティガイドラインに対応していない可能性のある外部サイトを示します。 Copyright © 2026 United Airlines, Inc. All …
+- [United Airlines - Airline Tickets, Travel Deals and Flights](https://www.united.com/ual/en/us/) — Indicates an external site that may or may not meet accessibility guidelines. Copyright © 2026 United Airlines, Inc. All rights reserved.
+- [U.S. News: Latest Breaking Stories and Video on National Issues | NBC News](https://www.nbcnews.com/us-news) — 4 hours ago - New York Gov. Kathy Hochul appoints Attorney General Letitia James to investigate the gang rape allegations gripping the state .
+- [CBS News | Breaking news, top stories & today's latest headlines](https://www.cbsnews.com/) — Jane Doe's attorney, Thomas Giuffra, tells CBS News the investigation into her alleged rape at a Cornell fraternity was a failure and university police "were in over their heads." The jet was flying from Bermuda to Boston when it lost contact with the Federal Aviation Administration early on Saturday. ... Vice President JD Vance, Secretary of State Marco Rubio and Defense Secretary Pete Hegseth were among the officials to meet on Friday to discuss a path forward.
+- [Fly with United Airlines - ユナイテッド 航空](https://japan.united.com/index.html) — ユナイテッド航空は、成田・羽田・中部・関西から、アメリカをはじめミクロネシアやアジア各地へ数多くの直行便を運航していま …
+- [USA TODAY - Breaking News and Latest News Today](https://www.usatoday.com/) — Find your dream home — start your search today Need an agent who listens? These pros get it. Get a real home value — not just a guess Peter Thiel reportedly buys grand estate in LA.
+

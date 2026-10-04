@@ -24,3 +24,21 @@ Tags: `Philippines` `2026-10`
 - [Balita Ngayon Online News | Facebook](https://www.facebook.com/balitangayononlinenews/) — Balita Ngayon Online News. 46,358 likes · 2,988 talking about this. Platform for latest event of News and Public affair
 - [Breaking News & Headlines in the Philippines | ABS-CBN News](https://www.abs-cbn.com/news) — 1 month ago - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
 
+### Philippines(検索日時 / searched at: 2026-10-03)
+
+Tags: `Philippines` `2026-10`
+
+- (no items / 記事なし)
+
+### Russia (English)(検索日時 / searched at: 2026-10-03)
+
+Tags: `Russia (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Egypt (English)(検索日時 / searched at: 2026-10-03)
+
+Tags: `Egypt (English)` `2026-10`
+
+- (no items / 記事なし)
+
