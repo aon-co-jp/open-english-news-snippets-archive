@@ -61,3 +61,34 @@ Tags: `Italy (Japanese)` `2026-10`
 - [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア、40年ぶり原発回帰へ転換 首相「必要なエネルギーは国内で」 · ベネチア国際映画祭、金獅子賞に北欧合作「ウーマン・アンノウン」 · 是枝裕和監督の「ルックバック ...
 - [「 イタリア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · ドラマ「八月の声を運ぶ男」がイタリア賞受賞 · ベネチア国際映画祭 日本の2作品は最優秀賞ならず · ベネチア国際映画祭 塚本晋也監督の映画が ...
 
+### Ukraine(検索日時 / searched at: 2026-10-04)
+
+Tags: `Ukraine` `2026-10`
+
+- (no items / 記事なし)
+
+### Iran (English)(検索日時 / searched at: 2026-10-04)
+
+Tags: `Iran (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-04)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイス では9月27日、自国の中立の定義を狭めるよう連邦憲法を改正する、いわゆる「中立イニシアチブ」の是非を問う国民投票が行われます。皆さんは、 今日 の… 参加する.
+- [Schweiz News - Aktuelle Infos - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.alllatestnews.schweiznewspaper&hl=ja) — 2026/06/24 ... スイス の ニュース : スイス および世界中の ニュース を入手してください! もう重要なメッセージを見逃すことはありません。 スイス ニュース を使用 ...
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — スイス 中銀、ゼロ金利を維持 インフレ圧力「わずかに増加」 · ロシュの「ベンタナ」、再発卵巣がん治療で診断薬として承認取得 · スイス 発シューズOn、無人工場「日本でも」 ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 最新 ニュース · スイス の氷河、5年で20％減 今年、前年比5．5％減「極めて異例の規模」 · クルーズ船の旅、成長航路へ 訪日客・地域活性化狙い、国も注力 · アルプス山脈 ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — 「 スイス 」 ニュース 一覧 · スイス の氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイス で観光客を乗せたバスが横転 5人死亡 · W杯 ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — Swiss . ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ、ガザ全域の調査要求 ...
+- [スイス の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/topic/switzerland/page9) — スイス の ニュース ・速報. 200件中 161~180件表示. サッカーW杯の試合を楽しむファン＝24日、トロント（FIFA提供. W杯、決勝T「最高」とカナダ 初の進出に歓喜. 06月25日.
+
+### France (English)(検索日時 / searched at: 2026-10-04)
+
+Tags: `France (English)` `2026-10`
+
+- (no items / 記事なし)
+

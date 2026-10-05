@@ -81,3 +81,28 @@ Tags: `Germany (Japanese)` `2026-10`
 - [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
 - [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — 独州議会選で極右AfDが再び勝利、メルツ首相は政権運営の「方針を維持」表明 · 独各地で極右AfDに抗議デモ 「活動禁止」求め15万人参加 · ゼレンスキー氏、G20でプーチン氏と ...
 
+### South Korea(検索日時 / searched at: 2026-10-04)
+
+Tags: `South Korea` `2026-10`
+
+- [[12 뉴스 ] 오늘 의 주요 뉴스](https://news.sbs.co.kr/news/endPage.do?news_id=N1008715520) — SBS 뉴스
+- [[12 뉴스 ] 오늘 의 주요 뉴스](https://news.sbs.co.kr/news/endPage.do?news_id=N1008629054) — SBS NEWS
+- [IT/테크 주요 뉴스 오늘 의 핵심 흐름과 실무 시사점 분석](https://bstar36.tistory.com/610) — 주요 뉴스 오늘 의 핵심 흐름 아래 내용은 최근 24시간 내 수집된 원문 보도를 바탕으로 정리한 핵심 이슈입니다. 확정되지 않은 사실은 추가하지 않고, 원문에서 확인되는 범위 안에서 의미를 설명합니다. 1. 브랜드 인게이지먼트 네트워크, 카타네오 인수 완료 [지디넷코리아] 이번 인수는 반복 수익을 창출하는 수익성...
+- [가장빠른 주식 뉴스 국내주식 뉴스 오늘](https://overseasstockevents.com/%ea%b0%80%ec%9e%a5%eb%b9%a0%eb%a5%b8-%ec%a3%bc%ec%8b%9d%eb%89%b4%ec%8a%a4-%ea%b5%ad%eb%82%b4%ec%a3%bc%ec%8b%9d-%eb%89%b4%ec%8a%a4-%ec%98%a4%eb%8a%98/) — 가장빠른 주식 뉴스 ’는 신속하고 정확한 정보를 제공하여 투자자들이 시장에서 빠르게 대응할 수 있도록 돕습니다. ‘국내주식 뉴스 ’는 한국 주식 시장의 주요 뉴스 와 동향을 다루며, ‘ 오늘 주식 뉴스 ’는 하루 동안의 중요한 사건들을 정리하여 제공합니다. 이 정보를 통해 투자자들은 더 나은 결정을 내릴 수...
+- [[ 오늘 의 주요 공시] 하이브· 한국 앤컴퍼니·진양화학 등](https://www.etoday.co.kr/news/view/2618025) — 이투데이
+- [2026년 9월 7일 월요일 오늘 의 헤드라인 뉴스 ｜ 주요 언론이 주목한 대한민국 의 핵....](https://blog.naver.com/yaksog4449/224403321409) — 삼호가든 집중
+- [9월 8일 한국 주요 뉴스 TOP 10](https://nwforyou.tistory.com/753) — 점은 인정했지만 부정한 청탁은 없었다고 밝혔습니다. 청와대는 제기된 의혹은 국회 인사청문회에서 검증해야 한다는 입장입니다. 출처: MBC·연합 뉴스 오늘 한국 주요 뉴스 는 초대 중수청장 후보자 지명과 한·프랑스 정상회담, 호르무즈 파병 검토가 정치·외교 분야의 핵심입니다. 경제 분야에서는 미국 원전 8기와...
+- [연합뉴스TV - YouTube](https://www.youtube.com/channel/UCTHCOPwqNfZ0uiKOvFyhGwg) — 대한민국 뉴스의 시작, 24시간 뉴스 채널 연합뉴스TV 실시간 뉴스 생방송, 생생한 뉴스의 현장을 LIVE로 시청하세요. 이 채널은 연합뉴스TV의 Youtube 유튜브 공식 채널 입니다.
+
+### South Korea (English)(検索日時 / searched at: 2026-10-04)
+
+Tags: `South Korea (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Russia (English)(検索日時 / searched at: 2026-10-04)
+
+Tags: `Russia (English)` `2026-10`
+
+- (no items / 記事なし)
+

@@ -42,3 +42,16 @@ Tags: `Egypt (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Philippines(検索日時 / searched at: 2026-10-04)
+
+Tags: `Philippines` `2026-10`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 2 days ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Ang Balita Ngayon (@AngBalitaNgayonFB)](https://www.facebook.com/AngBalitaNgayonFB/) — Ang Balita Ngayon . 1,208,876 likes · 2,020,887 talking about this. Official FB Page of Ang Balita Ngayon . Original Content. Current Events. Opinions. Satire. Parody.
+- [Balita Sa Tagalog Ngayong Araw | Balitambayan](https://www.gmanetwork.com/news/balitambayan/) — August 14, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Mababasa at mapapanood ang maiinit at mahahalagang ulat pambansa, politikal, krimen at iba pa sa seksyon na 'Balita'. The 'BALITA' section offers national news, political developments and crime stories.
+- [Pilipinas Balita Ngayon-PBN | Lipa City | Facebook](https://www.facebook.com/p/Pilipinas-Balita-Ngayon-PBN-61550901577576/) — Pilipinas Balita Ngayon-PBN, Lipa City . 33,825 likes · 79,962 talking about this. News Correspondence & Current Affairs Sports and Politics.
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — Balita Ngayon · August 31, 2026 - 12:00am · Tumindig si Senate Committee on Energy Chairman Erwin Tulfo na amiyendahan na ang lumang Oil Deregulation Law upang obligahin ang transparency sa pagpe­presyo ng mga oil companies sa Pilipinas.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 2 days ago - Nagbigay ng paglilinaw ang Cybercrime Investigation and Coordinating Center (CICC) kaugnay sa ibinigay nilang palugit sa social media platform na Reddit. Nauna nang nagbabala ang CICC sa Reddit at Discord na posibleng ipagbawal ang operasyon ng dalawang platform sakaling hindi sila makapagbukas ng opisina rito sa Pilipinas sa loob ng 24 oras. Maki-Balita: Reddit, Discord, nanganganib na...
+
