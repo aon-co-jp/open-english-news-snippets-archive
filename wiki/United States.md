@@ -50,3 +50,22 @@ Tags: `United States` `2026-10`
 - [The Washington Post - Breaking news and latest headlines, U.S. news, world news, and video](https://www.washingtonpost.com/) — Flu is surging unusually early in some parts of the western United States, catching doctors by surprise. By Lena H. Sun · Changing your approach to work is crucial to achieving the goal if you don’t have enough savings. ... Several studies have shown that urea can help improve dry skin. But many people have not heard of it. ... Ripple brings together diverse perspectives from other publications to show how the country is engaging with today’s biggest stories.
 - [US News - The latest headlines from the US | Sky News](https://news.sky.com/us) — 3 days ago - It's a total solar eclipse today - here is where it will be visible · Grid operator issues plea for more power - as COBRA meeting on heatwave called · A wave of soon-to-be retirees are 'staring down the barrel' of homelessness - here's why | Money · Rod Stewart cancels gigs after heart surgery · Stop PC Harper's killers being released, 50 policing chiefs tell PM · Wednesday's newspaper front pages ·
 
+### United States(検索日時 / searched at: 2026-10-05)
+
+Tags: `United States` `2026-10`
+
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 2 days ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [U.S. News: Latest Breaking Stories and Video on National Issues | NBC News](https://www.nbcnews.com/us-news) — 11 hours ago - Golden State Valkyries coach Natalie Nakase fell to her hands and knees during the team’s winning game against the Dallas Wings in San Francisco.
+- [CBS News | Breaking news, top stories & today's latest headlines](https://www.cbsnews.com/) — Attorneys for Christa Pike, who survived a botched execution in Tennessee last week, have renewed their push for the state to commute her death sentence. ... A Russian plague lab worker died of "pneumonia of unknown origin," officials say, in response to initial reports that she was exposed to the deadly bacteria during a lab accident. ... Former White House press secretary Karoline Leavitt will begin her new role at Fox News on Nov.
+- [Associated Press News: Breaking News, Latest Headlines and Videos | AP News](https://apnews.com/) — See All Newsletters ... Lt. Col. Tim Halbur had been deployed as an Army reservist seven months before six soldiers were killed and dozens were injured at Port Shuaiba in Kuwait on March 1, 2026, in the deadliest known strike on U.S. troops since Operation Epic Fury commenced on Feb. 28. He had served for nearly 30 years, but today he can no longer salute.
+- [US news from the Guardian | The Guardian](https://www.theguardian.com/us-news) — 6 hours ago - Latest US news, breaking news and current affairs coverage from theguardian.com
+- [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Breaking News, Latest News and Current News from FOXNews.com. Breaking news and video. Latest Current News: U.S., World, Entertainment, Health, Business, Technology, Politics, Sports Published: 3 hours ago
+- [U.S. News & World Report: News, Rankings and Analysis on Politics, Education, Healthcare and More](https://www.usnews.com/) — U.S. News Staff · July 27, 2026, at 3:00 p.m. July 27, 2026, at 3:00 p.m. See More Photo Galleries→ ... Enroll by Dec. for Student Loan Discount · Today's Mortgage Rates: Oct.
+- [USA TODAY - Breaking News and Latest News Today](https://www.usatoday.com/) — Find your dream home — start your search today Need an agent who listens? These pros get it. Get a real home value — not just a guess Peter Thiel reportedly buys grand estate in LA.
+
+### Russia (English)(検索日時 / searched at: 2026-10-05)
+
+Tags: `Russia (English)` `2026-10`
+
+- (no items / 記事なし)
+

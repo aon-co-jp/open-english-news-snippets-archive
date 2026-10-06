@@ -104,3 +104,22 @@ Tags: `Italy (Japanese)` `2026-10`
 - [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
 - [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · イタリア 政府、学校でブルカとニカブ着用禁止の方針 各教室で外国人の制限も · イスラエル、ヨルダン川西岸で入植地建設を推進 英仏独伊とカナダが非難.
 
+### Tajikistan(検索日時 / searched at: 2026-10-05)
+
+Tags: `Tajikistan` `2026-10`
+
+- (no items / 記事なし)
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-05)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 09/11: 「謎の港町」を描いたローマ時代最大の壁面モザイク、14年の修復を経てお披露目; 09/07: 自動運転車、F1スタイルのレースで競い合う 伊 ...
+- [イタリア 新聞 (@ciao_journal) · Milan - Instagram](https://www.instagram.com/ciao_journal/) — わくわくする イタリア 新聞『チャオジャーナル』公式アカウント ミラノを中心に配布しております Periodico italo giapponese pubblicato da Geienneffe ...
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤財務相がアジア開発銀行の年次総会で演説、途上国への支援を表明.
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — Italy. 第83回ベネチア映画祭 金獅子賞はデンマークの『Woman Unknown』 · アントネッリが19番手から衝撃V、 イタリア 人ドライバー60年ぶりの母国GP制覇 ...
+- [イタリア の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/italia_news) — 2020/06/18 ... イタリア の 主要 メディアまとめ【 ニュース 編】 · 1．la Repubblica · 2．Corriere Della Sera · 3．Il Fatto Quotidiano · 4．La Stampa · 5．Tiscali.
+- [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · イタリア 政府、学校でブルカとニカブ着用禁止の方針 各教室で外国人の制限も · イスラエル、ヨルダン川西岸で入植地建設を推進 英仏独伊とカナダが非難.
+
