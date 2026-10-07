@@ -97,3 +97,34 @@ Tags: `Germany (Japanese)` `2026-10`
 - [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
 - [ドイツ の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/germany_newsmedia) — 2020/05/13 ... 本記事では、 ドイツ の情報を英語で得られる ニュース 系メディア5選と、 ドイツ 国内で人気の ニュース 系メディア5選を紹介します。
 
+### South Africa(検索日時 / searched at: 2026-10-06)
+
+Tags: `South Africa` `2026-10`
+
+- (no items / 記事なし)
+
+### Brazil (English)(検索日時 / searched at: 2026-10-06)
+
+Tags: `Brazil (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Austria (Japanese)(検索日時 / searched at: 2026-10-06)
+
+Tags: `Austria (Japanese)` `2026-10`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月04日 時事） ドイツ のメルツ首相は4日、ウクライナの首都キーウを訪問した。訪問は昨年5月以来、2度目。独メディアによると、長射程兵器や、ロシアの攻撃を ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ捜査当局、情報機関の元トップを逮捕 スパイ容疑など · ドイツ情報機関にサイバー攻撃権限を付与 ロシア対抗へ法案閣議決定 · ドイツ情報機関職員、反逆罪で逮捕 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツの母子向け施設で銃撃、6人死 亡 容疑者は娘の親権争いの最中 ... 青空から強い日差しが降り注ぐなか、石畳の上の「WARSZAWA（ワルシャワ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 10/05: ノーベル生理学・医学賞にカール・ダイセロス氏ら3人 脳の謎解明に寄与する技術の開発で; 09/26: ヒトラーは姪を殺害したのか？ 死亡日を巡る新たな記録 ...
+- [「 ドイツ 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — ノーベル生理学・医学賞に「光遺伝学」の基礎築いた米独研究者 · ドイツ の交響楽団首席指揮者 山田和樹さんが初公演 · ドイツ ウクライナにロシア軍の無人機攻撃対策など支援.
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — 独州議会選で極右AfDが再び勝利、メルツ首相は政権運営の「方針を維持」表明 · 独各地で極右AfDに抗議デモ 「活動禁止」求め15万人参加 · ゼレンスキー氏、G20でプーチン氏と ...
+
+### Austria (English)(検索日時 / searched at: 2026-10-06)
+
+Tags: `Austria (English)` `2026-10`
+
+- (no items / 記事なし)
+

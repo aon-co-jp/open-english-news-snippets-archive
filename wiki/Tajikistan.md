@@ -123,3 +123,9 @@ Tags: `Italy (Japanese)` `2026-10`
 - [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
 - [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · イタリア 政府、学校でブルカとニカブ着用禁止の方針 各教室で外国人の制限も · イスラエル、ヨルダン川西岸で入植地建設を推進 英仏独伊とカナダが非難.
 
+### Tajikistan(検索日時 / searched at: 2026-10-06)
+
+Tags: `Tajikistan` `2026-10`
+
+- (no items / 記事なし)
+
