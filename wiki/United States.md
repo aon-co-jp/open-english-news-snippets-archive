@@ -69,3 +69,16 @@ Tags: `Russia (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### United States(検索日時 / searched at: 2026-10-06)
+
+Tags: `United States` `2026-10`
+
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 5 hours ago - Our flagship newsletter breaks down the biggest headlines of the day.
+- [US News - The latest headlines from the US | Sky News](https://news.sky.com/us) — 6 hours ago - It's a total solar eclipse today - here is where it will be visible · Grid operator issues plea for more power - as COBRA meeting on heatwave called · A wave of soon-to-be retirees are 'staring down the barrel' of homelessness - here's why | Money · Rod Stewart cancels gigs after heart surgery · Stop PC Harper's killers being released, 50 policing chiefs tell PM · Wednesday's newspaper front pages ·
+- [US News Today: Latest Headlines & Updates | Yahoo](https://www.yahoo.com/news/us/) — Today's top US news from Yahoo News — breaking national stories, crime and courts coverage from trusted sources, updated throughout the day.
+- [World News Today Updates & Daily Headlines | Fox News](https://www.foxnews.com/world) — December 11, 2023 - Explore the international news happening around the world today. Discover daily world headlines and the breaking events that are happening in the world each day with Fox News.
+- [Newsmax.com - Breaking news from around the globe: U.S. news, politics, world, health, finance, video, science, technology, live news stream](https://www.newsmax.com/world/) — Newsmax.com reports today’s news headlines, live news stream, news videos from Americans and global readers seeking the latest in current events, politics, U.S., world news, health,finance, science, technology reports, republican, democrat, libertarian.
+- [US news from the Guardian | The Guardian](https://www.theguardian.com/us-news) — 7 hours ago - Gavin Newsom calls comments ‘deranged and dangerous’ after president tells Nebraska rally: ‘They can take out a city’
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 3 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [Associated Press News: Breaking News, Latest Headlines and Videos | AP News](https://apnews.com/) — Sarah Huckabee Sanders was standard issue Republican messaging for promoting her state’s stricter rules for people on Medicaid. ... The Paramount Pictures water tower is seen in Los Angeles, Dec. 18, 2025, with the Hollywood sign in the distance. (AP Photo/Jae C. Hong, File) Paramount closed its $81 billion purchase of Warner Bros. Discovery, the companies announced today.
+
