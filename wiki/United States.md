@@ -82,3 +82,22 @@ Tags: `United States` `2026-10`
 - [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 3 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
 - [Associated Press News: Breaking News, Latest Headlines and Videos | AP News](https://apnews.com/) — Sarah Huckabee Sanders was standard issue Republican messaging for promoting her state’s stricter rules for people on Medicaid. ... The Paramount Pictures water tower is seen in Los Angeles, Dec. 18, 2025, with the Hollywood sign in the distance. (AP Photo/Jae C. Hong, File) Paramount closed its $81 billion purchase of Warner Bros. Discovery, the companies announced today.
 
+### United States(検索日時 / searched at: 2026-10-07)
+
+Tags: `United States` `2026-10`
+
+- [US News - The latest headlines from the US | Sky News](https://news.sky.com/us) — 19 hours ago - It's a total solar eclipse today - here is where it will be visible · Grid operator issues plea for more power - as COBRA meeting on heatwave called · A wave of soon-to-be retirees are 'staring down the barrel' of homelessness - here's why | Money · Rod Stewart cancels gigs after heart surgery · Stop PC Harper's killers being released, 50 policing chiefs tell PM · Wednesday's newspaper front pages ·
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 3 hours ago - View the latest national news from The Associated Press. Stay tuned in to all of the current events within the U.S. borders and breaking U.S. news stories.
+- [U.S. News: Latest Breaking Stories and Video on National Issues | NBC News](https://www.nbcnews.com/us-news) — 4 hours ago - Get the latest news headlines and top stories from NBCNews.com. Find videos and news articles on the latest stories in the US.
+- [US news from the Guardian | The Guardian](https://www.theguardian.com/us-news) — 3 hours ago - Latest US news, breaking news and current affairs coverage from theguardian.com
+- [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Breaking News, Latest News and Current News from FOXNews.com. Breaking news and video. Latest Current News: U.S., World, Entertainment, Health, Business, Technology, Politics, Sports Published: 37 minutes ago
+- [US | CNN](https://www.cnn.com/us) — 5 days ago - View the latest US news, top stories, photos and videos from around the nation. To get the day’s top headlines delivered to your inbox every morning, sign up for our 5 Things newsletter.
+- [USA TODAY - Breaking News and Latest News Today](https://www.usatoday.com/) — USA TODAY PLAY adds MidGrid puzzle, launches new… 20 Amazon deals to shop during October Prime Day College kids love BORGs.
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 49 minutes ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- (no items / 記事なし)
+

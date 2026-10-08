@@ -141,3 +141,9 @@ Tags: `Germany (Japanese)` `2026-10`
 - [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
 - [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — 独州議会選で極右AfDが再び勝利、メルツ首相は政権運営の「方針を維持」表明 · 独各地で極右AfDに抗議デモ 「活動禁止」求め15万人参加 · ゼレンスキー氏、G20でプーチン氏と ...
 
+### France(検索日時 / searched at: 2026-10-07)
+
+Tags: `France` `2026-10`
+
+- (no items / 記事なし)
+

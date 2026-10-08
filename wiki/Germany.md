@@ -130,3 +130,9 @@ Tags: `Myanmar (Japanese)` `2026-10`
 - [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー大統領、カンボジアなどASEAN訪問拡大 報道官表明 · ASEAN、対ミャンマー「圧力から融和」探る 中国の影響力増大を懸念 · ASEANの対ミャンマー政策「一部 ...
 - [「 ミャンマー 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — タイとミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · 東ティモールで“特殊詐欺拠点”を摘発 日本人7人を拘束 · マレーシアがミャンマー避難民の送還開始 人権団体 ...
 
+### Germany(検索日時 / searched at: 2026-10-07)
+
+Tags: `Germany` `2026-10`
+
+- (no items / 記事なし)
+

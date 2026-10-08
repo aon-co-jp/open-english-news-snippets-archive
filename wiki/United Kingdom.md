@@ -91,3 +91,72 @@ Tags: `United Kingdom` `2026-10`
 
 - (no items / 記事なし)
 
+### United Kingdom(検索日時 / searched at: 2026-10-07)
+
+Tags: `United Kingdom` `2026-10`
+
+- (no items / 記事なし)
+
+### Brazil (English)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Brazil (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### China (Japanese)(検索日時 / searched at: 2026-10-07)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 中国 出身女性の市長選出馬認めず 新竹県選挙委員会「要件満たしていない」／台湾. 中央社フォーカス台湾; 10月7日 19時59分. 南京大虐殺の生存者20人に 郭秀蘭さん死去.
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — アメリカと中国が核関連施設の相互訪問協議か 米メディア報道 · スズキ 会社初の軽乗用EV 来月発売へ EV普及につながるか焦点 · 米国が売却した新型のF16V戦闘機が台湾に到着.
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国のニュース・速報. 中朝鴨緑江大橋の北朝鮮側で整備が進む新施設 . 中朝国境に税関複合施設 人モノ往来へ入管も. 15時49分. 共同通信.
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国の金保有量、23カ月連続で増加 9月末の外貨準備 · 政府、中国の高市首相「呼び捨て」に申し入れ · 日系企業、台湾の規制運用に改善要求 審査長期化や人材制約を指摘 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国・習近平政権 関連ニュース ; 米中、核施設相互訪問を議論 軍備管理では隔たり ―CNN報道(10月07日 06:43) ; 台湾総統の息子監視か 米FBI、「中国の女スパイ」逮捕( ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 09/29: トランプ氏、 中国 への武器売却「協議していない」 駐 中国 大使の発言と食い違い; 09/28: 英文学の名作「ジェーン・エア」に 中国 が注目 10代向けの恋愛の ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 は世界保健機関（WHO）の次期事務局長選に終盤で候補者を擁立する方針だ。外交筋4人​と関係者1人が明らかにした。米国がWHOを脱退した後‌の空白を埋め、 ...
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [台湾 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/taiwan) — 台湾 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国・台湾 · 中国の金保有量、23カ月連続で増加 9月末の外貨準備 · 政府、中国の高市首相「呼び捨て」に申し入れ · 日系企業、台湾の規制運用に改善要求 審査長期化や人材 ...
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 中国の指示で台湾総統の息子監視か 米FBIが容疑者逮捕 · ラピダス 半導体設計17社と連携 量産へ受注目指す · 米国が売却した新型のF16V戦闘機が台湾に到着 · 中国 改正「国防 ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 愛知・名古屋アジア大会が閉幕、テコンドーの新星・王婕菱選手が旗手 · 外交部、今年の双十国慶祝賀動画『国家のアルバム』を公開 · 外交部の林佳龍部長、 ...
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾情勢 · 1時間前. 北朝鮮、米の台湾支援を批判 金総書記はロシア支援継続表明 · 18時間前. 米武器売却の小分け案「情報なし」 防衛支援は不変＝台湾国防部長 · 2026年10月4 ...
+- [台湾ニュース ＠中央社フォーカス 台湾 (@focustaiwanjapa) / X](https://x.com/focustaiwanjapa) — 台湾ニュース を政治、社会からスポーツ、エンタメまで、日本語で毎日発信しています。 公式アプリ配信中。iOS、Androidに対応しています。「フォーカス 台湾 ... 台湾 ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · ペロシ元下院議長「米議会の台湾に対する約束、揺るがない」 訪米の蔡前総統と面会 · 台湾、米フェニックスに弁事処開設 林外交部長「台湾企業を支えていきたい」.
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 中国出身女性の市長選出馬認めず 新竹県選挙委員会「要件満たしていない」／ 台湾 · 沈伯洋立法委員一家を監視 探偵業者4人を起訴 香港人から報酬受け取る／ 台湾 ...
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Ukraine (English)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Ukraine (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Afghanistan (Japanese)` `2026-10`
+
+- [アフガニスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/0bedd85b653193eb89cb1131c79b5e035495e267faff7829d380f75c4b2f6f66) — アフガニスタン 関連 ニュース ; AFPBB News · 12:04. タリバン · 国際刑事裁判所 ; 読売新聞 · 6:30. タリバン · パキスタン · アメリカ軍 ; 時事通信 · 7:46 · タリバン · 国際 ...
+- [「 アフガニスタン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10105) — アフガニスタン 女性の現在地 ナジーバ・ヌーリ監督がドキュメンタリー · アフガン・タリバン、子どもは9歳未満 児童婚規制が後退 · タリバン首都制圧1カ月、経済まひ 10万人 ...
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 主要ニュース · ロシアでのペスト死亡疑惑、トランプ大統領「プーチン氏と電話する予定ある」…7日にも報告見通し · 簗農相「予算カット」発言、国交副大臣だった佐々木紀 ...
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース · 2026 · 2025 · Video · Photo · 注目 ニュース · 編集部セレクト · アクセスランキング.
+- [アフガニスタン 最新情報 タリバンが実権握る - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A2%E3%83%95%E3%82%AC%E3%83%8B%E3%82%B9%E3%82%BF%E3%83%B3.html) — アフガニスタン情勢. アメリカ軍がアフガニスタンから完全撤退 。イスラム主義勢力タリバンが実権を握ったアフガニスタンの最新情報をお伝えします。
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン 情勢 関連 ニュース · タリバン教育相ら2人の逮捕状公開 女性抑圧めぐり人道に対する罪 ICC(10月06日 18:18) · タリバン教育相らにも逮捕状 女性迫害、人道 ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定政権、女性の足露出や化粧も禁止 抗議デモを武力鎮圧 ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — アフガニスタン · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死 亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米CIAが警告 機密文書公開で明らかに.
+
+### Russia (English)(検索日時 / searched at: 2026-10-07)
+
+Tags: `Russia (English)` `2026-10`
+
+- (no items / 記事なし)
+
