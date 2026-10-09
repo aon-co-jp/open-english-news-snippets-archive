@@ -158,3 +158,29 @@ Tags: `China` `2026-10`
 - [中国新闻 _央视网(cctv.com)](http://www.baidu.com/link?url=bRMl9MquFeW2fhvOGf4241rG8bplVTMbUCAS4jkP5nIHHw2mbI5br7iS_-q2LICS) — 
 - [中国新闻 网_梳理天下新闻](http://www.baidu.com/link?url=_FXHPB8zNTpRKQwrBiRfs-_BzEty9Ysj8Fuwe8QbnURyDSrHWYIANaLb1nA-7HIcvsgohvDAK3VELlhISKV2Y_) — 
 
+### China(検索日時 / searched at: 2026-10-08)
+
+Tags: `China` `2026-10`
+
+- [今日头条](http://www.baidu.com/link?url=phoYOQmLPRqiW8Xl6Xu6csIxw3_Uei2e0vPv1VOSz-vo7UHkzWYY7eeKZBrfnc_d) — 
+- [中国新闻 网- 今日头条](http://www.baidu.com/link?url=4yWelHRZvZTADHURZCzfPTyEKtcnzeHyeu7SxQ3rOFykhRBb1A8GYkcjadtMtYg8fDrKhqTnq8o5InbGexEnW_) — 
+- [头条新闻 _头条_ 中国 政府网](http://www.baidu.com/link?url=NUP807axgp89Nxh4ZpDaxoXRW_P4qhD2opeNBmOY0fatdOrVK7Jotj4oIWYBh5u7) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=gqcPcwiTkbSJcLIJfnb70pYMAeO2jH-eN4OXG-gJ_zfHjJgFLX16Su-mt2yL9U_wlVd9AYr9lmTyvM89Pf2NGWiRYkihKl_4YMNivwf_Dx7F1OVFtrf_zCVwYDP1WYcExpnrehtWei8t50DRWYFbrK) — 
+- [中国新闻](http://www.baidu.com/link?url=nQNWnJBBvqMV0xVIFv5qblaUkufq5n3YbS355YjppTENA2jb4wc2EeSzJciUl2Rr5mfH4VmzuVfbDj8ez8oh6-htU0ZLV4gEF9cs84w8U0gO_SPt1zCO9F6iHfmhDq-7c8hZ6uCrZlRjQzOh2dnM8a) — 
+- [中国新闻 _央视网](http://www.baidu.com/link?url=GbIkXc_fHOM2HONUfKdtbmXB3uaI4uDjfNaPxVQtH7rfCUVGqjYRbTXIZCemHq9q) — 
+- [中国新闻 网_梳理天下新闻](http://www.baidu.com/link?url=xwdoe-Thf2_w_VMKfUnUol305HWPa0hjuLyiACFvSLBAYRMf7zhr5ahDwi8hoMVp_31hdxa7t6XczVYTqs2wU_) — 
+- [CCTV4 新闻 节目，正在播出！](http://www.baidu.com/link?url=8X2G_cly17Em0o53WzO9asqd80GHOndoLqF_CNkBpK2JyUwNIqgqeftAElSlnO4o6DVZpNehfwuIid-MfgIQZNfHAj_ydkWjy4ntz3X-5Vk06gum3sGqKFFEliQ5lNZ9YUCGWCjboLQg-HLt_KucQa) — 
+
+### China (Japanese)(検索日時 / searched at: 2026-10-08)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国 や台湾の最新 ニュース ・特集をまとめました。 中国 の習近平国家主席の動向や 中国 経済、台湾を巡る情勢、TSMCや鴻海の ニュース などをお伝えします。
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「中国」ニュース一覧 · 米大統領が習主席に“高市首相との対話”呼びかけか 香港紙 · アメリカと中国が核関連施設の相互訪問協議か 米メディア報道 · スズキ 会社初の軽乗用EV ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 台湾情勢カテゴリー 中国の海上民兵船、台湾東岸沖で初確認 海警局と活動＝報告書 5時間前 · 中国カテゴリー WHO事務局長選に宋莉氏擁立、中国正式発表「多国間主義支持 ...
+- [中国 | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E4%B8%AD%E5%9B%BD) — 中国 · 米AI大手「開発減速論」に中国が反発した真意、浮かぶジレンマと安全保障 · 海を塞げば陸路が太る――イラン戦争が生み出す「現代のシルクロード」 · 超大国間の ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国のニュース・速報. 中朝鴨緑江大橋の北朝鮮側で整備が進む新施設 . 中朝国境に税関複合施設 人モノ往来へ入管も. 15時49分. 共同通信.
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 自衛官による中国大使館侵入事件初公判、外交部「犯罪者を厳重に処罰するよう日本に改めて促す」 · 世界の人権事業の健全な発展を共同で促進 · 女性が5日間で中国の「五大 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 09/29: トランプ氏、 中国 への武器売却「協議していない」 駐 中国 大使の発言と食い違い; 09/28: 英文学の名作「ジェーン・エア」に 中国 が注目 10代向けの恋愛の ...
+- [中国 の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/007c341ed731341e2337/) — 中国、WHO事務局長選に候補者 米国離脱で空白、影響力拡大狙う · 中国のレアアース対日輸出規制、トランプ氏が習主席に撤回求める… · トヨタ、中国2社と新たな提携枠組み · 0: ...
+

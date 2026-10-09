@@ -135,3 +135,34 @@ Tags: `Italy (Japanese)` `2026-10`
 - [イタリア ： ニュース まとめ【10/3更新】](https://news.livedoor.com/topics/keyword/1838/) — 中村敬斗のストーカー容疑者が再逮捕、恋人への危害も懸念されていたか · ジダン監督率いるフランスが因縁の イタリア と1-1で引き分け首位維持.
 - [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ. Italy. イタリア 、学校でのブルカ禁止を閣議決定 1クラスの外国人上限を30％に ...
 
+### Austria(検索日時 / searched at: 2026-10-08)
+
+Tags: `Austria` `2026-10`
+
+- (no items / 記事なし)
+
+### China (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `China (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### France (Japanese)(検索日時 / searched at: 2026-10-08)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — 時速90キロのトラックに飛び乗り家電盗む 4人逮捕 フランス . French. フランスの極左欧州議員、イスラエル国旗を地面に投げ捨て非難の的に ...
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — ノーベル化学賞、日本の硤合氏と フランス のカガン氏に 生命の非対称性の謎を解明 · ビデオ, 仏全土で警察が学校めぐるデモと衝突、催涙ガスや放水銃も使用, 所要時間 0,47.
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランス全土に高校生デモ拡大 財政悪化で教育予算逼 迫 · 債券市場で日銀の後手リスク後退 欧州財政懸念「他山の石」とできるか · ビングループ、仏アルストムから鉄道技術 ...
+- [ET TOI（エトワ）| フランス 情報メディア](https://www.parisettoi.fr/) — France today 今日のフランス · 仏政府による寝台列車リース入札、応札が1社のみ に · 仏食品小売業者、EV充電の料金競争が熾烈に · 下院報告書、エナジードリンクの16歳未満へ ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/07: ノーベル化学賞に硤合憲三氏とアンリ・ケーガン氏、不斉化学の分野で画期的功績; 09/09: 猛暑にあえぐ フランス 、名産のチーズも危機に直面 · ルノワール ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — パリのシャンゼリゼ通りと大阪・御堂筋が「姉妹ストリート」 に · パリで「オストメイト」をモデル起用のファッションショー開催 · 高校生のデモ続くフランスで大規模集会 ...
+- [フランス 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/03d07a4b4b983ac52379/) — フランス共和国 · フランスに広がる大規模学生デモ、政府が強硬対応を転換 · ナチスに略奪のバイオリン 86年ぶり遺族に返還 仏 · 【POG】仏G3勝ち馬を祖母に持つ ...
+
+### Iran (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Iran (English)` `2026-10`
+
+- (no items / 記事なし)
+

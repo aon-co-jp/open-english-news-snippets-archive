@@ -101,3 +101,60 @@ Tags: `Afghanistan (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### United States(検索日時 / searched at: 2026-10-08)
+
+Tags: `United States` `2026-10`
+
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 1 hour ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [CBS News | Breaking news, top stories & today's latest headlines](https://www.cbsnews.com/) — Hundreds of pages of documents obtained by CBS News detail Jane Doe's allegations, the Cornell police investigation and responses of some of the accused Chi Phi fraternity members. ... CBS News obtained new video from a person on the ground showing an Iranian attack on a U.S. base at the beginning of the war. ... Katie Wiles is a partner at the political lobbying firm Continental Strategy. A spokesperson for the firm acknowledged to CBS News that Wiles had taken the trip to Republika Srpska but on business for another firm's client. ... Fatai Miao, a Chinese-born California construction entrepreneur, is believed to be the man who accompanied accused Chinese agent Wanying Zhang to surveil the Taiwanese president's son. ... The couple were already facing charges of narco-terrorism conspiracy; cocaine importation conspiracy; and possession of machine guns and destructive devices.
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 19 hours ago - See All Newsletters ... Kagan y Soai ganan Nobel de Química por investigaciones que resuelven misterio de “imagen especular” · Scientists win chemistry Nobel for discoveries about mirrored molecules that led to many drugs ... FACT FOCUS: Trump says he's ended eight wars. His numbers are off · FACT FOCUS: What people are alleging in a Cornell University fraternity gang rape case · Video of Kamala Harris saying ‘today is today’ was altered
+- [US news from the Guardian | The Guardian](https://www.theguardian.com/us-news) — 3 hours ago - Latest US news, breaking news and current affairs coverage from theguardian.com
+- [Associated Press News: Breaking News, Latest Headlines and Videos | AP News](https://apnews.com/) — See All Newsletters ... Kagan y Soai ganan Nobel de Química por investigaciones que resuelven misterio de “imagen especular” · Scientists win chemistry Nobel for discoveries about mirrored molecules that led to many drugs ... FACT FOCUS: Trump says he's ended eight wars. His numbers are off · FACT FOCUS: What people are alleging in a Cornell University fraternity gang rape case · Video of Kamala Harris saying ‘today is today’ was altered
+- [World News Today Updates & Daily Headlines | Fox News](https://www.foxnews.com/world) — December 11, 2023 - Explore the international news happening around the world today. Discover daily world headlines and the breaking events that are happening in the world each day with Fox News.
+- [World news - breaking news, video, headlines and opinion | CNN](https://www.cnn.com/world) — View CNN world news today for international news and videos from Europe, Asia, Africa, the Middle East and the Americas.
+- [Newsmax.com - Breaking news from around the globe: U.S. news, politics, world, health, finance, video, science, technology, live news stream](https://www.newsmax.com/world/) — Newsmax.com reports today’s news headlines, live news stream, news videos from Americans and global readers seeking the latest in current events, politics, U.S., world news, health,finance, science, technology reports, republican, democrat, libertarian.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 朝日新聞の、 タジキスタン に関する ニュース や速報記事一覧です。 タジキスタン に関する現状や背景を、わかりやすくお伝えします。
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース · ノーベル賞の硤合さん、一夜明け自転車を押してコンビニ店へ「まだ体が興奮」… · 硤合憲三さん、一夜明け「気分は爽快」… · 東京理科大一筋の硤合憲三さん、「 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — ◇16日（水） △韓国・中央アジア首脳会議（ソウル） △李大統領、 タジキスタン と首脳会談（午前、青瓦台） △李大統領、キルギスと首脳会談（午前、青瓦台）…
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 · Video.
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/bd6a578efae506888f94e27a3de85aa5e0dbeb8d7d05dee42a6b893562912278) — タジキスタンで露主導のバックギャモン国際大会 人的交流狙いか · 「屈辱的記録を次々更新」中国代表、タジキスタンに史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [ニュース 及びイベント | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/information/news-and-events-ja) — ニュース及びイベント · 東京におけるタジキスタン共和国独立35周年記念式典 · JDS新規参加者と大使との会談 · タジキスタン共和国独立35周年記念国際会議 · 東京における国民 ...
+
+### Italy (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Italy (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイスの主要メディアが報じた日本 関連ニュース を週1回、まとめてお届けする無料ニュースレターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 池に飛び込むクジラ 米巨大テックが「ドル外」起債、各国と資金争奪 · 創薬新興がロシュと提携 治験用の薬剤を無償で確保、開発コスト削減 · スイス 銀行規制案、UBSと政府の ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 最新 ニュース · ベガ氏がFIFA会長選立候補へ 元 スイス 代表DF · 錦織、情熱のエア・ケイ 4大大会、ビッグ4に迫った · 評価高めた瀬古歩夢「批判もされたけど」 課題と ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — スイスの氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイスで観光客を乗せたバスが横転 5人死亡 · W杯 決勝トーナメント【全結果 ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス 20 先物 ニュース - Investing.com](https://jp.investing.com/indices/switzerland-20-futures-news) — UBSが スイス 経済に楽観的、ユーロ圏と米国関税にリスクを警戒. UBSのアナリストらは、堅調な消費需要と失業率の緩やかな低下を背景に、来年の スイス 経済の回復を予測し ...
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — Swiss · ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ、ガザ全域の調査要求 · 国連人権トップ、AI管理の ...
+
+### Japan (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Japan (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Germany (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Germany (English)` `2026-10`
+
+- (no items / 記事なし)
+

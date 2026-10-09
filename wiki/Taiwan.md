@@ -114,3 +114,35 @@ Tags: `Taiwan` `2026-10`
 - [新华 台湾 _新华网](http://www.baidu.com/link?url=clxoK7ckY6IUarLZONzFfKR8nDGiZMd_nv8Bc6gABllRu1QUVV8XP9fUFibJAgY5) — 
 - [头条 _中共中央 台湾 工作办公室、国务院台湾事务办公室](http://www.baidu.com/link?url=twneTDmLKkvueggJ4Y9Yv7J0XLyUNIGSyCWXiFdbMdCsuGUVQL5Eozq9FeXZ8tWr) — 
 
+### Taiwan(検索日時 / searched at: 2026-10-08)
+
+Tags: `Taiwan` `2026-10`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=Nx6cCVNiv5oH3noDn0zGx6FmFeHZNaVl-nVjlDBFqQ7) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際...](http://www.baidu.com/link?url=eF2Ua40OBhtxg9tkryl_hlyQLiCyaYPTWPyTE2Qe6ak0lA4utv1jMb_iwOY9qBWD) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-手机闽南网](http://www.baidu.com/link?url=eF2Ua40OBhtxg9tkryl_hmXVRpZbrZPZrEt_TzdoDVW4iRjx342Cf98ktMW5sLDi) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=hIMa0w01Opvs4YkiZCjlFH35rPM8iEqzjtttYm05BH8YQDD1MZDqi3aNuUVgkkVC) — 
+- [台湾 _海外网](http://www.baidu.com/link?url=DItGyv4KbY36EO4Ozep4DDH03EQ5iMRJkwj3rgp4vmvZQHB3GVhWRo9iCFXsK7Bz) — 
+- [即时 新闻 _新华 台湾 _新华网](http://www.baidu.com/link?url=0DFAsxwV8R0QMH9k7ERL5ha1S1A1dv8-Y7v-HwsxZMZrE6ZpTjVAcdZYmhuY8zst) — 
+- [头条 _中共中央 台湾 工作办公室、国务院台湾事务办公室](http://www.baidu.com/link?url=p-GpQe2EJlNWK4hmCD0N5EDx-zwJwcdMEEEa8Z0h3Z8cxaYbVTl8prWwE9kWaVT8) — 
+- [即時 | 聯合新聞網](https://udn.com/news/breaknews/1) — 捷運三鶯線列車昨晚7時許龍埔站往三峽站方向，突然失去電力致無法行駛，行控中心獲報依程序調派列車疏散旅客。新北捷運公司表示，三鶯線龍埔站上行月台供電系統，已於今天上午8時順利完成修復與測試作業，現已完成全線送電，並全面恢復正常營運模式。 ... 網友借信貸500萬元重押槓桿型ETF 00675L，持有1.3萬股、每月還款約5萬元，引發槓上槓風險熱議。 ... 「台灣好行」以觀光公車串聯景點，為旅客提供另一種探索台灣的方式。今年台灣好行推出全台超過100款主題套票，整合交通接駁、沿線景點、特色體驗、住宿及餐飲等旅遊元素，讓旅客可以從「想怎麼玩」出發選擇套票，一次規劃交通與旅遊。
+
+### Thailand (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Thailand (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Myanmar (Japanese)` `2026-10`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー経済の詳細やビジネスに直結する新着ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 2021/5/7 - ミャンマー親軍政権トップ、プーチン氏と会談 ロシア訪問は14回目 . 2026年8月19日1時58分 · ミャンマー親軍政権トップ、タイ首相と会談 ASEAN関係修復狙う.
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — マレーシア首相“ミャンマーのASEAN本格復帰を支援” · タイとミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · 東ティモールで“特殊詐欺拠点”を摘発 日本人7人を拘束.
+- [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー大統領、カンボジアなどASEAN訪問拡大 報道官表明 · ASEAN、対ミャンマー「圧力から融和」探る 中国の影響力増大を懸念 · ASEANの対ミャンマー政策「一部 ...
+- [「 ミャンマー 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/myanmar/) — 2026. 08/04: ミャンマー で拘束のスーチー氏、赤十字代表と面会 健康不安強まる中; 07/17: 500人超が行方不明、ロヒンギャ難民乗せた2隻が ミャンマー 沖で消息絶つ ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー のクーデター ミャンマー 国軍が2021年2月1日、民主化指導者アウンサンスーチー氏率いる国民民主連盟（NLD）政権を打倒するために実行した。
+

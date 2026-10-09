@@ -199,3 +199,9 @@ Tags: `Russia (Japanese)` `2026-10`
 - [ロシア の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0f552557ee1d39762929/) — 1:01 · WHOがロシア当局に追加情報要求 ペスト対策研究所職員が“原因不明の肺炎”で死 亡 新たに別の職員も発症と報道 · ウクライナのJT工場を攻撃 ロシア国防省 JT側「軍事 ...
 - [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ビデオ, ロシアのペスト研究所職員が死 亡、ロシアとアメリカのやりとりは, 所要時間 1,18 · ルビオ米国務長官、ロシアに追加情報の共有促す ペスト研究所職員の死について.
 
+### Malaysia(検索日時 / searched at: 2026-10-08)
+
+Tags: `Malaysia` `2026-10`
+
+- (no items / 記事なし)
+

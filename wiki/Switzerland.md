@@ -84,3 +84,34 @@ Tags: `Switzerland` `2026-10`
 
 - (no items / 記事なし)
 
+### Switzerland(検索日時 / searched at: 2026-10-08)
+
+Tags: `Switzerland` `2026-10`
+
+- (no items / 記事なし)
+
+### Ukraine (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Ukraine (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Thailand (Japanese)` `2026-10`
+
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — 東京建物、タイで工場賃貸参入 · ニュースヘッドライン · HISタイ法人、最大627人の情報流出か · マツダ、新型EV「CX―6e」を発売 · 米フォード、ピックアップの超高 ...
+- [「 タイ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000386) — タイとミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · タイ 大雨影響続き24人死亡 空港で荷物が滞留も · タイで大雨続き首都バンコクでも浸水被害広がる · タイで拘束 ...
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 史上最強エルニーニョ、食料ショック再来に市場身構え 新興国の脅威 に · タイ政府、スタートアップの共同投資可能に リスク分担でVC呼び込む · JICAが150億円規模のアグリ ...
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新 ニュース . ミャンマー親軍政権トップがマレーシア訪問 ASEAN「復帰」狙う ... タイ の首都バンコクで2026年9月28日、豪雨によって川の. 1万個の手荷物が国際空港 ...
+- [時事速報：アジア／バンコク版－時事通信社 - JIJI-WEB](https://jijiweb.jiji.com/info/sample/bangkok.html) — 東ティモール首相、9日から タイ 訪問. 《各地の タイ 関連 ニュース 》. DFI、アジア7市場のスタバ事業を直接運営へ＝1100店超を直接運営; デンマークの宝飾パンドラ ...
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【社会】洪水対応で財務相が排水ポンプ動員を指示 債務猶予と低利融資も準備 · 【政治】トランプ氏からアヌティン首相に書簡 対米通商協定の早期署名を要請 交渉は最終段階.
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイ 旅行、入国税＋出国税1,450バーツだけじゃない。空港使用料も！ · パタヤ・サードロードで麻薬密売の男女2名を逮捕。 · パタヤで特殊詐欺グループ4人逮捕 電力公社を装い ...
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — ロシアで「肺ペスト」疑い、 タイ 疾病管理局「流入リスクは低い」 · SETUPメガイベント「TRIUMPH」11月14日開催、上原わかな初参戦＆ タイ ハイパー読者50B割引 · タイ の 今日 ...
+

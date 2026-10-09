@@ -135,3 +135,15 @@ Tags: `Myanmar (Japanese)` `2026-10`
 - [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
 - [「 ミャンマー 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — タイとミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · 東ティモールで“特殊詐欺拠点”を摘発 日本人7人を拘束 · マレーシアがミャンマー避難民の送還開始 人権団体 ...
 
+### Italy(検索日時 / searched at: 2026-10-08)
+
+Tags: `Italy` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-08)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- (no items / 記事なし)
+
