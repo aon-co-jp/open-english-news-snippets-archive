@@ -172,3 +172,9 @@ Tags: `Russia (Japanese)` `2026-10`
 - [ヨーロッパ・ ロシアニュース 一覧 - テレ朝NEWS](https://news.tv-asahi.co.jp/news_international/20.html) — ヨーロッパ・ ロシアニュース 一覧 · 「抗議デモ」きっかけの87歳死亡 スペインで住宅立ち退き後 市民「これは殺人だ」 · 仏高校生ら不満訴え トイレの紙なし教室の椅子足りず…
 - [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ビデオ, ロシアのペスト研究所職員が死 亡、ロシアとアメリカのやりとりは, 所要時間 1,18 · ルビオ米国務長官、ロシアに追加情報の共有促す ペスト研究所職員の死について.
 
+### South Africa(検索日時 / searched at: 2026-10-09)
+
+Tags: `South Africa` `2026-10`
+
+- (no items / 記事なし)
+

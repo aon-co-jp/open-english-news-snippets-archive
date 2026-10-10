@@ -129,3 +129,15 @@ Tags: `Italy (Japanese)` `2026-10`
 - [イタリア 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0af09f088870daa12876/) — イタリア 共和国 · WRCの2027年カレンダーが発表。 · チェルシーやリヴァプール、ミランなどでプレーした元 イタリア 代表FWボリーニが現役引退を発表 · Perfumeあ〜ちゃん ...
 - [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ. Italy. イタリア 、学校でのブルカ禁止を閣議決定 1クラスの外国人上限を30％に ...
 
+### Ukraine(検索日時 / searched at: 2026-10-09)
+
+Tags: `Ukraine` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- (no items / 記事なし)
+

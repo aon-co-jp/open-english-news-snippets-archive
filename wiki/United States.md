@@ -158,3 +158,16 @@ Tags: `Germany (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### United States(検索日時 / searched at: 2026-10-09)
+
+Tags: `United States` `2026-10`
+
+- [US News - The latest headlines from the US | Sky News](https://news.sky.com/us) — 2 hours ago - It's a total solar eclipse today - here is where it will be visible · Grid operator issues plea for more power - as COBRA meeting on heatwave called · A wave of soon-to-be retirees are 'staring down the barrel' of homelessness - here's why | Money · Rod Stewart cancels gigs after heart surgery · Stop PC Harper's killers being released, 50 policing chiefs tell PM · Wednesday's newspaper front pages ·
+- [US news from the Guardian | The Guardian](https://www.theguardian.com/us-news) — 1 hour ago - Latest US news, breaking news and current affairs coverage from theguardian.com
+- [United States - BBC News](https://www.bbc.com/news/topics/cx1m7zg01xyt) — 16 hours ago - All the latest content about United States from the BBC.
+- [World News Today Updates & Daily Headlines | Fox News](https://www.foxnews.com/world) — December 11, 2023 - Explore the international news happening around the world today. Discover daily world headlines and the breaking events that are happening in the world each day with Fox News.
+- [Newsmax.com - Breaking news from around the globe: U.S. news, politics, world, health, finance, video, science, technology, live news stream](https://www.newsmax.com/world/) — Newsmax.com reports today’s news headlines, live news stream, news videos from Americans and global readers seeking the latest in current events, politics, U.S., world news, health,finance, science, technology reports, republican, democrat, libertarian.
+- [World news - breaking news, video, headlines and opinion | CNN](https://www.cnn.com/world) — View CNN world news today for international news and videos from Europe, Asia, Africa, the Middle East and the Americas.
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 3 hours ago - See All Newsletters ... Kagan y Soai ganan Nobel de Química por investigaciones que resuelven misterio de “imagen especular” · Scientists win chemistry Nobel for discoveries about mirrored molecules that led to many drugs ... FACT FOCUS: Trump says he's ended eight wars. His numbers are off · FACT FOCUS: What people are alleging in a Cornell University fraternity gang rape case · Video of Kamala Harris saying ‘today is today’ was altered
+- [ABC News - Breaking News, Latest News and Videos](https://abcnews.com/) — Your trusted source for breaking news, analysis, exclusive interviews, headlines, and videos at ABCNews.com
+

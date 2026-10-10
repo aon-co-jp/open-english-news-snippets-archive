@@ -147,3 +147,28 @@ Tags: `Switzerland (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Italy(検索日時 / searched at: 2026-10-09)
+
+Tags: `Italy` `2026-10`
+
+- (no items / 記事なし)
+
+### Ukraine (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Ukraine (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Germany (Japanese)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Germany (Japanese)` `2026-10`
+
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ · ドイツ 元情報機関トップを逮捕 スパイ活動や国家反逆の疑い · 脳の内部の動きをを解明した米独3教授にノーベル生理学・医学賞 · ロシアがウクライナ首都の橋を連日 ...
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月04日 時事） ドイツ のメルツ首相は4日、ウクライナの首都キーウを訪問した。訪問は昨年5月以来、2度目。独メディアによると、長射程兵器や、ロシアの攻撃を ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 · 国際ハッカー集団 ドイツ 当局「約4000の企業など攻撃」 · ドイツ 情報機関元トップらをスパイ容疑などで逮捕 · ノーベル生理学・医学賞に「光遺伝学 ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネス ニュース ・レポート: ビジネス短信 · 地域・分析レポート · 調査 ... 2026年10月5日. 鉄道見本市「InnoTrans」開催、AI・デジタル化が 主要 テーマに(EU、 ドイツ ).
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ 、4年ぶり「1%成長」超えへ 企業活動堅調で低迷期から浮上 · バーナム英首相、日英伊の次期戦闘機開発「独参加に前向き」 · 「フェラーリ特急」が ドイツ 参入 自由化の ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [ドイツ の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/germany_newsmedia) — 2020/05/13 ... 情報を英語で得られる ニュース 系メディア5選 · 1. SPIEGEL ONLINE · 2. ZEIT ONLINE · 3. The Local Germany · 4. DEUTSCHLAND.de · 5. Munich NOW.
+

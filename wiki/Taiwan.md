@@ -146,3 +146,29 @@ Tags: `Myanmar (Japanese)` `2026-10`
 - [「 ミャンマー 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/myanmar/) — 2026. 08/04: ミャンマー で拘束のスーチー氏、赤十字代表と面会 健康不安強まる中; 07/17: 500人超が行方不明、ロヒンギャ難民乗せた2隻が ミャンマー 沖で消息絶つ ...
 - [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー のクーデター ミャンマー 国軍が2021年2月1日、民主化指導者アウンサンスーチー氏率いる国民民主連盟（NLD）政権を打倒するために実行した。
 
+### Taiwan(検索日時 / searched at: 2026-10-09)
+
+Tags: `Taiwan` `2026-10`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=NVvraqQKiko1MVQ44YL9jWAWrubycbUeFbs_zB6ZNKW) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=NVvraqQKiko1MVQ44YL9jRBMR9eAP1HofCyYuVmUo-W) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際資訊](http://www.baidu.com/link?url=_QxfqLBG8Q87Q4xkkHzFdASstiogUZY6CFqNpFY2VjTdnJPrMvreZPY6-gvBjZj7) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-手机闽南网](http://www.baidu.com/link?url=_QxfqLBG8Q87Q4xkkHzFdCHqiCyJEQLxiv1qz11PYmjKgMnNIhRRPpmhHv4JRgpG) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=5xLjiaKf9IrMc4mKN9m9n0u6MowGo4ZHkob40f6ysJ8OsV8zwRdymn3UvxlGd48i) — 
+- [即时 新闻 _新华 台湾 _新华网](http://www.baidu.com/link?url=ELXhGUYuqoi8uh8wbSuJD8NZllQGzVVeguVUuoPAf35dfpMZlPoL31uPFo-Hh4pt) — 
+- [头条 _中共中央 台湾 工作办公室、国务院台湾事务办公室](http://www.baidu.com/link?url=EeRiQcZ6MX6HQG7nhpZKtst69sfoTCSFEwfh8OFCDsEuz3gt541spMowQNGr_KbC) — 
+- [台湾 _海外网](http://www.baidu.com/link?url=6GuEgQiRfvtan-bRhbH-v1gUYjADfEIsdkfr7YqWmzvnaM0e0Em9koDk3faUX21C) — 
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Afghanistan (Japanese)` `2026-10`
+
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 【テヘラン＝吉形祐司】イスラム主義勢力タリバンが復権した アフガニスタン で、タリバンと共闘する国際テロ組織アル・カーイダが各地に軍事訓練場を設けるなど活動を ...
+- [アフガニスタン の ニュース 放送に女性キャスター戻る - BBC](https://www.bbc.com/japanese/video-58252831) — 2021/08/18 ... アフガニスタン の 主要ニュース 放送局の画面に17日、女性のキャスターが復活した。15日に武装勢力タリバンが アフガニスタン を制圧した後、しばらく女性 ...
+- [「 アフガニスタン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10105) — ICC、タリバン暫定政権の教育相らに逮捕状 女性抑圧政策で · パキスタンが アフガニスタン 空爆 22人死亡か、タリバン反発 · パキスタン、 アフガニスタン を空爆 ドローン領空 ...
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン 情勢 関連 ニュース · タリバン教育相ら2人の逮捕状公開 女性抑圧めぐり人道に対する罪 ICC(10月06日 18:18) · タリバン教育相らにも逮捕状 女性迫害、人道 ...
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン戦争、過去の戦争と比べてどのくらい不 ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定政権、女性の足露出や化粧も禁止 抗議デモを武力鎮圧 ...
+- [「女性に対する戦争を世界は静観している」 アフガニスタン ...](https://www.youtube.com/watch?v=tXzgKlM2vCU) — 2021/08/13 ... ... 主要 都市を次々と制圧する ... アフガニスタン の全州都の3分の1を掌握。国連によると、これまでに25万人以上が避難民となっている。 BBC ニュース ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — アフガニスタン · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死 亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米CIAが警告 機密文書公開で明らかに.
+

@@ -166,3 +166,34 @@ Tags: `Iran (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Austria(検索日時 / searched at: 2026-10-09)
+
+Tags: `Austria` `2026-10`
+
+- (no items / 記事なし)
+
+### South Korea (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `South Korea (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Thailand (Japanese)` `2026-10`
+
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [「 タイ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000386) — 「 タイ 」 ニュース 一覧 · タイ とミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · タイ 大雨影響続き24人死亡 空港で荷物が滞留も · タイ で大雨続き首都バンコクでも浸水 ...
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — RANK1EV購入2日でホイール破損、 タイ 消費者保護局が仲裁 「国民救済は政府の責務」 · RANK2在 タイ 日本国大使館「パスポート（旅券）の取扱いにご注意ください（交付に1ヶ月 ...
+- [タイ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/asia/th/) — ビジネス ニュース ・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート · 国際ビジネス情報番組 「世界は今」 · ウェビナー/WEBセミナー · 世界貿易投資報告 ...
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 史上最強エルニーニョ、食料ショック再来に市場身構え 新興国の脅威 に · タイ政府、スタートアップの共同投資可能に リスク分担でVC呼び込む · JICAが150億円規模のアグリ ...
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — タイで外国企業への反発、日本企業約6,000社への影響も懸念と報道 · タイの家計債務、平均約80万バーツで調査開始以来最高―経済成長の重荷に · タイの今日は何の日？ 10月9 ...
+- [タイ の ニュース サイトまとめ - Bangkok Times【バンコク ...](https://alphabet-home.com/bangkok-times/thailand-news/) — 2021/03/14 ... タイランドハイパーリンクス · newsclip（ ニュース クリップ） · バンコク週報 · WIZE（ワイズ） · PJA NEWS · DACO（ダコ） · ANNGLE（アングル） · タイ あげ ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — パタヤでバイクタクシーが謎の車に追跡！ 男が銃を向け威嚇したため女性客逃走。 · タイ 天気予報（10月9日）。 · イスラエル企業の「名義貸し」疑惑でバンコク3カ所を一斉 ...
+
+### Austria (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Austria (English)` `2026-10`
+
+- (no items / 記事なし)
+

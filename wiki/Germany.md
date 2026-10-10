@@ -161,3 +161,15 @@ Tags: `Tajikistan (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Germany(検索日時 / searched at: 2026-10-09)
+
+Tags: `Germany` `2026-10`
+
+- (no items / 記事なし)
+
+### Italy (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Italy (English)` `2026-10`
+
+- (no items / 記事なし)
+

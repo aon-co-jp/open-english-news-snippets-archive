@@ -108,3 +108,15 @@ Tags: `Israel` `2026-10`
 
 - (no items / 記事なし)
 
+### Israel(検索日時 / searched at: 2026-10-09)
+
+Tags: `Israel` `2026-10`
+
+- (no items / 記事なし)
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- (no items / 記事なし)
+

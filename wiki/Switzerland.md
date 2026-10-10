@@ -115,3 +115,15 @@ Tags: `Thailand (Japanese)` `2026-10`
 - [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイ 旅行、入国税＋出国税1,450バーツだけじゃない。空港使用料も！ · パタヤ・サードロードで麻薬密売の男女2名を逮捕。 · パタヤで特殊詐欺グループ4人逮捕 電力公社を装い ...
 - [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — ロシアで「肺ペスト」疑い、 タイ 疾病管理局「流入リスクは低い」 · SETUPメガイベント「TRIUMPH」11月14日開催、上原わかな初参戦＆ タイ ハイパー読者50B割引 · タイ の 今日 ...
 
+### Switzerland(検索日時 / searched at: 2026-10-09)
+
+Tags: `Switzerland` `2026-10`
+
+- (no items / 記事なし)
+
+### Iran (English)(検索日時 / searched at: 2026-10-09)
+
+Tags: `Iran (English)` `2026-10`
+
+- (no items / 記事なし)
+
