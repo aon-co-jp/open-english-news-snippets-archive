@@ -248,3 +248,9 @@ Tags: `Egypt (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Tajikistan(検索日時 / searched at: 2026-10-10)
+
+Tags: `Tajikistan` `2026-10`
+
+- (no items / 記事なし)
+

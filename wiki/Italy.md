@@ -172,3 +172,28 @@ Tags: `Germany (Japanese)` `2026-10`
 - [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
 - [ドイツ の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/germany_newsmedia) — 2020/05/13 ... 情報を英語で得られる ニュース 系メディア5選 · 1. SPIEGEL ONLINE · 2. ZEIT ONLINE · 3. The Local Germany · 4. DEUTSCHLAND.de · 5. Munich NOW.
 
+### Italy(検索日時 / searched at: 2026-10-10)
+
+Tags: `Italy` `2026-10`
+
+- (no items / 記事なし)
+
+### China (Japanese)(検索日時 / searched at: 2026-10-10)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国 や台湾の最新 ニュース ・特集をまとめました。 中国 の習近平国家主席の動向や 中国 経済、台湾を巡る情勢、TSMCや鴻海の ニュース などをお伝えします。
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 台湾総統「中国が現状変更」 防衛力強化強調し連携呼びかけ · ロシア外交評論家 ウクライナへの軍事攻撃は一段と激化の見方 · 貿易摩擦の中国とEUが協議 EU「中国からの輸出 ...
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 頼総統、国民が安心して暮らせる「山の上の町」構築に意欲 国慶日演説／台湾. 中央社フォーカス台湾; 10月10日 14時30分. 中国 、衛星インターネット用衛星群の第27陣 ...
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 · ニュースヘッドライン · 国慶節連休の人出延べ21億人 · トヨタと一汽・広汽、戦略提携の枠組み協定締結 · 日産が中国開発車を輸出、PHVをメキシコから · プロ野球の ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 中国 の習近平国家主席（左）に語りかける米国のトランプ大統領＝9. 米、 中国 人の募集停止 交流事業、当局嫌がらせか. 10月09日. 共同通信.
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 、AI投資過熱を警戒 巨額損失なら責任追及―政府指針(10月10日 05:02) · 欧州委員「 中国 のHV輸出抑制」 レアアース許可も円滑化―閣僚協議(10月10日 15:23) · 中国 、 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/09: 中国 、ラオス北西部に基地開設 かつてCIAが使用した飛行場; 09/29: トランプ氏、 中国 への武器売却「協議していない」 駐 中国 大使の発言と食い違い ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 中国初の「ノーベル文学賞テーマ書店」がオープン 上 海 · 反戦とグルメの中国映画「歓迎来龍餐館」がアカデミー賞に出品 · 街を舞台にした演劇フェスティバル開催 天津市 ...
+
+### Taiwan (English)(検索日時 / searched at: 2026-10-10)
+
+Tags: `Taiwan (English)` `2026-10`
+
+- (no items / 記事なし)
+

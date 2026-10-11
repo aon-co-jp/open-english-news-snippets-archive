@@ -195,3 +195,9 @@ Tags: `Myanmar (Japanese)` `2026-10`
 - [M J 最新号 – ミャンマー 最新 ニュース ・情報誌](https://myanmarjapon.com/media) — 現地の政治・経済・社会などの最新情報を毎日配信する ミャンマーニュース ... ミャンマー ジャポン. ニュース メール登録（無料） · 主要 メディアにも配信 プレミアム会員登録.
 - [軍主導の総選挙で遠のく民主化 軍トップが大統領に選出か ...](https://www.youtube.com/watch?v=zi-HH8VgTs8) — 2026/02/01 ... ... ミャンマー の人道危機は深刻化しています。 ▽TBS NEWS DIG 公式 ... 最新 ニュース をお届け！ NNN NEWS ZIP！(2026年10月8日). 日テレNEWS.
 
+### Cambodia(検索日時 / searched at: 2026-10-10)
+
+Tags: `Cambodia` `2026-10`
+
+- (no items / 記事なし)
+

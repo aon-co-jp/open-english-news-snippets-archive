@@ -172,3 +172,16 @@ Tags: `Afghanistan (Japanese)` `2026-10`
 - [「女性に対する戦争を世界は静観している」 アフガニスタン ...](https://www.youtube.com/watch?v=tXzgKlM2vCU) — 2021/08/13 ... ... 主要 都市を次々と制圧する ... アフガニスタン の全州都の3分の1を掌握。国連によると、これまでに25万人以上が避難民となっている。 BBC ニュース ...
 - [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — アフガニスタン · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死 亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米CIAが警告 機密文書公開で明らかに.
 
+### Taiwan(検索日時 / searched at: 2026-10-10)
+
+Tags: `Taiwan` `2026-10`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=2hTnTPWOLTD9h3RVM1OlZzCOdjYHC8oFEHrx_Lqlpp7) — 
+- [央视海峡两岸的 头条 主页 - 今日头条](http://www.baidu.com/link?url=0gIH1ddnRX5mRcXuEuqipt2GTS4_Cyv8dWL1KlPuJMH6eWtHPJNvftxldTTHh3ZwLDz-TfDXp7Ej1ixmjUXyyUlIyvpX02_HDMBzwI0e_tCWBxYIaXC5oUepyQwr98OAt4zwrPx4X3UiCbOaHBaNpnPEJmKkFSdyzEeUAqEoRxq) — 
+- [台灣 電視24小時 · 最新 新闻 与时事](http://www.baidu.com/link?url=7zKHz3kQX8kEg3rmj4oYrAptyCLlPJGv6YXncTWpO8HOV6khYcvcccP_GBUvWFPN) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-闽南网](http://www.baidu.com/link?url=-NB2Y4PnBWTAGVcbn7QQP_3E3EJLn-mF5M_7fvsIFLRZazh4B1z1rhwaaeONOPJB) — 
+- [中国 台湾 网](http://www.baidu.com/link?url=DAOwegQau2aulaH_cU8d0l0lgrWdthJnbJGGXrX9d0m) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=mgwiGAUwykt-eeJPz35Zq6oGEw6jp5T5tC-T965i2YG5FiQ1vaHpLPcj7PvGiGqI) — 
+- [首页_中国 台湾 网](http://www.baidu.com/link?url=mgwiGAUwykt-eeJPz35ZqrhbX7vr1AHdyFF5LNSrXAREFrYhvzKndZyq1aZiAwf7iyOZESljofEVfW-Dc0yuEIsePksIV4gkaGCtSAhyApG) — 
+- [海峡两岸首页](http://www.baidu.com/link?url=DAOwegQau2aulaH_cU8d0j4h8-Y9sUoXT1WHorqV_p5YadolCiTZkZmKVVZwPgqU3wtrjvXcjZqVxXMRGaE-eK) — 
+

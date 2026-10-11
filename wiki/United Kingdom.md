@@ -198,3 +198,9 @@ Tags: `Austria (Japanese)` `2026-10`
 - [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
 - [ドイツ の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/germany_newsmedia) — 2020/05/13 ... 情報を英語で得られる ニュース 系メディア5選 · 1. SPIEGEL ONLINE · 2. ZEIT ONLINE · 3. The Local Germany · 4. DEUTSCHLAND.de · 5. Munich NOW.
 
+### United Kingdom(検索日時 / searched at: 2026-10-10)
+
+Tags: `United Kingdom` `2026-10`
+
+- (no items / 記事なし)
+

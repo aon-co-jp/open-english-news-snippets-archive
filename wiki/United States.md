@@ -171,3 +171,9 @@ Tags: `United States` `2026-10`
 - [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 3 hours ago - See All Newsletters ... Kagan y Soai ganan Nobel de Química por investigaciones que resuelven misterio de “imagen especular” · Scientists win chemistry Nobel for discoveries about mirrored molecules that led to many drugs ... FACT FOCUS: Trump says he's ended eight wars. His numbers are off · FACT FOCUS: What people are alleging in a Cornell University fraternity gang rape case · Video of Kamala Harris saying ‘today is today’ was altered
 - [ABC News - Breaking News, Latest News and Videos](https://abcnews.com/) — Your trusted source for breaking news, analysis, exclusive interviews, headlines, and videos at ABCNews.com
 
+### United States(検索日時 / searched at: 2026-10-10)
+
+Tags: `United States` `2026-10`
+
+- (no items / 記事なし)
+
