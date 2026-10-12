@@ -177,3 +177,35 @@ Tags: `United States` `2026-10`
 
 - (no items / 記事なし)
 
+### United States(検索日時 / searched at: 2026-10-11)
+
+Tags: `United States` `2026-10`
+
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 9 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 7 hours ago - Florida's dengue outbreak is now the largest in a US state in decades · The cost of drugs from Canada is set to soar for millions of Americans because of a federal rule ... Rain gardens help handle today's downpours. And they can be beautiful too · The enduring popularity of Elvis Presley's Graceland is a monument to his legacy ... Comprehensive global coverage of how religion shapes our world. See All Newsletters
+- [NBC News - Breaking Headlines and Video Reports on World, U.S. and Local Angles | NBC News](https://www.nbcnews.com/) — The investigation into CNN, NBC, ABC, CBS and Fox News is underway, and civil investigative demands were sent out Friday, a department spokesperson said.
+- [Associated Press News: Breaking News, Latest Headlines and Videos | AP News](https://apnews.com/) — Florida's dengue outbreak is now the largest in a US state in decades ... Rain gardens help handle today's downpours. And they can be beautiful too · The enduring popularity of Elvis Presley's Graceland is a monument to his legacy ... Comprehensive global coverage of how religion shapes our world. See All Newsletters
+- [CBS News | Breaking news, top stories & today's latest headlines](https://www.cbsnews.com/) — Democratic Rep. Chris Pappas, who's running to represent New Hampshire in the Senate, said that "we're taking nothing for granted" as Election Day approaches, amid a "tough race" in the Granite State.
+- [U.S. News: Latest Breaking Stories and Video on National Issues | NBC News](https://www.nbcnews.com/us-news) — 10 hours ago - FOR SUBSCRIBERSHunger in a land of plenty: Major food banks face ‘heartbreaking’ need, NBC News survey finds
+- [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Breaking News, Latest News and Current News from FOXNews.com. Breaking news and video. Latest Current News: U.S., World, Entertainment, Health, Business, Technology, Politics, Sports Published: 1 hour ago
+- [US | CNN](https://www.cnn.com/us) — 1 week ago - J. Miles Cary/Knoxville News-Sentinel/USA Today Network/Reuters · Christa Pike, who survived an execution attempt, is discharged from hospital, attorney says ... 5 men died after being injured along a Michigan trail. Their deaths have raised questions about a possible serial killer ... State prosecutors argue Luigi Mangione’s ‘different crimes’ mean double jeopardy doesn’t apply to him
+
+### Taiwan (English)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Taiwan (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Germany (Japanese)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Germany (Japanese)` `2026-10`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ元情報機関トップを逮捕 スパイ活動や国家反逆の疑い · 脳の内部の動きをを解明した米独3教授にノーベル生理学・医学賞 · ロシアがウクライナ首都の橋を連日攻撃、独 ...
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月7日 時事） ドイツ 検察は6日、対外諜報（ちょうほう）を担う連邦情報局のハニング元長官をスパイなどの容疑で逮捕したと発表した。元部下の幹部を通じて大量 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 国際ハッカー集団 ドイツ当局「約4000の企業など攻撃」 · ドイツ情報機関元トップらをスパイ容疑などで逮捕 · ノーベル生理学・医学賞に「光遺伝学」の基礎築いた米独研究者.
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ICC特別顧問、トランプ米政権の制裁「破壊の試み成功せず」 · ノーベル平和賞のピレイ氏「負けても取り戻せる」 人種差別と格闘 · 30年越しの「迷宮」駅工事 ドイツ の ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 10/09: 義手装着した数世紀前の人骨、考古学者らが発見 23年 ドイツ 南部; 10/05: ノーベル生理学・医学賞にカール・ダイセロス氏ら3人 脳の謎解明に寄与する技術 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — 独州議会選で極右AfDが再び勝利、メルツ首相は政権運営の「方針を維持」表明 · 独各地で極右AfDに抗議デモ 「活動禁止」求め15万人参加 · ゼレンスキー氏、G20でプーチン氏と ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+

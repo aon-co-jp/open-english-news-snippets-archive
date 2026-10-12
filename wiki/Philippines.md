@@ -151,3 +151,41 @@ Tags: `Philippines` `2026-10`
 
 - (no items / 記事なし)
 
+### Philippines(検索日時 / searched at: 2026-10-11)
+
+Tags: `Philippines` `2026-10`
+
+- [Pinakamuling Balita sa Pilipinas Ngayon (Tagalog News Headlines)](https://www.randall-travel-award.missouri.edu/latest-news-in-the-philippines-today-tagalog-1326637427.html) — June 24, 2026 - Balita sa buong bansa, kabilang ang mga pangunahing pangyayari sa politika, ekonomiya, at lipunan , ay patuloy na iniiwasan ng mga mamamayan ang pagsusuri sa mga detalye. Sa tuwing may nangyayari sa Pilipinas, mahalaga ang agwat na mabilis at tumpak sa pagsasalin sa wikang Filipino.
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 1 week ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Ang Balita Ngayon (@AngBalitaNgayonFB)](https://www.facebook.com/AngBalitaNgayonFB/) — Ang Balita Ngayon . 1,208,876 likes · 2,020,887 talking about this. Official FB Page of Ang Balita Ngayon . Original Content. Current Events. Opinions. Satire. Parody.
+- [Balita - Philippine News](https://balita.mb.com.ph/) — 15:44 BALITA Philippine Embassy, pinag-iingat mga Pinoy sa pagtaas ng influenza sa Japan
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Inihayag ni Gilas Pilipinas at Barangay Ginebra head coach Tim Cone na may iniindang problema sa kalusugan si Justin Brownlee na naging dahilan para hindi siya makapaglaro sa Asian Games at sa kasalukuyang PBA Governors’ Cup.
+- [Breaking News & Headlines in the Philippines | ABS-CBN News](https://www.abs-cbn.com/news) — September 5, 2026 - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
+- [Balitambayan - Balita, Kuwento, at Talakayan Mula Sa ...](https://www.gmanetwork.com/news/balitambayan/) — August 14, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
+
+### Egypt (English)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Egypt (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 朝日新聞の、 タジキスタン に関する ニュース や速報記事一覧です。 タジキスタン に関する現状や背景を、わかりやすくお伝えします。
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース · トランプ氏「ウクライナには新しい大統領が必要」、ゼレンスキー氏が軽油の高騰招いていると非難 · 障害者50人が「9か月」で雇用打ち切り、予定は「1年半 ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 · Video.
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/bd6a578efae506888f94e27a3de85aa5e0dbeb8d7d05dee42a6b893562912278) — 「屈辱的記録を次々更新」中国代表、 タジキスタン に史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も痛ましい」. フットボールチャンネル 10/7(水)5:10.
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — 中国代表は6日、国際親善試合で タジキスタン 代表と対戦し、0-1で敗れた。中国メディア『SOHU』は「屈辱的記録を次々更新」と報道。これまで タジキスタン には6戦4勝2分…
+- [ニュース 及びイベント | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/information/news-and-events-ja) — ニュース及びイベント · 東京におけるタジキスタン共和国独立35周年記念式典 · JDS新規参加者と大使との会談 · タジキスタン共和国独立35周年記念国際会議 · 東京における国民 ...
+
+### Japan (English)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Japan (English)` `2026-10`
+
+- (no items / 記事なし)
+

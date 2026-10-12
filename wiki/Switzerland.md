@@ -152,3 +152,15 @@ Tags: `South Korea (Japanese)` `2026-10`
 - [韓国 の ニュース ・速報 - 47NEWS](https://www.47news.jp/world/south-korea) — 北朝鮮「今後は韓国無視」 金与正氏、反発強める . 10月09日 · 韓国、兵役免除制度の見直し再燃 アジア大会Vサッカー選手に批判. 10月08日 · バドミントン中国マスターズ、 ...
 - [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 与党前代表の訪米ビザ出ず 外交部「韓米関係と結び付けるのは不適切」. 10/9(金) 17:05. 東京の 韓国 文化院で「 韓国 映画祭」開催へ 日本未公開作品上映.
 
+### Switzerland(検索日時 / searched at: 2026-10-11)
+
+Tags: `Switzerland` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- (no items / 記事なし)
+

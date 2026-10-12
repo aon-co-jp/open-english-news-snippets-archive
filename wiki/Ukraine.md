@@ -147,3 +147,22 @@ Tags: `Ukraine` `2026-10`
 
 - (no items / 記事なし)
 
+### Ukraine(検索日時 / searched at: 2026-10-11)
+
+Tags: `Ukraine` `2026-10`
+
+- (no items / 記事なし)
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-11)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤財務相がアジア開発銀行の年次総会で演説、途上国への支援を表明.
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — コニカミノルタ、AIで衣料品再生 素材検査する要員10分の1 に · イタリアのメローニ首相、自身の声を知財申請 AIフェイク対策と報道 · プーチン氏、伊ウニクレディトのロシア ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 09/11: 「謎の港町」を描いたローマ時代最大の壁面モザイク、14年の修復を経てお披露目; 09/07: 自動運転車、F1スタイルのレースで競い合う 伊 ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · イタリア 政府、学校でブルカとニカブ着用禁止の方針 各教室で外国人の制限も · イスラエル、ヨルダン川西岸で入植地建設を推進 英仏独伊とカナダが非難.
+- [Notizie Italia: Ultima Ora - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsitaly&hl=ja) — 5日前 - イタリアの最新ニュース ：速報、今日のヘッドライン、ローカルニュース、そして主要新聞の報道レビューを1つのアプリで。 イタリアのニュースをすべて ...
+- [「 イタリア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · 日英伊の次期戦闘機 イタリアに新たな開発拠点設置で式典 · ドラマ「八月の声を運ぶ男」がイタリア賞受賞 · ベネチア国際映画祭 日本の2作品は最 ...
+- [イタリア 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0af09f088870daa12876/) — イタリア 共和国 · 劇的決着で指揮官が“まさかの行動” ボールにかぶりつき… · 1:11 · 今、食通たちがこぞって訪れる新店はここ！ · 女子バレー24歳、2戦連続躍動の1枚に喝采「 ...
+
