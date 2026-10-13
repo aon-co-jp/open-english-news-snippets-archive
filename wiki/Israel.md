@@ -132,3 +132,28 @@ Tags: `Israel` `2026-10`
 
 - (no items / 記事なし)
 
+### Israel(検索日時 / searched at: 2026-10-12)
+
+Tags: `Israel` `2026-10`
+
+- (no items / 記事なし)
+
+### Italy (English)(検索日時 / searched at: 2026-10-12)
+
+Tags: `Italy (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-10-12)
+
+Tags: `Afghanistan (Japanese)` `2026-10`
+
+- [アフガニスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/0bedd85b653193eb89cb1131c79b5e035495e267faff7829d380f75c4b2f6f66) — アフガニスタン 関連 ニュース · アフガン選手「平和に貢献したい」 日体大でアジアパラ大会激励 · 母子旅YouTuber、3歳と5歳の子を連れイラクへ「 今日 も平和」投稿に物議「 ...
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 新着一覧 · アフガン国際復帰 見えぬ道筋 タリバン実権掌握5年 · 報道写真家の石川文洋さんが死去、88歳… · 「法の支配」重要性 訴えを… · ICC所長制裁 米の暴挙から国際 ...
+- [アフガニスタン 最新情報 タリバンが実権握る - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A2%E3%83%95%E3%82%AC%E3%83%8B%E3%82%B9%E3%82%BF%E3%83%B3.html) — アフガニスタン 情勢. アメリカ軍が アフガニスタン から完全撤退。イスラム主義勢力タリバンが実権を握った アフガニスタン の最新情報をお伝えします。
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン 情勢 関連 ニュース · タリバン教育相ら2人の逮捕状公開 女性抑圧めぐり人道に対する罪 ICC(10月06日 18:18) · タリバン教育相らにも逮捕状 女性迫害、人道 ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — Afghanistan · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定政権、女性の足露出や化粧も禁止 抗議デモを ...
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — ... アフガニスタン 」の ニュース . ... 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン ...
+- [「 アフガニスタン 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000226) — 「 アフガニスタン 」 ニュース 一覧 · パキスタンが アフガニスタン 攻撃 対立の激化懸念 · UNDP＝国連開発計画“ アフガニスタン の女性への支援継続を” · アフガニスタン 東部地震 ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — アフガニスタン · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死 亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米CIAが警告 機密文書公開で明らかに.
+

@@ -236,3 +236,15 @@ Tags: `Switzerland (Japanese)` `2026-10`
 - [スイス 20 先物 ニュース - Investing.com](https://jp.investing.com/indices/switzerland-20-futures-news) — UBSが スイス 経済に楽観的、ユーロ圏と米国関税にリスクを警戒. UBSのアナリストらは、堅調な消費需要と失業率の緩やかな低下を背景に、来年の スイス 経済の回復を予測し ...
 - [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — Swiss . ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ、ガザ全域の調査要求 ...
 
+### United Kingdom(検索日時 / searched at: 2026-10-12)
+
+Tags: `United Kingdom` `2026-10`
+
+- (no items / 記事なし)
+
+### Iran (English)(検索日時 / searched at: 2026-10-12)
+
+Tags: `Iran (English)` `2026-10`
+
+- (no items / 記事なし)
+

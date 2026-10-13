@@ -198,3 +198,15 @@ Tags: `China (Japanese)` `2026-10`
 - [中国 本土の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E4%B8%AD%E5%9B%BD%E6%9C%AC%E5%9C%9F.html) — 最新 ニュース · 中国 へ「禁書」、拘束されても 香港と本を愛した書店人が貫いた信念 · ちいかわが上海の街角に 本土初の特別展、ファンは映画待ち望む声 · 台湾映画「零下五十 ...
 - [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/09: 中国 、ラオス北西部に基地開設 かつてCIAが使用した飛行場; 09/29: トランプ氏、 中国 への武器売却「協議していない」 駐 中国 大使の発言と食い違い ...
 
+### Germany(検索日時 / searched at: 2026-10-12)
+
+Tags: `Germany` `2026-10`
+
+- (no items / 記事なし)
+
+### Tajikistan (English)(検索日時 / searched at: 2026-10-12)
+
+Tags: `Tajikistan (English)` `2026-10`
+
+- (no items / 記事なし)
+

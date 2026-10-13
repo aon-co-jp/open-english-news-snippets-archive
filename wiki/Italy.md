@@ -215,3 +215,22 @@ Tags: `Russia (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Italy(検索日時 / searched at: 2026-10-12)
+
+Tags: `Italy` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-12)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイス の 主要 メディアが報じた日本関連 ニュース を週1回、まとめてお届けする無料 ニュース レターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — ... 新聞の、 スイス に関する ニュース や速報記事一覧です。 スイス ... 【そもそも解説】今年のノーベル平和賞、 今日 発表 受賞者どう選ぶ？ ノーベル平和 ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — 「 スイス 」 ニュース 一覧 · スイス の氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイス で観光客を乗せたバスが横転 5人死亡 · W杯 ...
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 池に飛び込むクジラ 米巨大テックが「ドル外」起債、各国と資金争奪 · 創薬新興がロシュと提携 治験用の薬剤を無償で確保、開発コスト削減 · スイス 銀行規制案、UBSと政府の ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [SWI swissinfo.ch 日本語版 (@swissinfo.ch_jp) · Bern - Instagram](https://www.instagram.com/swissinfo.ch_jp/) — スイス 公共放送協会国際部 SWI swissinfo.ch スイス インフォ 日本語版の公式アカウントです。 記事へのリンクは⬇︎ · スイス では、9割以上の人が投票所に行きません。
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — Swiss . ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ、ガザ全域の調査要求 ...
+

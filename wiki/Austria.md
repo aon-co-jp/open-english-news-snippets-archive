@@ -235,3 +235,15 @@ Tags: `France (Japanese)` `2026-10`
 - [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · ゼレンスキー大統領 欧州各国首脳と会談し協力呼びかけ · パリのシャンゼリゼ通りと大阪・御堂筋が「姉妹ストリート」に · パリで「オストメイト ...
 - [今日 の フランス | フランス 情報メディアのET TOI（エトワ）](https://www.parisettoi.fr/news/) — 4日前 - ソフトバンク、 フランス に750億ユーロを投資へ：EDFおよびシュナイダーエレクトリックと協働 ... 2026.06.02. 仏政府、短距離26便の航空券課税を軽減. 仏 ...
 
+### Austria(検索日時 / searched at: 2026-10-12)
+
+Tags: `Austria` `2026-10`
+
+- (no items / 記事なし)
+
+### Egypt (English)(検索日時 / searched at: 2026-10-12)
+
+Tags: `Egypt (English)` `2026-10`
+
+- (no items / 記事なし)
+
