@@ -248,3 +248,35 @@ Tags: `China` `2026-10`
 - [中国新闻 _CCTV节目官网](http://www.baidu.com/link?url=1LzeSqpPkGSwq1LG0CiAQg1F06_dKM-SYTEY1phEfxrOwuugTDNj1kHLFAu5_unc) — 
 - [中国 版首页 | 联合早报 - 享誉新加坡与国际的权威中文 新闻 媒体](http://www.baidu.com/link?url=H1XM0qYlRhPqtRQy_sGJTUqPdps17V1T8CFyVDsOJWL-yyYefV7s-znB5WyL0umP) — 
 
+### China(検索日時 / searched at: 2026-10-13)
+
+Tags: `China` `2026-10`
+
+- [头条新闻_今日中国](http://www.baidu.com/link?url=_NBIP41IJ2ONnZF5n7TJxYIH6aQNCmjoy_4IWC7EePkEK-zZygQFIeGbtPmuCSClhIVZYettWE__Hnd1Bcm_-q) — 
+- [中国 - BBC News 中文](https://www.bbc.com/zhongwen/topics/ckr7mn6r003t/simp) — 3 天之前 · BBC中文网提供关于中国的最新新闻、深入分析和评论，涵盖政治、经济、社会等多方面内容。
+- [今日头条](http://www.baidu.com/link?url=4evKwoTojwwkTngqvvc_Kig0r80Y8Rxy8mlr8_LCdHvYIKEPN7TVuHalHNKv-cJ6) — 
+- [头条新闻 _头条_ 中国 政府网](http://www.baidu.com/link?url=x-dRBk8QKusrr-E8NEViSC11IBRUUN9Felmh4dwB9RbU0-VcDrHdvEe6BQg24gpU) — 
+- [中国新闻 周刊的头条主页 - 今日头条](http://www.baidu.com/link?url=N3fhNW0KemvpxPuhw-yNCIRLhXY84ls_qs5i4n7juRZllLrpzfOmyW4LL4mh2w35-CiLTOHPcmo0hz6Y7rn0eXH2e0vPe3nrC8EL2bWoqhGAYF_p98HwPjWL100OjkRbXYCJBSrDPibIQhp00mKQ1_) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=N3fhNW0KemvpxPuhw-yNCIRLhXY84ls_qs5i4n7juRZllLrpzfOmyW4LL4mh2w35-CiLTOHPcmo0hz6Y7rn0eQ4fl9yXPu35BHv43WCRZl69uR_CHWiMbIO3ESw2JXQsssu5TsWpN0VTL2XKxUSaWa) — 
+- [中国新闻 网_时政](http://www.baidu.com/link?url=N3fhNW0KemvpxPuhw-yNCGa0YTZBXN0S2V2-ZNycLgE4I0c5i35CdcxJpaAbXzUjyB3hVvAYWPF8pLZa8rNXrK) — 
+- [中国新闻 网_梳理天下新闻](http://www.baidu.com/link?url=-WCEii_Mf_vlQHS8CON7tH2EwFdli8SjuhrjFFz3MLi) — 
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-10-13)
+
+Tags: `Myanmar (Japanese)` `2026-10`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマー の日本語 ニュース メディア。現地の政治・経済・社会などの最新情報を毎日配信する ミャンマーニュース 専門サイト。
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー 都市開発に転機 三菱商事など撤退、商機とリスクに隔たり · ミャンマー 大統領、マレーシアで首脳会談 ASEAN関係改善へ前進 · 三菱商事など、ヤンゴン大型開発撤退 ...
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — 米政権、政策転換で親軍政権と直接協議を開始 · ミャンマー. 10月13日 NEW · 親軍政権トップ、経済発展の遅れ認める · ミャンマー. 10月13日 NEW · ミャンマー7割が貧困危機 ...
+- [今日 の ミャンマーニュース - 日本 ミャンマー 支援機構 (JMSA)](https://www.japan-myanmar.com/myanmar-news/) — 今日 の ミャンマーニュース ... ミャンマー 軍のミンアウンフライン最高司令官は月曜日、 ミャンマー で活動している国家統一政府 (NUG) と同盟関係にある民族武装組織 (EAO) に ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — マレーシア首相“ミャンマーのASEAN本格復帰を支援” · タイとミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · 東ティモールで“特殊詐欺拠点”を摘発 日本人7人を拘束.
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — 酒に酔いトラブル 駆け付けた警察官を殴り職務妨害 … · 【ミャンマー】米政権、政策転換で親軍政権と直接協議を開始 · ミャンマー、人口7割が貧困危機 国連報告、内戦長期化で.
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/newsdigest) — ミャンマー の日本語 ニュース メディア。現地の政治・経済・社会などの最新情報を毎日配信する ミャンマーニュース 専門サイト。
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー のクーデター ミャンマー 国軍が2021年2月1日、民主化指導者アウンサンスーチー氏率いる国民民主連盟（NLD）政権を打倒するために実行した。
+
+### Brazil (English)(検索日時 / searched at: 2026-10-13)
+
+Tags: `Brazil (English)` `2026-10`
+
+- (no items / 記事なし)
+

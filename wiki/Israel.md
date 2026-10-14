@@ -157,3 +157,9 @@ Tags: `Afghanistan (Japanese)` `2026-10`
 - [「 アフガニスタン 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000226) — 「 アフガニスタン 」 ニュース 一覧 · パキスタンが アフガニスタン 攻撃 対立の激化懸念 · UNDP＝国連開発計画“ アフガニスタン の女性への支援継続を” · アフガニスタン 東部地震 ...
 - [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — アフガニスタン · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死 亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米CIAが警告 機密文書公開で明らかに.
 
+### Israel(検索日時 / searched at: 2026-10-13)
+
+Tags: `Israel` `2026-10`
+
+- (no items / 記事なし)
+

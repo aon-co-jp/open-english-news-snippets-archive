@@ -215,3 +215,9 @@ Tags: `Thailand (Japanese)` `2026-10`
 - [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — タイ 首相「EV国内生産促す」 岸田元首相と会談、日本企業へ期待強調 · IMF・世銀総会、35年ぶりバンコクで開幕 AI活用も議論 · 日銀の植田和男総裁、13日から タイ に出張 G20 ...
 - [タイニュース PK(พี่เค) (@Thainews_PK) / X](https://x.com/Thainews_PK) — タイ の出来事を報告するのがメインです。2006 ... 【さようならMax Value】 今日 でMax Value全店が閉店し、順次Topsのなる ...
 
+### Switzerland(検索日時 / searched at: 2026-10-13)
+
+Tags: `Switzerland` `2026-10`
+
+- (no items / 記事なし)
+
