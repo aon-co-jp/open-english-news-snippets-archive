@@ -407,3 +407,28 @@ Tags: `Myanmar` `2026-10`
 
 - (no items / 記事なし)
 
+### Myanmar(検索日時 / searched at: 2026-10-14)
+
+Tags: `Myanmar` `2026-10`
+
+- (no items / 記事なし)
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-14)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-14)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「 台湾 」 ニュース 一覧 · 自民 古屋前選対委員長 台湾 訪問 頼総統と会談 · 台湾 総統「中国が現状変更」 防衛力強化強調し連携呼びかけ · 台湾 企業 北海道で2028年めどに ...
+- [台湾 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/taiwan) — 台湾 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [最新 | フォーカス 台湾 - 中央社日本語版 - Focus Taiwan](https://japan.focustaiwan.tw/news) — 最新 · ツェン・ジンホア、 台湾 らしい「音」に注目 シンシン アンド ザ マウス、16日公開 · 台湾 中油、アラスカLNG600万トンを毎年調達へ 経済部が発表 最大44億米ドルを投資.
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 5時間前. 中国、漁船への放水巡り台湾に「結果負うべき」と警告 · 5時間前. 台湾、欧州の中国依存リスク警告 外交部長「自由や主権の脅威に」 · 19時間前. 台湾財政部長、 ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · ツェン・ジンホア、台湾らしい「音」 に注目 シンシン アンド ザ マウス、16日公開 · 台湾中油、アラスカLNG600万トンを毎年調達へ 経済部が発表 最大44億米ドル ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「 台湾 山の上の町、地の塩、世の光」と題する演説 · 頼総統、エスワティニ国王と台南の陸軍航空飛行訓練指揮部 ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国軍の空母「遼寧」が太平洋進出 石垣島南の海域で戦闘機が発着艦 · 台湾 、アラスカLNG開発に最大44億ドル投資 年600万トン購入へ · 中国貿易黒字が27%増に拡大 7〜9月、AI ...
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — ツェン・ジンホア、 台湾 らしい「音」に注目 シンシン アンド ザ マウス、16日公開 · 台湾 中油、アラスカLNG600万トンを毎年調達へ 経済部が発表 最大44億米ドルを投資 · 台湾 ...
+

@@ -264,3 +264,46 @@ Tags: `Brazil` `2026-10`
 
 - (no items / 記事なし)
 
+### Brazil(検索日時 / searched at: 2026-10-14)
+
+Tags: `Brazil` `2026-10`
+
+- (no items / 記事なし)
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-10-14)
+
+Tags: `South Korea (Japanese)` `2026-10`
+
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 7 時間前 ... 在米 韓国 大使館「駐米大使の『不慮の事故でない』発言は李大統領に反論する趣旨ではない」 · 仁川の「松島」、名称変更の可能性… · 数学仮説「ルパート特性 ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — メディア、K-pop、K-wave、韓流、韓流、 韓国 のポップ、 韓国 のポップカルチャー、 韓国 の文化など、国内の消耗品をカバーするネットワークを構築し、 、 韓国 のアイドル、 ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース ...
+- [ハンギョレ新聞 : 日文版](https://japan.hani.co.kr/) — ある宣教師が「光州市内で銃を撃ったのは（北朝鮮）人民軍」だと語るリールだ。再生回数は108万回。続いてフェイク ニュース が次々とおすすめとして表示された。インスタ ...
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 · 2026年10月11日. 北朝鮮が複数の弾道ミサイル、異なる種類と 韓国 軍 1発は900キロ以上飛行 · 北朝鮮から弾道ミサイル、海保が2回の発射を発表 今月3 · 2026年10月11日.
+- [韓国 の ニュース ・速報 - 47NEWS](https://www.47news.jp/world/south-korea) — 韓国 の ニュース ・速報 · ［長崎県］ 韓国 の学生 長崎を撮る 釜山外国語大生、短編作品を制作 暮らしに焦点 魅力を発信 · 韓国 、 主要 省庁を世宗市に移転へ ソウル首都圏の一極 ...
+- [Kstyle - 韓流・ 韓国 芸能 ニュース はKstyle](https://kstyle.com/) — 韓国 エンタメ・ 韓国 ドラマ・ 韓国 映画・K-POPの最新 ニュース から韓流スターのインタビュー、フォトレポートまで。Kstyleでは、あらゆる韓流・ 韓国 芸能情報をいち早くお ...
+- [最新の 韓国ニュース - ライブドアニュース - Livedoor](https://news.livedoor.com/article/category/44/) — 最新の 韓国ニュース · 約10年ぶり！ · 13日、ソウルのハナ銀行ディーリングルームのモニターにKOSPI終値が · トランプ米大統領が13日にアラスカ州で演説している。
+
+### Thailand (English)(検索日時 / searched at: 2026-10-14)
+
+Tags: `Thailand (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### France (English)(検索日時 / searched at: 2026-10-14)
+
+Tags: `France (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### China (English)(検索日時 / searched at: 2026-10-14)
+
+Tags: `China (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Egypt (English)(検索日時 / searched at: 2026-10-14)
+
+Tags: `Egypt (English)` `2026-10`
+
+- (no items / 記事なし)
+
