@@ -329,3 +329,9 @@ Tags: `Myanmar (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Cambodia(検索日時 / searched at: 2026-10-14)
+
+Tags: `Cambodia` `2026-10`
+
+- (no items / 記事なし)
+

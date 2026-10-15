@@ -253,3 +253,9 @@ Tags: `Brazil (Japanese)` `2026-10`
 - [ブラジル の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/101321/) — 主要ニュース · 大リーグ【速報中】ドジャース対ブルワーズ・山本由伸が先発、大谷翔平「4番・DH」… · ノーベル経済学賞、米スタンフォード大のホール教授と米コロンビア ...
 - [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil. ブラジル大統領選、ルラ氏とフラビオ・ボルソナロ氏が接戦 トランプ氏も注視 · ブラジル警察、女装して逃走していた連続殺人の容疑者を逮捕 本人は「80人以上 ...
 
+### Italy(検索日時 / searched at: 2026-10-14)
+
+Tags: `Italy` `2026-10`
+
+- (no items / 記事なし)
+
