@@ -297,3 +297,47 @@ Tags: `Tajikistan` `2026-10`
 
 - (no items / 記事なし)
 
+### Tajikistan(検索日時 / searched at: 2026-10-15)
+
+Tags: `Tajikistan` `2026-10`
+
+- (no items / 記事なし)
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [イタリア 新聞 (@ciao_journal) · Milan - Instagram](https://www.instagram.com/ciao_journal/) — わくわくする イタリア 新聞『チャオジャーナル』公式アカウント ミラノを中心に配布しております Periodico italo giapponese pubblicato da Geienneffe ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ. Italy. イタリア 、学校でのブルカ禁止を閣議決定 1クラスの外国人上限を30％に ...
+- [イタリア の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/italia_news) — 2020/06/18 ... イタリア の 主要 メディアまとめ【 ニュース 編】 · 1．la Repubblica · 2．Corriere Della Sera · 3．Il Fatto Quotidiano · 4．La Stampa · 5．Tiscali.
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — コニカミノルタ、AIで衣料品再生 素材検査する要員10分の1 に · イタリアのメローニ首相、自身の声を知財申請 AIフェイク対策と報道 · プーチン氏、伊ウニクレディトのロシア ...
+- [「 イタリア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · ロシア警告の中 NATO核抑止の定例の演習始まる · トランプ大統領がコロンブス再評価 先住民に反発も · 日英伊の次期戦闘機 イタリアに新たな開発 ...
+- [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
+- [Notizie Italia: Ultima Ora - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsitaly&hl=ja) — 2026/10/6 - イタリアの最新ニュース ：速報、今日のヘッドライン、ローカルニュース、そして主要新聞の報道レビューを1つのアプリで。 イタリアのニュースをすべて ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Ukraine (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Germany (English)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Germany (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 朝日新聞の、 スイス に関する ニュース や速報記事一覧です。 スイス に関する現状や背景を、わかりやすくお伝えします。
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイス では9月27日、自国の中立の定義を狭めるよう連邦憲法を改正する、いわゆる「中立イニシアチブ」の是非を問う国民投票が行われます。皆さんは、 今日 の… 参加する.
+- [Schweiz News - Aktuelle Infos - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.alllatestnews.schweiznewspaper&hl=ja) — 2026/06/24 ... スイス の ニュース : スイス および世界中の ニュース を入手してください! もう重要なメッセージを見逃すことはありません。 スイス ニュース を使用 ...
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 池に飛び込むクジラ 米巨大テックが「ドル外」起債、各国と資金争奪 · 創薬新興がロシュと提携 治験用の薬剤を無償で確保、開発コスト削減 · スイス 銀行規制案、UBSと政府の ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — 「 スイス 」 ニュース 一覧 · スイス の氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイス で観光客を乗せたバスが横転 5人死亡 · W杯 ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — Swiss . ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ、ガザ全域の調査要求 ...
+

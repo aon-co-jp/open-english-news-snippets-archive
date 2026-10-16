@@ -228,3 +228,22 @@ Tags: `Philippines` `2026-10`
 - [Ang Balita Ngayon (@AngBalitaNgayonFB)](https://www.facebook.com/AngBalitaNgayonFB/) — Ang Balita Ngayon . 1,215,539 followers · 1,093,443 talking about this. Official FB Page of Ang Balita Ngayon . Original Content. Current Events. Opinions. Satire. Parody.
 - [Latest Philippine News - Bombo Radyo News](https://www.bomboradyo.com/) — Mariing itinanggi ng House prosecution na na-coach ang Anti-Money Laundering Council (AMLC) Secretariat Executive Director Ronel Buenaventura bago ito humarap bilang testigo sa impeachment · Naglabas ang House of Representative ng resolusyon kung saan hinihikayat ang bawat ahensya at mga sangay ...
 
+### Philippines(検索日時 / searched at: 2026-10-15)
+
+Tags: `Philippines` `2026-10`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 2 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Mababasa at mapapanood ang maiinit at mahahalagang ulat pambansa, politikal, krimen at iba pa sa seksyon na 'Balita'. The 'BALITA' section offers national news, political developments and crime stories.
+- [Ang Balita Ngayon (@AngBalitaNgayonFB)](https://www.facebook.com/AngBalitaNgayonFB/) — Ang Balita Ngayon . 1,215,539 followers · 1,093,443 talking about this. Official FB Page of Ang Balita Ngayon . Original Content. Current Events. Opinions. Satire. Parody.
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Breaking News & Headlines in the Philippines | ABS-CBN News](https://www.abs-cbn.com/news) — September 5, 2026 - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
+- [Balitambayan - Balita, Kuwento, at Talakayan Mula Sa ...](https://www.gmanetwork.com/news/balitambayan/) — August 14, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — 4 days ago - Philippine Entertainment Tabloid for the latest showbiz news
+
+### China (English)(検索日時 / searched at: 2026-10-15)
+
+Tags: `China (English)` `2026-10`
+
+- (no items / 記事なし)
+

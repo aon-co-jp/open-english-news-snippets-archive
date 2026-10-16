@@ -293,3 +293,60 @@ Tags: `China` `2026-10`
 - [头条新闻 的微博_微博](http://www.baidu.com/link?url=Ylp4-k8Mm1SgWuut0eBwGIfBAyek8O88MT_p3q0Lzl7JSw-eW7yvm3TlvYMIubHW8cb3-vKNy4eHeRNsaT6S3a) — 
 - [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=Iz9ohocTliwrM9H0PrdXdov4mwkOMCDv0avQxwYc3efiDb0GxXmDNwaXT0gu_LXmBKMUm5Fi16eP6S8aM38awuUth88MVS_2fFAgWS-sOsRIxz5_oVHRDYwRg2oydPIb6_DwDdOmpjqEiKeoHqgIV_) — 
 
+### China(検索日時 / searched at: 2026-10-15)
+
+Tags: `China` `2026-10`
+
+- [头条新闻_今日中国](http://www.baidu.com/link?url=Pwu80ZGo1bgQXSreZpW_QoI-Soqs00sDEA1bF65_WMBnUtAaR0E-D9LHHnaE88cV_Z1Q1Ok3ChRwVHkJ4Zrac_) — 
+- [今日头条](http://www.baidu.com/link?url=n5CVIm8c90ZNTioAT5CwWZPyhHQ6fAtXz8dYOnhhF1_u8cJsEqGg__Rc-uhJYxep) — 
+- [今日头条](http://www.baidu.com/link?url=WlxuMLkh1uoI01of5rD2rEtVFIdUkuDYKfL5jTJSBQdwV-5Nhv_KdtDcVzEh0n9HAkAlQUWwCcMcXye1T-1fMq) — 
+- [头条新闻 _头条_ 中国 政府网](http://www.baidu.com/link?url=hHESJ7e8kPbAJk0-KH65xzDuKyh_k2w4jHEmWEFgTxUnEXszLlmxK3bR3Xa5KJIm) — 
+- [头条 -首页 | 新闻 决定影响力 |《每日经济新闻》报社旗下网站](http://www.baidu.com/link?url=sq9sjfNDmb6mbFHpWoM8dZEUMt6z1p71poZh1b_eLTXUXbsHMPF5uyv88_4bTMIS) — 
+- [首页 头条 --人民网](http://www.baidu.com/link?url=hHESJ7e8kPbAJk0-KH65xsrrDd1MBW3WvsjxKMvDOOO3MmR_KKc8-lBxMyDc7sUI) — 
+- [头条新闻 的微博_微博](http://www.baidu.com/link?url=hHESJ7e8kPbAJk0-KH65x5ANDW0yQjlAAN9WZyVR1kBip3_Se2MYFIUFtUcK1MG6cgssKKzWzhqBBtPF5oMXla) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=JXsC6rhTTQWXWt5gNoMKkzUJibu-TUS6MJx7x2PaC32LoyrThMslQUJ7MAC8T894ykIKMF71fawWlRkk-3aYXignRZmCEwL-L4aZDuxUi4saxYIAZYYNafI-iTAR-CF-0B5k8omkS6MtyZpR1Eq_Gq) — 
+
+### Thailand (English)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Thailand (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — タジキスタン · 大森 女王破り初V…世界柔道 女子57キロ · 増地遼汰朗、自国開催で父子2代アジア「金」・母は五輪銅メダリスト… · 尾野真歩が世界ランク1位を破り日本勢9 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — 中国代表は6日、国際親善試合で タジキスタン 代表と対戦し、0-1で敗れた。中国メディア『SOHU』は「屈辱的記録を次々更新」と報道。これまで タジキスタン には6戦4勝2分…
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 朝日新聞の、 タジキスタン に関する ニュース や速報記事一覧です。 タジキスタン に関する現状や背景を、わかりやすくお伝えします。
+- [神田ADB総裁、 タジキスタン における雇用創出と成長促進に向け](https://www.adb.org/ja/news/adb-president-launches-new-partnership-strategy-boost-jobs-and-growth-tajikistan) — タジキスタン ・ドゥシャンベ（2026年3月4日）— 神田眞人アジア開発銀行（ADB）総裁は本日、 タジキスタン のエモマリ・ラフモン大統領と会談し、より多くの質の高い雇用 ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — 「屈辱的記録を次々更新」中国代表、 タジキスタン に史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も痛ましい」 · タジキスタン で露主導のバックギャモン国際 ...
+
+### Iran (English)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Iran (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Russia (English)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Russia (English)` `2026-10`
+
+- (no items / 記事なし)
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-10-15)
+
+Tags: `Afghanistan (Japanese)` `2026-10`
+
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 新着一覧 · クリケットの初戦は強豪・アフガニスタンに完敗 、主将が語った「今の日本に足りないもの」… · 佐野市に本拠を構える「クリケット協会」、知られざる日本の現在地 ...
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン 情勢 関連 ニュース · タリバン教育相ら2人の逮捕状公開 女性抑圧めぐり人道に対する罪 ICC(10月06日 18:18) · タリバン教育相らにも逮捕状 女性迫害、人道 ...
+- [「 アフガニスタン 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000226) — パキスタンがアフガニスタン攻撃 対立の激化懸念 · UNDP＝国連開発計画“アフガニスタンの女性への支援継続を” · アフガニスタン東部地震から1年 継続支援を求める声.
+- [アフガニスタン の ニュース 放送に女性キャスター戻る - BBC](https://www.bbc.com/japanese/video-58252831) — 2021/08/18 ... アフガニスタン の 主要ニュース 放送局の画面に17日、女性のキャスターが復活した。15日に武装勢力タリバンが アフガニスタン を制圧した後、しばらく女性 ...
+- [アフガニスタン ・イスラム共和国の関連情報 - フォロー](https://follow.yahoo.co.jp/themes/009cdd0d709727a72400/) — 「銃殺刑公開」実行か中止か… · BBCのFMラジオ放送、 アフガニスタン で停止される · 「見せ物にする必要はない」「自分はみない」 ヘグセス国防長官“公開処刑計画”に共和党 ...
+- [アフガニスタン 東部地震、死者800人超える 生存者は屋外で ...](https://www.bbc.com/japanese/articles/cev2vd8x9ydo) — 2025/09/02 ... 地震発生の前から アフガニスタン は、深刻な干ばつに見舞われている。さらに、2021年にイスラム主義勢力タリバンが政権を掌握したことを受けて国際的援助が ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — BBCのFMラジオ放送、アフガニスタンで停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米 ...
+- [タリバン打倒は「不可能」 対抗勢力指導者、民主化交渉訴え](https://www.47news.jp/14823673.html) — 2026/08/21 ... 【ドゥシャンベ共同】 アフガニスタン のイスラム主義組織タリバン暫定政権に対抗する 主要 勢力「国民抵抗戦線（NRF）」の指導者アフマド・マスード ...
+
