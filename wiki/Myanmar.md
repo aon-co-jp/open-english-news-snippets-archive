@@ -451,3 +451,9 @@ Tags: `China (Japanese)` `2026-10`
 - [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 中国と北朝鮮を結ぶ橋が開通 現地で式典 本体工事完了は12年前 · 日本の名目GDP 来年 世界6位に インドとイギリスに抜かれ IMF · 中国軍の空母が太平洋に向けて航行 戦闘機の ...
 - [NHK ニュース 速報・最新情報](https://news.web.nhk/newsweb) — 新着 ニュース · 【プロ野球結果】CSファイナルステージ ソフトバンクが連勝. 10月15日 23:21 · 中国 と北朝鮮を結ぶ橋が開通 現地で式典 本体工事完了は12年前. 10月15日 22: ...
 
+### Myanmar(検索日時 / searched at: 2026-10-16)
+
+Tags: `Myanmar` `2026-10`
+
+- (no items / 記事なし)
+

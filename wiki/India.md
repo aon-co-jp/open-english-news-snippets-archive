@@ -246,3 +246,146 @@ Tags: `India` `2026-10`
 
 - (no items / 記事なし)
 
+### India(検索日時 / searched at: 2026-10-16)
+
+Tags: `India` `2026-10`
+
+- [How to make two column in a batch file?](https://stackoverflow.com/questions/13654471) — (5) = Times Now +5 echo (6) = Saharah AP +6 echo (7) = News X +7 echo (8) = Punjabi +8 echo (9) = Al Jazeera Sport + &hellip; 9 echo (10) = Al Jazeera Sport +10 pause echo (11) = Aaj Tak +11 echo (12) = Headlines Today +12 echo (13) = UTV Bindaas +13 echo &hellip;
+- [String regular expression java](https://stackoverflow.com/questions/27226847) — for example string is : Input: It provides @p1 latest news, videos @p2 from India and @p3 the world. Get today's news headlines from @p5 Business, @p5 Replace all the parameters with @pn@. &hellip; The above string will become : Output: It provides @p1@ latest news, videos @p2@ from India and @p3@ the world. Get today's news headlines from @p4@ Business, @p5@ Any quick help appreciated. &hellip;
+- [Load CSV file in single variant column in snowflake table](https://stackoverflow.com/questions/72475744) — Get today’s news headlines from Business", "col_003": " ", "col_004": "Technology", "col_005": " Sports", "col_006": " Movies", "col_007": " videos", "col_008": " photos", "col_009": " live news coverage &hellip; and exclusive breaking news from India.} &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — ", "name": "The Times of India" }, "author": null, "title": "Hardik Pandya introduces his new 'Bentley' on 25th birthday", "description": &hellip; "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social media platform, Twitter", "url": "https: &hellip;
+- [News24 (Indian TV channel)](https://en.wikipedia.org/wiki/News24_(Indian_TV_channel)) — News24 is a 24-hour Hindi news television channel owned by B.A.G. Films and Media Limited. It has been launched in 2007 and it is free-to-air channel in India.
+- [India Today (TV channel)](https://en.wikipedia.org/wiki/India_Today_(TV_channel)) — India Today is a 24-hour English language television news channel based in Noida, Uttar Pradesh that carries news, current affairs and business programming in India. The channel is owned by TV Today Network Ltd, which is a part of Living Media.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [Rithvik Jothi Raj](https://en.wikipedia.org/wiki/Rithvik_Jothi_Raj) — Rithvik Jothi Raj born on (1 January 2013) is an Indian YouTuber and actor who works predominantly in Tamil films.
+
+### Germany (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Germany (Japanese)` `2026-10`
+
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「ドイツ」ニュース一覧 · ドイツ市場開拓へ デパートで日本産のコメを試験販売 · ドイツ 13歳未満の子ども SNS利用を原則禁止へ · 日本の名目GDP 来年 世界6位に インドと ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ノルド・ストリーム爆破、ウクライナ人被告の裁判がドイツで始まる · ロボットが少女にわいせつ行為……少年らが操作した疑い、ロボットは押収 ドイツ · ドイツ元情報機関 ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 10/15: ロボットが16歳少女に痴漢行為？ ドイツ 警察が捜査; 10/09: 義手装着した数世紀前の人骨、考古学者らが発見 23年 ドイツ 南部; 10/05: ノーベル生理学・ ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — 秋季合同経済予測、春季予測から上方修正、今後は公共支出の拡大や内需の回復が支えに( ドイツ ). 2026年10月14日. BMW、ハンガリー工場で「ノイエ・クラッセ」第2弾の ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — EUのEV優遇制度案、日本車を除外 独仏が合意 · エンジン回帰の独ポルシェ、米国で次世代スポーツ車コンセプト初公開 · 伊ウニクレディトの独銀買収、ECBが承認 年内にも支配 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月7日 時事） ドイツ 検察は6日、対外諜報（ちょうほう）を担う連邦情報局のハニング元長官をスパイなどの容疑で逮捕したと発表した。元部下の幹部を通じて大量 ...
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Brazil (Japanese)` `2026-10`
+
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル「貧困層の大統領」に逆風 育てた中間層が離反 · ブラジル大統領選挙25日決選投票 右派勝利なら親米・市場重視に転換か · ブラジル大統領選討論会、直前で中止 ...
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ... 代表引退試合の熱狂＝国を挙げた「儀式」と無限の感謝. 10/8(木) 6:58. 《 ブラジル 大統領選》トランプのドンロー主義「完成」へ＝フラヴィオが南米右傾化の分水嶺＝南米 ...
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ブラジル 在住の日本人コミュニティに向けた最新 ニュース を提供する日系メディアです。政治、経済、文化、社会、スポーツなど幅広い話題をカバーし、現地の情報をわかり ...
+- [【 ブラジルニュース 速報集】 ブラジル 日報 - X](https://x.com/BRASILNIPPOU) — 【 ブラジルニュース 速報集】 ブラジル 日報 · @BRASILNIPPOU · 11h. 25日に迫る ブラジル 大統領選の決選投票を前に、第1回投票で敗れた 主要 候補が相次いで右派のフラヴィオ ...
+- [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil. ブラジル大統領選、ルラ氏とフラビオ・ボルソナロ氏が接戦 トランプ氏も注視 · ブラジル警察、女装して逃走していた連続殺人の容疑者を逮捕 本人は「80人以上 ...
+- [ブラジル - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/cs_america/br/) — ブラジル · 2026年10月9日. 中通客車、 ブラジル で電気バス6車種を投入へ、現地生産も計画(中国、 ブラジル ) · 2026年10月8日. ブラジル 連邦議会選で右派政党が躍進( ブラジル ).
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — ブラジル大統領選挙 10月25日に決選投票へ . 10月5日 20:35 ; ブラジル大統領選挙投票締め切り 開票始まる. 10月5日 6:06 ; ブラジル大統領選挙 投票始まる. 10月4日 22:02.
+- [「 ブラジル 」の ニュース - (page 22) - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/22/) — 2019. 02/22: ベネズエラ、 ブラジル との国境を閉鎖 次はコロンビア国境も; 02/09: サッカー「フラメンゴ」ユースチーム施設で火災、10人死亡 ブラジル ...
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Meitei people in Assam](https://en.wikipedia.org/wiki/Meitei_people_in_Assam) — The Meitei people, also called Manipuri people, is one of the minority ethnic groups in Assam. They are referred to as Mekhlee, Mekhelee, Meckley, Monipuri, Monipuriya, Magalu, Mogolu, Moglie, Moglai, among many other names dedicated to them by the other people of Assam.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### South Korea (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [Stray Kids](https://en.wikipedia.org/wiki/Stray_Kids) — Stray Kids (often abbreviated to SKZ; Korean: 스트레이 키즈; RR: Seuteurei Kijeu) is a South Korean boy band formed by JYP Entertainment in 2017. The band has eight members: Bang Chan, Lee Know, Changbin, Hyunjin, Han, Felix, Seungmin, and I.N. Former member Woojin left the band in 2019.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Jennie (singer)](https://en.wikipedia.org/wiki/Jennie_(singer)) — Jennie Kim (Korean: 김제니; born January 16, 1996) is a South Korean singer, rapper, songwriter, and actress. Born in South Korea, she moved to New Zealand in 2004 and returned to South Korea to successfully audition for YG Entertainment in 2010.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイスの主要メディアが報じた日本 関連ニュース を週1回、まとめてお届けする無料ニュースレターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 池に飛び込むクジラ 米巨大テックが「ドル外」起債、各国と資金争奪 · 創薬新興がロシュと提携 治験用の薬剤を無償で確保、開発コスト削減 · スイス 銀行規制案、UBSと政府の ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 最新 ニュース · 輪郭ほどいた、画家の革新 テート美術館 ターナー展 · 熱狂・閑散、同じ建物に異空間 鈴木結生 · 石油会社の排出で「熱波被害」540兆円？ · FIFA会長「過ち ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — スイスの氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイスで観光客を乗せたバスが横転 5人死亡 · W杯 決勝トーナメント【全結果 ...
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — 保育園児を刃物で襲撃、中国人留学生の男に拘禁15年 スイス · ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ ...
+- [チューリヒ空港の燃料逼迫、 スイス が義務備蓄放出へ 供給 ...](https://www.reuters.com/jp/world/2DMBXI74TRP4PF7KYYRDZTMTTQ-2026-10-16/) — 16時間前 - スイス 政府は15日、チューリヒ空港で航​空燃料の供給不足が迫って‌いることを受け、義務備蓄の放出を承認したと発表した。
+
+### Tajikistan (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Tajikistan (English)` `2026-10`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS) –inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people, including 11 men, 3 women, and a 10-year-old girl.
+- [Jihadi John](https://en.wikipedia.org/wiki/Jihadi_John) — Mohammed Emwazi (born Muhammad Jassim Abdulkarim Olayan al-Dhafiri; Arabic: محمد جاسم عبد الكريم عليان الظفيري), commonly referred to as Jihadi John (17 August 1988 – 12 November 2015), was a British militant of Kuwaiti origin seen in several videos produced by the Islamist extremist group Islamic State (IS) showing the beheadings of a number of captives in 2014 and 2015. A group of his hostages nicknamed him "John" since he was part of a four-person terrorist cell with English accents whom they called 'The Beatles'; the press later began calling him "Jihadi John".
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer serving since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [List of designated terrorist groups](https://en.wikipedia.org/wiki/List_of_designated_terrorist_groups) — Several national governments and two international bodies have created lists of organizations that they designate as terrorist. The following list of designated terrorist groups is composed of groups on whom a "terrorist" designation had been officially issued, whether by current or former national governments, or inter-governmental organizations.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+- [List of wars involving Iran](https://en.wikipedia.org/wiki/List_of_wars_involving_Iran) — This is a list of wars involving the Islamic Republic of Iran, excluding its predecessor states. It is an unfinished historical conspectus.
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Egypt (Japanese)` `2026-10`
+
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代 エジプト 人、王の死に際し召使いを生け贄に 法医学的調査で判明 ...
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — エジプト. 最新ニュース. サウジ石油会社は「戦略的標的」 フーシ幹部単独会見で攻撃継続表明 · 朝日新聞のオンライン取材に応じるフーシ幹部のナスル・アメル氏.
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — ネタニヤフ氏、トランプ氏の「はしご外し」警戒 岩盤頼み政治延命模索 · 蛇の頭を切り落とせ サウジ皇太子、イラン攻撃助言の誤算 · トルコ大統領、強権批判を抑え込み ...
+- [エジプト の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/egypt) — エジプトのニュース・ 速報 . 200件中 1~20件表示. 10日、サウジアラビアの首都リヤドで、空港に向かう地下鉄の駅付近. サウジ空港攻撃で12人死亡 フーシ派か、300人超が ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+- [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — エジプト · 2026年9月14日. サウジアラビアの東西パイプライン、無人機攻撃受け操業停止(湾岸協力会議（GCC）、イラク、サウジアラビア、トルコ、 エジプト ) · 2026年9月14日.
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [「 エジプト 情勢」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88+%E6%83%85%E5%8B%A2) — 攻撃では、サウジアラビア人4人、バングラデシュ人2人のほか、アメリカ、 エジプト 、ヨルダン、シリア、パレスチナ、スーダン、インドの出身者それぞれ1人が死亡した。
+
+### Austria (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Austria (Japanese)` `2026-10`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「ドイツ」ニュース一覧 · ドイツ市場開拓へ デパートで日本産のコメを試験販売 · ドイツ 13歳未満の子ども SNS利用を原則禁止へ · 日本の名目GDP 来年 世界6位に インドと ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ノルド・ストリーム爆破、ウクライナ人被告の裁判がドイツで始まる · ロボットが少女にわいせつ行為……少年らが操作した疑い、ロボットは押収 ドイツ · ドイツ元情報機関 ...
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月7日 時事） ドイツ 検察は6日、対外諜報（ちょうほう）を担う連邦情報局のハニング元長官をスパイなどの容疑で逮捕したと発表した。元部下の幹部を通じて大量 ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 10/15: ロボットが16歳少女に痴漢行為？ ドイツ 警察が捜査; 10/09: 義手装着した数世紀前の人骨、考古学者らが発見 23年 ドイツ 南部; 10/05: ノーベル生理学・ ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — EUのEV優遇制度案、日本車を除外 独仏が合意 · エンジン回帰の独ポルシェ、米国で次世代スポーツ車コンセプト初公開 · 伊ウニクレディトの独銀買収、ECBが承認 年内にも支配 ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — 秋季合同経済予測、春季予測から上方修正、今後は公共支出の拡大や内需の回復が支えに( ドイツ ). 2026年10月14日. BMW、ハンガリー工場で「ノイエ・クラッセ」第2弾の ...
+
+### Brazil (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Brazil (English)` `2026-10`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable network. Owned by CNN Worldwide, the network primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Egypt (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Egypt (English)` `2026-10`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [Assassination of Anwar Sadat](https://en.wikipedia.org/wiki/Assassination_of_Anwar_Sadat) — On 6 October 1981, Anwar Sadat, the 3rd president of Egypt, was assassinated during the annual victory parade held in Cairo to celebrate the victory over Israel in the Yom Kippur War. The assassination was undertaken by members of the Egyptian Islamic Jihad.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+

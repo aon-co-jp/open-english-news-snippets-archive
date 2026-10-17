@@ -265,3 +265,29 @@ Tags: `Italy` `2026-10`
 
 - (no items / 記事なし)
 
+### Italy(検索日時 / searched at: 2026-10-16)
+
+Tags: `Italy` `2026-10`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Episodi di Squadra antimafia - Palermo oggi (ottava stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(ottava_stagione)) — L'ottava ed ultima stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa con il titolo Squadra antimafia - Il ritorno del boss in prima visione in Italia da Canale 5 dall'8 settembre 2016.
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Episodi di Squadra antimafia - Palermo oggi (sesta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(sesta_stagione)) — La sesta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dall'8 settembre al 10 novembre 2014..
+- [Episodi di Squadra antimafia - Palermo oggi (settima stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(settima_stagione)) — La settima stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 9 settembre all'11 novembre 2015.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 朝日新聞の、 タジキスタン に関する ニュース や速報記事一覧です。 タジキスタン に関する現状や背景を、わかりやすくお伝えします。
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース · 日本郵便に不正アクセス、「調査請求ウェブ受付サービス」のアドレスから52万件の迷惑メール送信 · スパイ容疑で拘束の道新記者との面会求め、日本大使館 ...
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — 「屈辱的記録を次々更新」中国代表、 タジキスタン に史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も痛ましい」 · タジキスタン で露主導のバックギャモン国際 ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [李強総理が17日から中央アジア2カ国を訪問しSCO会議に出席](https://news.livedoor.com/topics/detail/32580051/) — 14時間前 - 中国外交部の毛寧報道官は10月15日、李強総理はウズベキスタン共和国のアリポフ首相の招きに応じて10月17日から18日までウズベキスタンを公式訪問 ...
+- [李強総理がウズベキスタンと タジキスタン 訪問、SCO政府首脳 ...](http://j.people.com.cn/n3/2026/1016/c94474-20509362.html) — 10時間前 - 外交部（外務省）報道官は15日、李強総理がウズベキスタンのアリポフ首相の招きに応じ、10月17日から18日まで同国を公式訪問すると発表した。
+

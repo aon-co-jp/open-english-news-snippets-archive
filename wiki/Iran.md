@@ -541,3 +541,55 @@ Tags: `Germany (Japanese)` `2026-10`
 - [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany · シュレーダー元独首相、プーチン氏の誕生会に出席 メルツ氏激怒「全く不道徳」 · メルツ首相がウクライナ支援で「結束」呼びかけ、親ロ極右AfDの台頭に懸念 · 独州 ...
 - [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ 労働相が辞任、社会民主党の共同党首も退任 メルツ政権に打撃 · ヨーロッパ · 10月12日. 【パリ=杜師康佑】 ドイツ のベアベル・バース労働・社会相は12日、辞任すると ...
 
+### Iran(検索日時 / searched at: 2026-10-16)
+
+Tags: `Iran` `2026-10`
+
+- [واکنش‌ها به جنگ دوازده‌روزه](https://fa.wikipedia.org/wiki/%D9%88%D8%A7%DA%A9%D9%86%D8%B4%E2%80%8C%D9%87%D8%A7_%D8%A8%D9%87_%D8%AC%D9%86%DA%AF_%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%E2%80%8C%D8%B1%D9%88%D8%B2%D9%87) — پس از آغاز جنگ دوازده‌روزه، واکنش‌ها به حملات اولیه و ضدحملات ادامه‌دار بین دولت‌ها و نهادهای غیردولتی بین‌الملل متنوع بود. دولت ایران، مردم داخل کشور و ایرانیان خارج از کشور به این رویداد واکنش نشان دادند.
+- [تحریف در صدا و سیمای جمهوری اسلامی ایران](https://fa.wikipedia.org/wiki/%D8%AA%D8%AD%D8%B1%DB%8C%D9%81_%D8%AF%D8%B1_%D8%B5%D8%AF%D8%A7_%D9%88_%D8%B3%DB%8C%D9%85%D8%A7%DB%8C_%D8%AC%D9%85%D9%87%D9%88%D8%B1%DB%8C_%D8%A7%D8%B3%D9%84%D8%A7%D9%85%DB%8C_%D8%A7%DB%8C%D8%B1%D8%A7%D9%86) — تحریف در صدا و سیمای جمهوری اسلامی ایران بیش از چهار دهه سابقه دارد. به عقیدهٔ برخی از تحلیل‌گران، سازمان صدا و سیمای جمهوری اسلامی ایران به صورت سیستماتیک دروغ می‌گوید و اخبار و گزارش‌های جعلی، تحریف شده و نامعتبر را منتشر می‌کند.
+- [کلینیک رویا (مجموعه تلویزیونی)](https://fa.wikipedia.org/wiki/%DA%A9%D9%84%DB%8C%D9%86%DB%8C%DA%A9_%D8%B1%D9%88%DB%8C%D8%A7_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D8%AA%D9%84%D9%88%DB%8C%D8%B2%DB%8C%D9%88%D9%86%DB%8C)) — کلینیک رویا یک مجموعه تلویزیونی ایرانی به کارگردانی سجاد مهرگان و تهیه‌کنندگی علی‌اکبر تحویلیان است که از ۳ اردیبهشت ۱۴۰۵ از شبکه سه پخش شد.
+- [کارآگاه علوی ۳](https://fa.wikipedia.org/wiki/%DA%A9%D8%A7%D8%B1%D8%A2%DA%AF%D8%A7%D9%87_%D8%B9%D9%84%D9%88%DB%8C_%DB%B3) — کاراگاه علوی ۳ یک مجموعه تلویزیونی ایرانی به کارگردانی سیدجمال سیدحاتمی، نویسندگی حسن هدایت و تهیه‌کنندگی پرویز امیری محصول سال‌های ۱۴۰۴–۱۴۰۵ است، این مجموعه دنباله‌ای بر مجموعه‌های کارآگاه (۱۳۷۵) و کارگاه علوی ۲ (۱۳۸۷) است.
+- [بازنده (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B2%D9%86%D8%AF%D9%87_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — بازنده یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به کارگردانی و نویسندگی امین حسین‌پور و به تهیه‌کنندگی احسان ظلی‌پور است. این مجموعه اقتباسی از رمان زوج همسایه اثری از شاری لاپنا است.
+- [بدنام (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%A8%D8%AF%D9%86%D8%A7%D9%85_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — بدنام یک مجموعه تلویزیونی ایرانی در ژانر درام و عاشقانه به طراحی حامد عنقا و کارگردانی احسان سجادی حسینی است که از ۱ اردیبهشت ۱۴۰۵ تا ۱۷ مهر ۱۴۰۵ از شبکه نمایش خانگیِ فیلیمو پخش شد.
+- [دیار مادری](https://fa.wikipedia.org/wiki/%D8%AF%DB%8C%D8%A7%D8%B1_%D9%85%D8%A7%D8%AF%D8%B1%DB%8C) — دیار مادری یک مجموعهٔ تلویزیونی ایرانی به کارگردانی حسین تبریزی، تهیه‌کنندگی اکبر تحویلیان و نویسندگی علی حسینی است که از ۱۴ شهریور ۱۴۰۵ از شبکه سه پخش شد.
+- [نجلا (مجموعه تلویزیونی)](https://fa.wikipedia.org/wiki/%D9%86%D8%AC%D9%84%D8%A7_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D8%AA%D9%84%D9%88%DB%8C%D8%B2%DB%8C%D9%88%D9%86%DB%8C)) — نجلا، یک مجموعهٔ تلویزیونی ایرانی به کارگردانی خیرالله تقیانی پور، تهیه‌کنندگی سعید سعدی و نویسندگی سید حسین امیرجهانی و مهدی حمزه در تبریز، صوفیان، شادگان و تهران، ساخته شده‌ است. نخستین قسمت از این مجموعه در ۱۷ مهر ۱۳۹۹ روی آنتن شبکهٔ سه سیما رفت.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 台中市政府 台湾 最大の屋内球場建設巡り、保険会社と「BOT」契約 · 沖縄県、 台湾 で食材や工芸品の魅力をPR シェフとの連携で文化や作り手の思い届ける · TSMC/TSMC、売上高と ...
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — 沖縄県、 台湾 で食材や工芸品の魅力をPR シェフとの連携で文化や作り手の思い届ける. 10/16(金) 18:51. 台中市政府 台湾 最大の屋内球場建設巡り、保険会社と「BOT」契約.
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 台湾TSMC過去最高益「需要減速の兆候なし」 · 自民 古屋前選対委員長 台湾訪問 頼総統と会談 · 台湾総統「中国が現状変更」 防衛力強化強調し連携呼びかけ · 台湾企業 北海道 ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · ポーランド訪問中の外交部の林佳龍部長、「TEEMAテクノロジーパーク」建設予定地を視察 · 台湾 人芸術家2名、東京の国際芸術展「TOKYO ATLAS」関連企画「座標」に ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「台湾 山の上の町、地の塩、世の光」と題する演説 · 愛知・名古屋2026アジアパラ競技大会、台湾代表選手団結団 ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や台湾の最新ニュース・特集 をまとめました。中国の習近平国家主席の動向や中国経済、台湾を巡る情勢、TSMCや鴻海のニュースなどをお伝えします。
+- [台湾ニュース ＠中央社フォーカス 台湾 (@focustaiwanjapa) / X](https://x.com/focustaiwanjapa) — 台湾ニュース を政治、社会からスポーツ、エンタメまで、日本語で毎日発信しています。 公式アプリ配信中。iOS、Androidに対応しています。「フォーカス 台湾 ... 台湾 ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 昆虫標本2万5千点超 日本人男性、 台湾 の博物館に寄贈 絶滅したとみられるキアゲハも · TSMC/TSMC、売上高と純利益が過去最高 第3四半期 年間売上高は44％増見込む／ ...
+
+### Italy (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Italy (English)` `2026-10`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Thailand (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Thailand (English)` `2026-10`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Bhumibol Adulyadej](https://en.wikipedia.org/wiki/Bhumibol_Adulyadej) — Bhumibol Adulyadej (5 December 1927 – 13 October 2016), titled Rama IX, was King of Thailand from 9 June 1946 until his death in 2016. His reign of 70 years and 126 days is the longest of any Thai monarch, the longest on record of any independent Asian sovereign, and the third-longest of any sovereign state with a verified date.
+- [Crime in Thailand](https://en.wikipedia.org/wiki/Crime_in_Thailand) — Crime in Thailand has been a defining issue in the country for decades, inspiring years of policy and international criticism. Drug use and corruption make up the majority of the crime in Thailand and due to this, many Thai administrations attempted to curtail the drug trade, most notably Thaksin Shinawatra with the 2003 War on Drugs.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+

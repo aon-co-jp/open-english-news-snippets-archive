@@ -181,3 +181,29 @@ Tags: `Taiwan (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Israel(検索日時 / searched at: 2026-10-16)
+
+Tags: `Israel` `2026-10`
+
+- [Gaza war](https://en.wikipedia.org/wiki/Gaza_war) — The Gaza war is an armed conflict in the Gaza Strip and Israel, fought as part of the unresolved Israeli–Palestinian and Gaza–Israel conflicts. The war began on 7 October 2023, when Palestinian militant group Hamas led an attack on Israel, in which 1,195 Israelis and foreign nationals were killed and 251 were taken hostage.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Israeli occupation of the Gaza Strip](https://en.wikipedia.org/wiki/Israeli_occupation_of_the_Gaza_Strip) — In 1956, the Gaza Strip was captured by Israel from Egypt for a period of four months during the Suez Crisis. Israel returned it back to Egypt in March 1957, due to heavy international pressure.
+- [Casualties of the Gaza war](https://en.wikipedia.org/wiki/Casualties_of_the_Gaza_war) — As of 27 September 2026, at least 77,271 people (75,225+ Palestinians and 2,046+ Israelis) have been reported killed in the Gaza war (in all of Israel-Palestine) according to the Gaza Health Ministry (GHM) and Israeli Ministry of Foreign Affairs, including 270 journalists and media workers, 120 academics, and over 560 humanitarian aid workers, a number that includes 393 employees of UNRWA. A study by OHCHR found that 70% of the Palestinians killed in residential buildings or similar housing were women and children. A February 2025 analysis of deaths in Gaza between October 2023 and 30 June 2024 concluded that trauma-related deaths were undercounted by the GHM by 41% during this period.
+- [Israeli government response to the October 7 attacks](https://en.wikipedia.org/wiki/Israeli_government_response_to_the_October_7_attacks) — The Israeli government's response to the October 7 attacks has multiple aspects, including a military response leading to the Israeli invasion of the Gaza Strip. In October, the Knesset approved a war cabinet in Israel, adding National Unity ministers and altering the government; Benjamin Netanyahu and Benny Gantz froze non-war legislation, establishing a war cabinet with military authority.
+- [Eylon Levy](https://en.wikipedia.org/wiki/Eylon_Levy) — Eylon Aslan-Levy, (Hebrew: אילון אסלן-לוי) is a British-Israeli figure who served as the Israeli government spokesman from the start of Gaza war until March 2024, when he was suspended due to complaints from the UK government about his public criticism of their stance toward Israel and the war. Levy continues his public advocacy work, with a podcast partly-sponsored by the Ministry of Diaspora Affairs and Combating Antisemitism.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Mahmoud Ahmadinejad and Israel](https://en.wikipedia.org/wiki/Mahmoud_Ahmadinejad_and_Israel) — Mahmoud Ahmadinejad was the president of Iran from 3 August 2005 to 3 August 2013, and during that time had repeatedly made contentious speeches and statements against Israel. Ahmadinejad refused to call Israel by name, instead calling it the "Zionist regime".
+
+### Russia (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Russia (Japanese)` `2026-10`
+
+- [「 ロシア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — 「ロシア」ニュース一覧 · 緊急地震速報の過大推定 「過去の対策が機能せず」気象庁 · ロシアで収容された経験 米有力紙記者が振り返る 現地の状況 · ロシアで記者拘束 北海道 ...
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — 12時間前. ロシア無人機、ウクライナ各地攻撃 3人死 亡 · 8時間前. ロシア、欧州企業資産を管理下に ゼレンスキー氏のEU首脳会議出席控え · 4時間前. 独財務相、ロシアの ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 10/16: ウクライナのパトリオット用迎撃ミサイルが枯渇、一段と無防備に トランプ氏との EXCLUSIVE ウクライナのパトリオット用迎撃ミサイルが枯渇、一段と ...
+- [ロシア の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/russia/) — ロシア · 「シャヘド型ドローン」が現代の戦争を変えている … · プーチンが直面する「食品インフレ」が戦争継続の要所になる · ウクライナのドローンがロシアの兵器庫に侵入…
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ロシア · ルーマニア沖の黒海でタンカーにドローン攻撃、乗組員7人が行方不明 · ロシア、ウクライナが石油精製所を攻撃と非難 ゼレンスキー氏は「攻撃再開」と発言 · ビデオ, ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — EU、対ロシア制裁「解除せず」 米国の緩和方針に反対 · ゼレンスキー氏、トランプ氏に反旗 ロシアの製油所攻撃を再開 · ゼレンスキー氏「製油所の攻撃を再開」 スペースX通信 ...
+- [ヨーロッパ・ ロシアニュース 一覧 - テレ朝NEWS](https://news.tv-asahi.co.jp/news_international/20.html) — 衛星画像がとらえた8本の“レーン” ロシア 軍6週間でジェットドローン発射拠点建設か · 拘置所訪問の日本大使館職員 拘束の北海道新聞記者と面会できず ロシア 側が“拒否”.
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · ウクライナ軍の「ヴィヴァルディ作戦」、大型ドローンで地上無人車両を敵陣投下、 ロシア のエリート無人機部隊も撤退 · 「 ロシア 版グーグル」ヤンデックスのデータ ...
+

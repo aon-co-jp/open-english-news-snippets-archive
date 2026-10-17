@@ -247,3 +247,55 @@ Tags: `China (English)` `2026-10`
 
 - (no items / 記事なし)
 
+### Philippines(検索日時 / searched at: 2026-10-16)
+
+Tags: `Philippines` `2026-10`
+
+- [Balita - Philippine News](https://balita.mb.com.ph/) — China, dapat lumayas sa teritoryo ng ‘Pinas—De Lima · Hindi nakapagtimpi si Mamamayang Liberal (ML) Partylist Rep. Leila de Lima laban kay Chinese Ambassador to the Philippines Jing Quan at inihayag ng mambabatas na dapat aniyang umalis na lang sa teritoryo ng Pilipinas ang nabanggit.
+- [Daniel Razon](https://en.wikipedia.org/wiki/Daniel_Razon) — Daniel Soriano Razon (Tagalog: [ˈdɐnjɛl soɾˈjano ɾaˈson]; born October 11, 1967) is a Filipino television and radio host. He is currently the Overall Servant (minister; Tagalog: Lingkod Pangkalahatan) of the Members Church of God International, succeeding Eli Soriano after the latter's death on February 11, 2021.
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Nananatiling pangunahing alalahanin ng mga Pilipino ang implasyon o patuloy na pagtaas ng presyo ng mga bilihin at serbisyo , ayon sa pinakahuling survey ng Pulse Asia. ... Mariing ibinasura ni Defense Secretary Gilberto Teodoro Jr. ang paratang ...
+- [List of Philippine television shows](https://en.wikipedia.org/wiki/List_of_Philippine_television_shows) — Here is the list of Philippine television shows categorised into its respective genres.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Humina pa lalo ang halaga ng piso kontra dolyar ng Amerika sa ikatlong sunod na araw ng kalakalan sa merkado nitong Huwebes. Nagkakahalaga na ngayon ng P63 ang kada US$1 upang magtala ng panibagong record low.
+- [List of Philippine television programs by date](https://en.wikipedia.org/wiki/List_of_Philippine_television_programs_by_date) — The following is a partial list of Philippine television programs by date of first broadcast in the Philippines. The lists of television programs are in reverse chronological order by year; within each year, the list is chronological.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 1 day ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+- [Big News](https://en.wikipedia.org/wiki/Big_News) — Big News was a Philippine television news broadcasting show broadcast by ABC. Originally anchored by Duds Rivera and Bong Lapira, it aired from March 19, 1962 to September 22, 1972. The show returned on February 24, 1992.
+
+### Austria (English)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Austria (English)` `2026-10`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Santorini International Airport](https://en.wikipedia.org/wiki/Santorini_International_Airport) — Santorini International Airport (Greek: Διεθνής Αερολιμένας Σαντορίνης) (IATA: JTR, ICAO: LGSR) is an airport in Santorini, Greece, located north of the village of Kamari. The airport serves as both a military and a civil airport.
+
+### France (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — 仏スーパーの冷蔵庫にサイバー攻撃、設定温度が上昇 数億円相当の食品を廃棄か · フランスの中学で発砲、複数教師が負傷 14歳生徒を逮捕 · フランス政府、教員3000人の増員 ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/15: スーパーの冷凍・冷蔵設備にサイバー攻撃、大規模な被害を招いた「弱点」とは フランス ; 10/08: フランス に広がる大規模学生デモ、政府が強硬対応を転換 ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — French. マクロン仏大統領、高校生デモが政治勢力に「利用されている」と発言 首相は極左を名指し · 仏最高峰モンブラン、標高が2023年比で約1.9メートル高く ...
+- [フランス の ニュース ・最新記事 - 読売新聞](https://www.yomiuri.co.jp/keyword/99916/) — 主要ニュース · 新幹線「のぞみ」7月値上げ、東京―新大阪の指定席1万5420円に… · 欧州の記録的猛暑で仏「特産チーズ」消滅危機、乳牛向けの牧草育たず…影響はワインや ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — フランス抗議活動 無関係映像で“移民が暴動”偽情報拡散 · フランスの教育環境めぐるデモ ヨーロッパ各地に拡大 · フランスの高校生 教育環境悪化に抗議し再び大規模集会.
+- [ET TOI（エトワ）| フランス 情報メディア](https://www.parisettoi.fr/) — France today 今日のフランス · 極右RNが提案の外国人就労者課税、零細・中小企業の経営者らは反発 · 食品小売店の冷蔵・冷凍庫を遠隔操作のサイバー攻撃、数百店舗で被害か.
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランスのデモ、欧州各地に飛び火 アルバニアでは参加者が暴徒化 · フランス全土の大規模学生デモ、26万人超参加 教育環境の改善訴え · フランス財政に「不履行」の文字なし ...
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-10-16)
+
+Tags: `Myanmar (Japanese)` `2026-10`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — マレーシア首相“ミャンマーのASEAN本格復帰を支援” · タイとミャンマー国境付近で日本人2人を保護 詐欺拠点滞在か · 東ティモールで“特殊詐欺拠点”を摘発 日本人7人を拘束.
+- [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー製油所稼働再開 脱「ガソリン全輸入」、原油取引拡大へ · アジアの覚醒剤押収量10年で5倍 ミャンマーで生産増、日本にも密輸 · マレーシアがミャンマー人送還、親 ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー のクーデター ミャンマー 国軍が2021年2月1日、民主化指導者アウンサンスーチー氏率いる国民民主連盟（NLD）政権を打倒するために実行した。
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — ミャンマー 連邦 · 【 ミャンマー 】ヤンゴン郊外のタンリン製油所、第1期が稼働 · 「 ミャンマー で起きている詐欺事件にあなたが関与している」 20代女性に警視庁を名乗るニセ ...
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ニュース ヘッドライン · ヤンゴン郊外のタンリン製油所、第1期が稼働 · 採掘許可の申請停止続き、違法採掘が増加 · 政権トップ、最大都市の港湾・物流拠点など視察.
+- [今日 の ミャンマーニュース - 日本 ミャンマー 支援機構 (JMSA)](https://www.japan-myanmar.com/myanmar-news/) — 2023年3月30日更新. ミャンマー軍政トップ、 「影の政府」 と連合軍のEAO打倒を誓い抵抗勢力を支援 . ミャンマー軍のミンアウンフライン最高司令官は月曜日、ミャンマー ...
+
