@@ -282,3 +282,42 @@ Tags: `Taiwan` `2026-10`
 - [NOWnews今日新聞](https://www.nownews.com/) — #黃暐瀚 從民調看出2026選舉結局？#台南 謝龍介vs陳亭妃 最難測？#賴清德 已穩了？藍白加起來都難贏綠？《鄉民大學問EP.159》重點版｜NOWNEWS
 - [彭文正](https://zh.wikipedia.org/wiki/%E5%BD%AD%E6%96%87%E6%AD%A3) — 彭文正（1961年5月29日—），台灣新聞學者、媒體人、在逃通緝犯，生於新竹縣新埔鎮。曾任國立臺灣大學新聞研究所所長、教授、客家電視台執行長、台灣電視公司記者、陸軍《東湧日報》記者、中華民國法務部檢察官評鑒委員會委員兼發言人。
 
+### Taiwan(検索日時 / searched at: 2026-10-17)
+
+Tags: `Taiwan` `2026-10`
+
+- [Yahoo新聞](https://tw.news.yahoo.com/) — 民進黨台北市長參選人沈伯洋昨提出以「車架」、「樹木」等實體阻隔，提升台北市條通街區安全感、降低負面印象，引發討論。台北市長蔣萬安質疑方案是否認真考量現場狀況。競辦發言人楊沛緰指出，條通巷弄空間有限，還須兼顧通行與消防，批評文化污名不是靠物理阻隔就能解決，要求沈伯洋先了解地方需求。 ... [NOWNEWS今日新聞]台北市長蔣萬安拋出松山機場遷移政見，針對離島醫療後送問題，蔣萬安昨表示，除保留直升機運作外，若有緊急醫療需求，可透過公路或高鐵開闢綠色通道，相關言論引起外界討論。對此，民進黨...
+- [李晶玉](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%99%B6%E7%8E%89) — 李晶玉（1968年10月19日—），臺灣新聞主播及主持人，籍貫江西省，夫婿彭文正為通緝犯，夫妻二人曾主持過壹電視新聞台政論節目《正晶限時批》與民視新聞台政論節目《政經看民視》，現擔任網路政論節目《政經關不了》主持人、《今天遇見你》主持人。
+- [NOWnews今日新聞](https://www.nownews.com/) — 【財經】(上集) #杜金龍 揭台股關鍵時間點！外資大賣先留銀彈？台股一路紅到明年5月？#台積電 3000元沒問題？#聯發科 #台光電 別急賣！資金輪動三步驟曝光 短線盯#友達 #群創 #聯電
+- [李文儀](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E5%84%80) — 李文儀（1978年9月30日—），於台灣出生的台灣新聞主播、主持人、製作人，畢業於英國倫敦大學學院國際公共政策碩士。現為三立新聞台《台灣大頭條》當家主播、《消失的國界》主持人、三立iNEWS《台灣新思路》主持人。
+- [自由時報電子報](https://www.ltn.com.tw/) — 2 週前 - 自由電子報 APP 自由電子報粉絲團 自由電子報 Line 自由電子報 X 熱門新訊 · 宜蘭南澳11:13發生規模4.6地震 最大震度2級 · 川普突然喊停對俄羅斯部分制裁！能源買家100％關稅全豁免 · 拿威士忌、月餅賄選！屏東車城鄉代候選人收押禁見 · 批國民黨中央委員將國台辦用語抄進黨紀提案 她揭喊開除趙少康為這件事
+- [有线电视新闻网](https://zh.wikipedia.org/wiki/%E6%9C%89%E7%BA%BF%E7%94%B5%E8%A7%86%E6%96%B0%E9%97%BB%E7%BD%91) — 有線電視新聞網（英語：Cable News Network），英語縮寫及通稱「CNN」，是美國一個透過有線電視與衛星電視播出的新聞頻道，由泰德·透納於1980年創辦，最初由透納廣播公司經營，現隸屬天舞公司旗下。對全世界播出，CNN總部和主要播報室位於美國喬治亞州的亞特蘭大。
+- [熱門新聞- Yahoo奇摩新聞](https://tw.news.yahoo.com/most-popular/) — 政治中心／綜合報導隨著2026九合一大選進入倒數階段，台北市長選戰持續升溫，力拚連任的國民黨台北市長蔣萬安，與民進黨參選人沈伯洋之間的攻防也越來越激烈。對此，有「蘋果花歌后」之稱的資深歌手楊燕，近日接...
+- [三立iNEWS](https://zh.wikipedia.org/wiki/%E4%B8%89%E7%AB%8BiNEWS) — 三立iNEWS（英語：SET iNEWS Channel），為三立電視旗下財經頻道之一，於2011年5月3日開播，是三立電視第五個開播的頻道，姊妹台頻道為三立新聞台。原名三立財經台，2017年6月26日晚間六點更為現名至今。
+
+### Germany (Japanese)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Germany (Japanese)` `2026-10`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany. 独極右AfDと極左政党がウクライナ支援停止で協力、州議会で動議可決 · 人型ロボット使って16歳少女に性的暴行、SNSで生配信した疑い ドイツ警察が少年ら捜査 ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネス ニュース ・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... 主要 テーマに(EU、 ドイツ ). 2026年10月2日. ベルリンで「IFA 2026」開催、アジア ...
+- [「 ドイツ 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 · ドイツ 市場開拓へ デパートで日本産のコメを試験販売 · ドイツ 13歳未満の子ども SNS利用を原則禁止へ · 日本の名目GDP 来年 世界6位に インドと ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ · ノルド・ストリーム爆破、ウクライナ人被告の裁判が ドイツ で始まる · ロボットが少女にわいせつ行為……少年らが操作した疑い、ロボットは押収 ドイツ · ドイツ 元情報 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 10月16日 · EUのEV優遇制度案、日本製を除外 独仏が合意 · エンジン回帰の独ポルシェ、米国で次世代スポーツ車コンセプト初公開 · 伊ウニクレディトの独銀買収、ECBが承認 ...
+- [ドイツ の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/topic/germany/page4) — ドイツ の ニュース ・速報 · ドイツ が成長予測を上方修正 2026年は1.3％増に · ドイツ 大統領が訪中計画と報道 香港紙、数週間以内か · 【速報】英首相、次期戦闘機開発への独 ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 10/15: ロボットが16歳少女に痴漢行為？ ドイツ 警察が捜査; 10/09: 義手装着した数世紀前の人骨、考古学者らが発見 23年 ドイツ 南部; 10/05: ノーベル生理学・ ...
+
+### South Korea (English)(検索日時 / searched at: 2026-10-17)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+- [Stray Kids](https://en.wikipedia.org/wiki/Stray_Kids) — Stray Kids (often abbreviated to SKZ; Korean: 스트레이 키즈; RR: Seuteurei Kijeu) is a South Korean boy band formed by JYP Entertainment in 2017. The band has eight members: Bang Chan, Lee Know, Changbin, Hyunjin, Han, Felix, Seungmin, and I.N. Former member Woojin left the band in 2019.
+

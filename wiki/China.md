@@ -363,3 +363,42 @@ Tags: `China` `2026-10`
 - [新闻联播](https://zh.wikipedia.org/wiki/%E6%96%B0%E9%97%BB%E8%81%94%E6%92%AD) — 《新闻联播》，中央广播电视总台新闻节目，于1978年1月1日启播，是中华人民共和国收视率最高、影响力最大的电视新闻栏目，被称为“中国政坛的风向标”。目前，该节目于北京时间每晚19:00在CCTV-1（含港澳版）、CCTV-7、CCTV-13、环球资讯广播并机首播，并于每晚21:00在CCTV-13，22:30在CCTV-4重播。
 - [Google 新闻](https://news.google.com/home?hl=zh-CN&gl=CN&ceid=CN%3Azh-Hans) — 3天前 - 新浪新闻 · 展开 · 行进的旗帜丨于都河记得：一块门板“浮桥”到“长虹”的长征跨越|江西省|红军|刘锋|刘志明|渡口 · 2 小时前 · 人民日报 · 展开 · 弘扬伟大长征精神 走好新时代的长征路（深入学习贯彻习近平新时代中国特色社会主义思想） · 3 小时前 · 查看更多头条新闻和观点 ·
 
+### China(検索日時 / searched at: 2026-10-17)
+
+Tags: `China` `2026-10`
+
+- [今日头条](http://www.baidu.com/link?url=TtJgh6UQQ9PxJE_b7cWGK-fPwvuxGkWif1MM2TG4xxT5RlPuNshJH6UkZdeAJiod) — 
+- [头条新闻_今日中国](http://www.baidu.com/link?url=ZQYYkqDee9VCu_0GGFBP2fIez0mfyUenBmfJSiRn_h5akvdYY81xFm_6Hjs54UKD-tEzirlL5RErLhC3v5JLR_) — 
+- [头条新闻 _头条_ 中国 政府网](http://www.baidu.com/link?url=lNiwNyLLI3AD21YIUFaCw6SNR5D7BNboLRX02-Q0KfL5OkM-ljaSX66_hl7AQ0Uw) — 
+- [头条新闻 的微博_微博](http://www.baidu.com/link?url=op1U12mlzXewolUwJVhG15VaASHjURrhQyP3Xn9JZPnfmLbK6mUgYowbauN6tc2g) — 
+- [中国新闻 网_梳理天下新闻](http://www.baidu.com/link?url=jLtwYJVfmQn0NeMyZcnlwryRUrewfvD4wXbWGVo2tAq) — 
+- [中国新闻 网_时政](http://www.baidu.com/link?url=TtJgh6UQQ9PxJE_b7cWGK82-KnkN4LWFnST7R6_m2NwcdRPxCYk6DnyRCkG19HSNG0gpV6vurQB0GAwZBsmpUa) — 
+- [今日 国内 新闻 _最新国内新闻报道_最近国内热点新闻评论-手机闽南网](http://www.baidu.com/link?url=ZQYYkqDee9VCu_0GGFBP2fzDsy0pKeF9IcPEUPEiLU3zl69yD609oKT_kvxdKOwZ) — 
+- [中国新闻 _央视网(cctv.com)](http://www.baidu.com/link?url=VWaU4FhlOjVXgYPRazvHNH7VRd1LMWv6d6kuZ85nErqBXcRBRjBfB8zzKmQNoZDc8t0YBdWlgsRB510PdVPRB_) — 
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Nick Robinson (journalist)](https://en.wikipedia.org/wiki/Nick_Robinson_(journalist)) — Nicholas Anthony Robinson (born 5 October 1963) is a British journalist who has been a presenter on BBC Radio 4's Today programme since 2015. Before this, he spent ten years as political editor for BBC News and has had many other roles with the broadcaster.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance Corporation.
+- [Santorini International Airport](https://en.wikipedia.org/wiki/Santorini_International_Airport) — Santorini International Airport (Greek: Διεθνής Αερολιμένας Σαντορίνης) (IATA: JTR, ICAO: LGSR) is an airport in Santorini, Greece, located north of the village of Kamari. The airport serves as both a military and a civil airport.
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [イタリア の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/34887/) — 主要ニュース · 父親に固く抱き締められる男児、6年の生涯の「しあわせな瞬間」綴ったCM再放送へ · どの州で司法試験に合格したか問われ、米大統領報道官「中国に移住した ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ. Italy. イタリア 、学校でのブルカ禁止を閣議決定 1クラスの外国人上限を30％に ...
+- [イタリア の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/italia_news) — 2020/06/18 ... イタリア の 主要 メディアまとめ【 ニュース 編】 · 1．la Repubblica · 2．Corriere Della Sera · 3．Il Fatto Quotidiano · 4．La Stampa · 5．Tiscali.
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — コニカミノルタ、AIで衣料品再生 素材検査する要員10分の1 に · イタリアのメローニ首相、自身の声を知財申請 AIフェイク対策と報道 · プーチン氏、伊ウニクレディトのロシア ...
+- [「 イタリア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · ロシア警告の中 NATO核抑止の定例の演習始まる · トランプ大統領がコロンブス再評価 先住民に反発も · 日英伊の次期戦闘機 イタリアに新たな開発 ...
+- [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 10/14: 旅客機内にトコジラミ、カンタス便が欠航に 「所持品や衣類の上をはう虫が…」 10/12: 覆面集団が高級ワイン3万本窃盗、被害額8億円以上 イタリア で相次ぐ ...
+

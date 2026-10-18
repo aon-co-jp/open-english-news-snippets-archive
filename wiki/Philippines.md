@@ -299,3 +299,29 @@ Tags: `Myanmar (Japanese)` `2026-10`
 - [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ニュース ヘッドライン · ヤンゴン郊外のタンリン製油所、第1期が稼働 · 採掘許可の申請停止続き、違法採掘が増加 · 政権トップ、最大都市の港湾・物流拠点など視察.
 - [今日 の ミャンマーニュース - 日本 ミャンマー 支援機構 (JMSA)](https://www.japan-myanmar.com/myanmar-news/) — 2023年3月30日更新. ミャンマー軍政トップ、 「影の政府」 と連合軍のEAO打倒を誓い抵抗勢力を支援 . ミャンマー軍のミンアウンフライン最高司令官は月曜日、ミャンマー ...
 
+### Philippines(検索日時 / searched at: 2026-10-17)
+
+Tags: `Philippines` `2026-10`
+
+- [Pinakamuling Balita sa Pilipinas Ngayon (Tagalog News Headlines)](https://www.randall-travel-award.missouri.edu/latest-news-in-the-philippines-today-tagalog-1326637427.html) — June 24, 2026 - Balita sa buong bansa, kabilang ang mga pangunahing pangyayari sa politika, ekonomiya, at lipunan , ay patuloy na iniiwasan ng mga mamamayan ang pagsusuri sa mga detalye. Sa tuwing may nangyayari sa Pilipinas, mahalaga ang agwat na mabilis at tumpak sa pagsasalin sa wikang Filipino.
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 2 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Nananatiling pangunahing alalahanin ng mga Pilipino ang implasyon o patuloy na pagtaas ng presyo ng mga bilihin at serbisyo , ayon sa pinakahuling survey ng Pulse Asia. ... Mariing ibinasura ni Defense Secretary Gilberto Teodoro Jr. ang paratang ...
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Tinukoy ni Interior Secretary Jonvic Remulla ang politiko mula sa Mindanao na umano’y sangkot sa tangkang pagpupuslit ng shabu na nagkakahalaga ng P3.5 bilyon mula sa Laos na patungong Pilipinas. ... Naglabas ang National Bureau of Investigation (NBI) ng mga subpoena sa mga miyembro ng podcast na "Machong Chismisan" matapos ang kanilang mga pahayag tungkol kay Joshua "Josh" Aquino, anak ni Kris Aquino. ... Dalawang lalaki ang pinaghahahanap ngayon matapos nilang paghahampasin hanggang sa mamatay ang isang aso sa Barangay Buliwao sa Quezon, Nueva Vizcaya.
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — 6 days ago - Philippine Entertainment Tabloid for the latest showbiz news
+- [Balita - Philippine News](https://balita.mb.com.ph/) — 15:28 BALITA 'Napakayabang na bwisita!' Rep. Cendaña, idiniing dapat nang paalisin Jing Quan sa Pilipinas
+- [List of Philippine television shows](https://en.wikipedia.org/wiki/List_of_Philippine_television_shows) — Here is the list of Philippine television shows categorised into its respective genres.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Iran (Japanese)` `2026-10`
+
+- [「 イラン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10110) — イラン の核開発問題を背景に、2025年6月から約2週間、米国とイスラエルは イラン の核関連施設に対する軍事攻撃を実施した。さらに2月28日から首都テヘランなどに大規模な ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — イランは報復としてイスラエルや中東の米関連施設を攻撃 。殺害されたハメネイ師の後継に次男モジタバ・ハメネイ師（56）を選出した。 ... 原油価格の高騰など世界経済への ...
+- [イラン 大統領の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%83%A9%E3%83%B3%E5%A4%A7%E7%B5%B1%E9%A0%98.html) — 最新ニュース · イラン「我々こそテロ被害者」 米との交渉再開にも含み 大統領演説 · 国連で「我々はテロ被害者」 イラン大統領演説、米代表は退席 · 「我々はテロの被害者」 ...
+- [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — 「 イラン 情勢」 ニュース 一覧 ... 米軍の イラン 核施設への攻撃【国際法の根拠や影響は？】 2025年6月23日 21:35. イラン 大統領 主要 核施設を攻撃したアメリカに報復を示唆.
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン 情勢の ニュース ・速報. 200件中 1~20件表示. フーシ派が攻撃を主張したサウジアラビア・リヤドの空港から立ち上る煙（. サウジ、国際イベントに影響 フーシ派攻撃で ...
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 10/15: 米、 イラン に対して「すべての爆弾の母」の使用を EXCLUSIVE 米、 イラン に対して「すべての爆弾の母」の使用を検討 情報筋 CNN EXCLUSIVE · ホルムズ海峡 ...
+- [イラン - BBC ニュース](https://www.bbc.com/japanese/topics/c8y946g2nz3t) — イエメン大統領宮殿にフーシ派のミサイル攻撃、5人死亡とイエメン政府 · ビデオ, 「国家による脅威」やAI……英MI5長官が年次演説で警告したこと, 所要時間 1,04 · トランプ氏 ...
+- [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — 【日経】2026年2月28日、アメリカとイスラエルが イラン を攻撃、首都テヘランなどを空爆しました。翌3月1日、 イラン の国営メディアは最高指導者ハメネイ師が死亡したと ...
+

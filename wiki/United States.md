@@ -274,3 +274,81 @@ Tags: `United States` `2026-10`
 - [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
 - [U.S. News: Latest Breaking Stories and Video on National Issues | NBC News](https://www.nbcnews.com/us-news) — 3 hours ago - The transfer comes roughly two weeks after NBC News reported that Sean “Diddy” Combs had access to cellphones, liquor and other contraband at the Fort Dix federal prison.
 
+### United States(検索日時 / searched at: 2026-10-17)
+
+Tags: `United States` `2026-10`
+
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 9 hours ago - Our flagship newsletter breaks down the biggest headlines of the day.
+- [US News Today: Latest Headlines & Updates | Yahoo](https://www.yahoo.com/news/us/) — Today's top US news from Yahoo News — breaking national stories, crime and courts coverage from trusted sources, updated throughout the day.
+- [US News - The latest headlines from the US | Sky News](https://news.sky.com/us) — 2 days ago - It's a total solar eclipse today - here is where it will be visible · Grid operator issues plea for more power - as COBRA meeting on heatwave called · A wave of soon-to-be retirees are 'staring down the barrel' of homelessness - here's why | Money · Rod Stewart cancels gigs after heart surgery · Stop PC Harper's killers being released, 50 policing chiefs tell PM · Wednesday's newspaper front pages ·
+- [Associated Press News: Breaking News, Latest Headlines and Videos | AP News](https://apnews.com/) — Our flagship newsletter breaks down the biggest headlines of the day.
+- [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Fox News · Terms of Use · New Privacy Policy · Your Privacy Choices · Closed Caption Policy · Help · Contact Us · Accessibility Statement · News Sitemap · Video Sitemap · SHOW OF FORCE · 5 min read · LIVE UPDATES: Iran makes fresh demand, threatens to ‘expel’ US from region · Published: 1 hour ago
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Reuters Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 8 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-10-17)
+
+Tags: `South Korea (Japanese)` `2026-10`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国・仁川の商業施設で8人刺される、男拘束 1人重体 · 事件のあった韓国・仁川の商業施設 · 韓国、初の北極海航路商業航行で式典 「有事の選択肢」と李大統領 · 李在明 ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — HOT ISSUE · 北朝鮮、東海岸で戦略巡航ミサイル2種を試験発射…核攻撃能力を誇示 · 【社説】政府系研究機関も「CPTPPは生き残りの問題」… · 在韓米軍司令官「戦時作戦統制権の ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース ...
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — “婚外子”公表、結婚報道、演技賛否、そして社内理事辞任… 韓国 トップ俳優チョン・ウソンをめぐる激動の軌跡. サーチコリア ニュース ; 10月17日 16時0分.
+- [韓国 の ニュース ・速報 - 47NEWS](https://www.47news.jp/world/south-korea) — 中韓「非難」と「失望」 高市首相の靖国供物奉納 · 【速報】 韓国 、高市首相の靖国供物奉納に遺憾表明 · 元大統領の妻銃撃死映画で騒動 韓国 「歴史歪曲」と保守派反発 · 韓国 ・ ...
+- [韓国 エンタメ情報の最新 ニュース - Kstyle](https://kstyle.com/category.ksn?categoryCode=ET) — 韓国 芸能・ 韓国 ドラマ・ 韓国 映画・K-POPまで、Kstyleでは、あらゆる 韓国 エンタメ情報の最新 ニュース をいち早くお届けします。
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「 韓国 」 ニュース 一覧 · 片山財務相 日韓通貨スワップ延長で合意 · 韓国 与党「共に民主党」代表 日本との関係強化に意欲 · 旧統一教会が最上位機関新設 責任者にハン総裁の孫 ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — BTS スポティファイで年間100億回再生突破＝グループでは世界初 · 北朝鮮が「新鴨緑江大橋」開通を報道 「中国との経済的連携強化」 · 尹前大統領に一審と同じ懲役30年求刑 ...
+
+### Austria (English)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Austria (English)` `2026-10`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Santorini International Airport](https://en.wikipedia.org/wiki/Santorini_International_Airport) — Santorini International Airport (Greek: Διεθνής Αερολιμένας Σαντορίνης) (IATA: JTR, ICAO: LGSR) is an airport in Santorini, Greece, located north of the village of Kamari. The airport serves as both a military and a civil airport.
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Afghanistan (Japanese)` `2026-10`
+
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — アフガニスタン ; 2026/10/16 08:00. #スピーチを読み解く · Nobel laureate Malala Yousafzai speaks during the ; 2026/10/15 19:29. #イスラエル・中東情勢 · 星条旗＝ ...
+- [アフガニスタン の ニュース 放送に女性キャスター戻る - BBC](https://www.bbc.com/japanese/video-58252831) — 2021/08/18 ... アフガニスタン の 主要ニュース 放送局の画面に17日、女性のキャスターが復活した。15日に武装勢力タリバンが アフガニスタン を制圧した後、しばらく女性 ...
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース · 2026 · 2025 · Video · Photo · 注目 ニュース · 編集部セレクト · アクセスランキング.
+- [アフガニスタン 最新情報 タリバンが実権握る - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A2%E3%83%95%E3%82%AC%E3%83%8B%E3%82%B9%E3%82%BF%E3%83%B3.html) — アフガニスタン情勢. アメリカ軍がアフガニスタンから完全撤退 。イスラム主義勢力タリバンが実権を握ったアフガニスタンの最新情報をお伝えします。
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン 情勢 関連 ニュース · タリバン教育相ら2人の逮捕状公開 女性抑圧めぐり人道に対する罪 ICC(10月06日 18:18) · タリバン教育相らにも逮捕状 女性迫害、人道 ...
+- [アフガニスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/0bedd85b653193eb89cb1131c79b5e035495e267faff7829d380f75c4b2f6f66) — アフガニスタン 関連 ニュース · タリバンが子供の徴集強化＝国連、爆発物被害多発も指摘―アフガン · 【UFC】朝倉海参戦中のバンタム級に衝撃「マジかよ」 全勝ランカーが ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定政権、女性の足露出や化粧も禁止 抗議デモを武力鎮圧 ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — BBCのFMラジオ放送、アフガニスタンで停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米 ...
+
+### France (English)(検索日時 / searched at: 2026-10-17)
+
+Tags: `France (English)` `2026-10`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [France national football team](https://en.wikipedia.org/wiki/France_national_football_team) — The France national football team represents France in men's international football. It is overseen by the French Football Federation (FFF; Fédération française de football), the governing body for football in France.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-17)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース ; 17:30. 高市首相に辞表を提出後、取材に応じる簗農相（中央 ; 14:17 · ヤマト運輸 ; 18:18 · 地対空ミサイルシステム「パトリオット」＝ロイター ; 19:15. 餃子の ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — 中国代表は6日、国際親善試合で タジキスタン 代表と対戦し、0-1で敗れた。中国メディア『SOHU』は「屈辱的記録を次々更新」と報道。これまで タジキスタン には6戦4勝2分…
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 朝日新聞の、 タジキスタン に関する ニュース や速報記事一覧です。 タジキスタン に関する現状や背景を、わかりやすくお伝えします。
+- [李強総理がウズベキスタンと タジキスタン 訪問、SCO政府首脳 ...](http://j.people.com.cn/n3/2026/1016/c94474-20509362.html) — 1 日前 ... 外交部（外務省）報道官は15日、李強総理がウズベキスタンのアリポフ首相の招きに応じ、10月17日から18日まで同国を公式訪問すると発表した。
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [タジキスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/bd6a578efae506888f94e27a3de85aa5e0dbeb8d7d05dee42a6b893562912278) — 「屈辱的記録を次々更新」中国代表、 タジキスタン に史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も痛ましい」. フットボールチャンネル 10/7(水)5:10.
+- [タジキスタン 治安最新情報（2026年8月） - 海外安全.jp](https://kaigaianzen.jp/europe/tajikistan/) — タジキスタン に対しては、イギリス政府を除き、比較的高いレベルの注意喚起が設定されています。特にアフガニスタン国境付近、東部ゴルノバタフシャン自治区、キルギス ...
+
