@@ -325,3 +325,16 @@ Tags: `Iran (Japanese)` `2026-10`
 - [イラン - BBC ニュース](https://www.bbc.com/japanese/topics/c8y946g2nz3t) — イエメン大統領宮殿にフーシ派のミサイル攻撃、5人死亡とイエメン政府 · ビデオ, 「国家による脅威」やAI……英MI5長官が年次演説で警告したこと, 所要時間 1,04 · トランプ氏 ...
 - [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — 【日経】2026年2月28日、アメリカとイスラエルが イラン を攻撃、首都テヘランなどを空爆しました。翌3月1日、 イラン の国営メディアは最高指導者ハメネイ師が死亡したと ...
 
+### Philippines(検索日時 / searched at: 2026-10-18)
+
+Tags: `Philippines` `2026-10`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 2 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Nananatiling pangunahing alalahanin ng mga Pilipino ang implasyon o patuloy na pagtaas ng presyo ng mga bilihin at serbisyo , ayon sa pinakahuling survey ng Pulse Asia. ... Mariing ibinasura ni Defense Secretary Gilberto Teodoro Jr. ang paratang ...
+- [Balita Sa Tagalog Ngayong Araw | Balitambayan - GMA Network](https://www.gmanetwork.com/news/balitambayan/) — August 14, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita | Balitambayan - GMA Network](https://www.gmanetwork.com/news/balitambayan/balita/) — Tinukoy ni Interior Secretary Jonvic Remulla ang politiko mula sa Mindanao na umano’y sangkot sa tangkang pagpupuslit ng shabu na nagkakahalaga ng P3.5 bilyon mula sa Laos na patungong Pilipinas. ... Naglabas ang National Bureau of Investigation (NBI) ng mga subpoena sa mga miyembro ng podcast na "Machong Chismisan" matapos ang kanilang mga pahayag tungkol kay Joshua "Josh" Aquino, anak ni Kris Aquino. ... Dalawang lalaki ang pinaghahahanap ngayon matapos nilang paghahampasin hanggang sa mamatay ang isang aso sa Barangay Buliwao sa Quezon, Nueva Vizcaya.
+- [Breaking News & Headlines in the Philippines | ABS-CBN News](https://www.abs-cbn.com/news) — September 5, 2026 - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 3 days ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+- [Pilipino Star Ngayon | Balita ngayon - Philstar.com](https://www.philstar.com/pilipino-star-ngayon/) — Dec 25, 2021 · Online edition ng Pilipino Star Ngayon, ang dyaryong disente ng masang intelihente. Abangan ang pinakabagong …
+- [Balita - National](https://balita.mb.com.ph/national/) — 5 days ago · Nagbigay ng tips si Pangulong Ferdinand 'Bongbong' Marcos, Jr. sa publiko para paghandaan ang Super El Niño sa …
+

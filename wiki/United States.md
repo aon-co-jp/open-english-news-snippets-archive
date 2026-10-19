@@ -352,3 +352,16 @@ Tags: `Tajikistan (Japanese)` `2026-10`
 - [タジキスタン 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/bd6a578efae506888f94e27a3de85aa5e0dbeb8d7d05dee42a6b893562912278) — 「屈辱的記録を次々更新」中国代表、 タジキスタン に史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も痛ましい」. フットボールチャンネル 10/7(水)5:10.
 - [タジキスタン 治安最新情報（2026年8月） - 海外安全.jp](https://kaigaianzen.jp/europe/tajikistan/) — タジキスタン に対しては、イギリス政府を除き、比較的高いレベルの注意喚起が設定されています。特にアフガニスタン国境付近、東部ゴルノバタフシャン自治区、キルギス ...
 
+### United States(検索日時 / searched at: 2026-10-18)
+
+Tags: `United States` `2026-10`
+
+- [US | Yahoo News - Latest News & Headlines](https://www.yahoo.com/news/us/) — Today's top US news from Yahoo News — breaking national stories, crime and courts coverage from trusted sources, updated throughout the day.
+- [Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 1 day ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [Breaking News, Latest News and Videos | CNN](https://www.cnn.com/) — For Subscribers As a child she nearly lost her life to a rare condition. Today, at 26, she is defying the odds ... For Subscribers These people built utopic communes in the 1960s. Here’s what they look like now ... For Subscribers GOP Senate candidate who praised the Iran war now campaigns against the pain it caused ... Analysisby Ronald Brownstein ‘Voters are like, no thanks’: Trump’s tariffs fall flat with the working class ... Video After four weeks of student protests, teens injured at French protests raise questions over police weapons 1:43 ... Video Jane Seymour explains why ‘Wedding Crashers’ was the scariest thing she’s ever done 1:30 ... Video Hong Kong’s largest LGBTQ carnival got canceled.
+- [United States news today · News Atlas](https://www.news-atlas.com/en/country/united-states) — Top headlines from the press in United States, in English. Updated every 30 minutes.
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 6 hours ago - Our flagship newsletter breaks down the biggest headlines of the day.
+- [NBC News USA - Breaking News, Top Stories, Politics ...](https://nbcnewsusa.com/) — 17 hours ago · The latest headlines shaping the U.S. and the world today Follow the latest developments in politics, business, world …
+- [U.S. News: Latest news, breaking news, today's news ...](https://www.cbsnews.com/us/) — U.S. breaking news: Today's top stories updated by the CBS News team.
+- [U.S. News: Latest Breaking Stories and Video on National Issues](https://www.nbcnews.com/us-news) — Sep 14, 2023 · Get the latest news headlines and top stories from NBCNews.com. Find videos and news articles on the latest stories …
+

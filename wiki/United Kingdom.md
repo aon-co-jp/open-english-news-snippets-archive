@@ -331,3 +331,16 @@ Tags: `Germany (English)` `2026-10`
 - [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
 - [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
 
+### United Kingdom(検索日時 / searched at: 2026-10-18)
+
+Tags: `United Kingdom` `2026-10`
+
+- [United Kingdom News — Today's Headlines on the News Map](https://globalnewsmap.net/country/united-kingdom) — Today's top headlines from 2 local news outlets in United Kingdom, updated every 6 hours by the Global News Map.
+- [UK News - The latest headlines from the UK | Sky News](https://news.sky.com/uk) — Expert comment and analysis on the latest UK news, with headlines from England, Scotland, Northern Ireland and Wales.
+- [United Kingdom News: Latest & Breaking UK News ...](https://7news.com.au/news/united-kingdom) — 1 day ago · 7News brings you the latest news from the United Kingdom. Stay up to date with all of the breaking headlines from the …
+- [Latest UK news | The Guardian](https://www.theguardian.com/uk-news) — Latest news, breaking news and current affairs coverage from across the UK from theguardian.com
+- [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNRGR6YzJNU0FtVnVLQUFQAQ?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
+- [UK | Latest News & Updates | BBC News](https://www.bbc.co.uk/news/uk) — Get all the latest news, live updates and content about the UK from across the BBC.
+- [UK News | Top Stories from the UK | Reuters](https://www.reuters.com/world/uk/) — 3 days ago · Reuters.com is your online source for the latest UK news stories and current events, ensuring our readers up to date …
+- [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqJQgKIh9DQkFTRVFvSUwyMHZNRGR6YzJNU0JXVnVMVWRDS0FBUAE?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
+

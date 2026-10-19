@@ -304,3 +304,16 @@ Tags: `Italy` `2026-10`
 - [Storia d'Italia](https://it.wikipedia.org/wiki/Storia_d%27Italia) — La storia d'Italia è l'insieme degli eventi susseguitisi nel corso del tempo nell'area geografica italiana; la presenza in Italia di Roma, capitale del paese e già centro della civiltà romana e della Chiesa cattolica, ha reso la sua storia pilastro fondante della cultura occidentale, latina, europea e mediterranea. La sua eredità storico-culturale si riflette nell'elevato numero di patrimoni dell'umanità presenti nel paese.
 - [Episodi di Squadra antimafia - Palermo oggi (sesta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(sesta_stagione)) — La sesta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dall'8 settembre al 10 novembre 2014..
 
+### Italy(検索日時 / searched at: 2026-10-18)
+
+Tags: `Italy` `2026-10`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Notizie Oggi Italia](https://notizie-oggi-italia.it/) — 16 set 2026 · Ultime notizie dall’Italia e dal mondo, aggiornamenti in tempo reale su cronaca, politica, economia, sport e attualità.
+- [Ultime notizie dal mondo in tempo reale | Ansa](https://www.ansa.it/sito/notizie/topnews/index.shtml) — 17 ore fa · Su Ansa.it, la principale agenzia stampa italiana, potete trovare le principali notizie aggiornate in tempo reale da tutto il …
+- [Attualità: Ultime notizie dall'Italia e dal Mondo - OGGI](https://www.oggi.it/attualita/2/) — Tutte le notizie e gli approfondimenti sulle tematiche di attualità, sia dall'Italia che dal Mondo, curate in tempo reale dalla redazione di …
+- [Notizie dall'Italia: ultime notizie - StrettoWeb](https://www.strettoweb.com/notizie-italia/) — 17 ore fa · Leggi le ultime notizie dall'Italia su StrettoWeb: aggiornamenti in tempo reale su politica, cronaca, sport e tanto altro.
+- [Ultime notizie di Cronaca: news oggi in tempo reale - Tgcom24](https://www.tgcom24.mediaset.it/cronaca/) — Cronaca italiana in tempo reale: ultime notizie di cronaca nera, fatti del giorno e aggiornamenti dall'Italia. Leggi tutte le notizie di …
+- [RaiNews | Le ultime notizie gratuite aggiornate in tempo reale](https://www.rainews.it/) — RaiNews è il portale di notizie di Rai aggiornato 24 ore su 24. News, attualità, ultime notizie e aggiornamenti sempre gratuiti.
+- [Ultime notizie - Today](https://www.today.it/notizie/tutte/) — 17 ore fa · Ultime notizie in tempo reale. Aggiornamenti su news di cronaca, politica, sport, calcio, …
+

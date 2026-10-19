@@ -321,3 +321,16 @@ Tags: `South Korea (English)` `2026-10`
 - [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
 - [Stray Kids](https://en.wikipedia.org/wiki/Stray_Kids) — Stray Kids (often abbreviated to SKZ; Korean: 스트레이 키즈; RR: Seuteurei Kijeu) is a South Korean boy band formed by JYP Entertainment in 2017. The band has eight members: Bang Chan, Lee Know, Changbin, Hyunjin, Han, Felix, Seungmin, and I.N. Former member Woojin left the band in 2019.
 
+### Taiwan(検索日時 / searched at: 2026-10-18)
+
+Tags: `Taiwan` `2026-10`
+
+- [Yahoo新聞](https://tw.news.yahoo.com/) — [NOWNEWS今日新聞]民進黨高雄市長候選人賴瑞隆，今（18）日一連成立「內門、田寮阿蓮後援會」，以及旗津後援會。
+- [NOWnews今日新聞](https://www.nownews.com/) — 中職／台灣大賽首對第四棒父子檔！王威晨、王光輝相隔33年同日在總冠軍賽敲安｜NOWNEWS · 台灣大賽G1／大巨蛋滿場！內野變紅海 味全龍應援樂隊賽前表演 龍迷高唱摯愛味全龍｜NOWNEWS
+- [總覽新聞 - 即時 - 自由時報電子報](https://news.ltn.com.tw/) — 國民黨今天（17日）下午在彰化縣員林市圓林園舉辦公投暨聯合造勢大會，主打廢除「非核家園」、重啟核電政策，即將卸任的台中市長盧秀燕站台助講時，矛頭直指民進黨錯誤的能源政策，痛罵民...
+- [Google 新聞 - 台灣 - 最新](https://news.google.com/topics/CAAqJQgKIh9DQkFTRVFvSUwyMHZNRFptTXpJU0JYcG9MVlJYS0FBUAE?hl=zh-TW&ceid=TW%3Azh-Hant) — 「最快6小時內升強颱」專家：AI預估撲台vs北轉變73開. 選伯洋救萬安！ 卓榮泰：大家不會罵趙少康. 影/卓榮泰站台沈伯洋激喊：「 …
+- [Google 新聞 - 頭條新聞](https://news.google.com/topics/CAAqKggKIiRDQkFTRlFvSUwyMHZNRFZxYUdjU0JYcG9MVlJYR2dKVVZ5Z0FQAQ?hl=zh-TW&ceid=TW%3Azh-Hant) — 1縣市暴風侵襲率達50% 北北基數據也上升了. 法國暴動原因？ 55萬人示威失控闖市政廳縱火、洗劫商店...1200人被捕！ 極其猛烈暴力 …
+- [台灣TV新聞｜即時新聞、政治、財經、生活娛樂｜最新頭條報導](https://tvn.com.tw/) — 2 天前 · 台灣TV新聞提供全天候最新頭條、即時快訊、深度分析與影音新聞，掌握台灣與全球動態，訂閱我們獲取最真實的報導。
+- [今日頭條新聞網 | 今日新聞頭條，首屈一指的商業、科技、金融 ...](https://headnews.com.tw/) — 焦點 新聞 2026 MAMA大阪連辦兩天！ BIGBANG、CL重返舞台 IVE、華莎、ENHYPEN接力開唱 台南熱氣球派對10/17登場！ 光雕、 …
+- [即時快訊 - 台灣與全球突發新聞、重大事件快報，搶佔第一手 ...](https://www.tvn.com.tw/news) — 4 天前 · ,台灣TV新聞提供全天候最新頭條、即時快訊、深度分析與影音新聞，掌握台灣與全球動態，訂閱我們獲取最真實的報導。
+
