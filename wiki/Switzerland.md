@@ -317,3 +317,29 @@ Tags: `Switzerland` `2026-10`
 - [Schweiz – News und Hintergründe zum Inland | NZZ Nachrichten](https://www.nzz.ch/schweiz) — 23. Sept. 2026 · Aktuelle News zur Schweiz, Abstimmungen, Sessionen und Inlandspolitik – umfassend informiert mit der Neuen …
 - [Das Neueste – SRF](https://www.srf.ch/news/das-neueste) — Lesen Sie die aktuellsten News von heute sowie den letzten Tagen in chronologischer Reihenfolge bei SRF und dies rund um die Uhr.
 
+### Switzerland(検索日時 / searched at: 2026-10-19)
+
+Tags: `Switzerland` `2026-10`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Schweiz](https://de.wikipedia.org/wiki/Schweiz) — Die Schweiz (schweizerdeutsch Schwiz, französisch [sɥis(ə)], italienisch [ˈzvitːsera], rätoromanisch [ˈʒviːtsrɐ] oder [ˈʒviːtsʁɐ], lateinisch Helvetia), amtlich Schweizerische Eidgenossenschaft (schweizerdeutsch Schwizerischi Eidgnosseschaft, französisch Confédération suisse, italienisch Confederazione Svizzera, rätoromanisch , lateinisch Confoederatio Helvetica), ist ein föderalistischer, demokratischer Staat in Mitteleuropa. Er grenzt im Norden an Deutschland, im Osten an Österreich und Liechtenstein, im Süden an Italien und im Westen an Frankreich.
+- [Neue Zürcher Nachrichten](https://de.wikipedia.org/wiki/Neue_Z%C3%BCrcher_Nachrichten) — Die Neuen Zürcher Nachrichten (NZN) waren eine katholische Tageszeitung, die von 1904 bis 1991 in der Stadt Zürich erschien. Die Zeitung stand der 1896 in Zürich gegründeten Christlichsozialen Partei (heutige Christlichdemokratische Volkspartei, CVP) nahe und unterstützte den Aufbau und die Festigung der katholischen Verbände und der christlich-sozialen Parteiarbeit rund um Zürich.
+- [Freiburger Nachrichten](https://de.wikipedia.org/wiki/Freiburger_Nachrichten) — Die Freiburger Nachrichten sind eine regionale Schweizer Tageszeitung in Freiburg im Üechtland.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Schweizer Radio DRS](https://de.wikipedia.org/wiki/Schweizer_Radio_DRS) — Das Schweizer Radio DRS (Radio der deutschen und rätoromanischen Schweiz (SR DRS)) war zusammen mit dem Schweizer Fernsehen (SF) eines der beiden ehemaligen Schweizer Medienunternehmen, die am 1. Januar 2011 in der Unternehmung Schweizer Radio und Fernsehen (SRF) vereint wurden.
+- [Scoop (Journalismus)](https://de.wikipedia.org/wiki/Scoop_(Journalismus)) — Scoop (englisch to scoop, „ausschöpfen, abräumen“; in der Schweiz: Primeur) bezeichnet in der Sprache der Medienschaffenden eine Exklusivmeldung, also eine Nachricht, die ein Medium früher als andere Medien verbreitet. Scoops sind dementsprechend das Ergebnis eigener Recherchen oder resultieren aus den Tipps von Informanten.
+- [Basler Zeitung](https://de.wikipedia.org/wiki/Basler_Zeitung) — Die Basler Zeitung (kurz BaZ) ist eine Schweizer Tageszeitung mit Sitz in Basel. Sie ging im Januar 1977 aus der Fusion der linksliberalen National-Zeitung mit den bürgerlich-konservativen Basler Nachrichten hervor und wird von den Basler Zeitung Medien herausgegeben.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `South Korea (Japanese)` `2026-10`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 【リセットコリア】韓日関係、経済安保パートナーシップに発展させなくては ; 17％下落したKOSPI、今月の世界 主要 株式市場で騰落率最下位 2026.10.19 14:10 ; 「妊娠9カ月」 ...
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 旧統一教会総裁の保釈決定 「健康状態を考慮」＝ 韓国 高裁 · 金与正氏 韓国 向け拡声器放送「再開検討」＝境界線越境への 韓国 軍の対応に反発 · 李大統領 有事作戦統制権「必ず ...
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — カルビー、「じゃがりこ」を韓国で販売 海外展開加速へ · 日韓、将来はパスポートなしで往来？ 「経済共同体」構想は夢物語か · 北朝鮮のドローン戦力、ウクライナの実戦で ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — 韓国 ボーイズグループidntt、“24人組完全体”へ最終段階！ファン参加型投票で最後の4人を選抜へ. スポーツソウル日本版; 10月19日 18時41分.
+- [ハンギョレ新聞 : 日文版](https://japan.hani.co.kr/) — 【独自】米国、 韓国 に「北朝鮮の核情報を共有されたければクーパン問題も解決せよ」 米国の情報当局が、6カ月以上続く北朝鮮情報の共有制限の問題を解消するには、クーパン ...
+- [韓国 の ニュース ・速報 - 47NEWS](https://www.47news.jp/world/south-korea) — 中韓「非難」と「失望」 高市首相の靖国供物奉納 · 【速報】 韓国 、高市首相の靖国供物奉納に遺憾表明 · 元大統領の妻銃撃死映画で騒動 韓国 「歴史歪曲」と保守派反発 · 韓国 ・ ...
+

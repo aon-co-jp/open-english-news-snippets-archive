@@ -415,3 +415,42 @@ Tags: `India` `2026-10`
 - [Latest News Today, Breaking News, India News, Top ...](https://indianexpress.com/) — Get the latest news today, breaking news, and top news headlines updates from India and around the world. Stay updated on politics, …
 - [News18: Breaking News, Latest News, News Headlines Today ...](https://www.news18.com/home/) — 17 hours ago · CNBC-TV18’s ‘Gateway to India: Leadership Corridor’ Explores India’s Path to Sustained Growth and Global …
 
+### India(検索日時 / searched at: 2026-10-19)
+
+Tags: `India` `2026-10`
+
+- [How to make two column in a batch file?](https://stackoverflow.com/questions/13654471) — (5) = Times Now +5 echo (6) = Saharah AP +6 echo (7) = News X +7 echo (8) = Punjabi +8 echo (9) = Al Jazeera Sport + &hellip; 9 echo (10) = Al Jazeera Sport +10 pause echo (11) = Aaj Tak +11 echo (12) = Headlines Today +12 echo (13) = UTV Bindaas +13 echo &hellip;
+- [Load CSV file in single variant column in snowflake table](https://stackoverflow.com/questions/72475744) — Get today’s news headlines from Business", "col_003": " ", "col_004": "Technology", "col_005": " Sports", "col_006": " Movies", "col_007": " videos", "col_008": " photos", "col_009": " live news coverage &hellip; and exclusive breaking news from India.} &hellip;
+- [India Today (TV channel)](https://en.wikipedia.org/wiki/India_Today_(TV_channel)) — India Today is a 24-hour English language television news channel based in Noida, Uttar Pradesh that carries news, current affairs and business programming in India. The channel is owned by TV Today Network Ltd, which is a part of Living Media.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — ", "name": "The Times of India" }, "author": null, "title": "Hardik Pandya introduces his new 'Bentley' on 25th birthday", "description": &hellip; "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social media platform, Twitter", "url": "https: &hellip;
+- [String regular expression java](https://stackoverflow.com/questions/27226847) — for example string is : Input: It provides @p1 latest news, videos @p2 from India and @p3 the world. Get today's news headlines from @p5 Business, @p5 Replace all the parameters with @pn@. &hellip; The above string will become : Output: It provides @p1@ latest news, videos @p2@ from India and @p3@ the world. Get today's news headlines from @p4@ Business, @p5@ Any quick help appreciated. &hellip;
+- [List of terrorist incidents in India](https://en.wikipedia.org/wiki/List_of_terrorist_incidents_in_India) — This is a list of terrorist incidents in India. In July 2016, the Government of India released data saying that since 2005, terrorist attacks in India had killed 707 people and left over 3,200 injured.
+- [Rahul Shivshankar](https://en.wikipedia.org/wiki/Rahul_Shivshankar) — Rahul Shivshankar (Hindi: राहुल शिवशंकर) (born 22 January 1975) is an Indian journalist and an Indian TV anchor who worked as the editor-in-chief at Times Now. Before joining Times Now, Shivshankar worked in print and TV journalism.
+- [News24 (Indian TV channel)](https://en.wikipedia.org/wiki/News24_(Indian_TV_channel)) — News24 is a 24-hour Hindi news television channel owned by B.A.G. Films and Media Limited. It has been launched in 2007 and it is free-to-air channel in India.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Brazil (Japanese)` `2026-10`
+
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ブラジル 在住の日本人コミュニティに向けた最新 ニュース を提供する日系メディアです。政治、経済、文化、社会、スポーツなど幅広い話題をカバーし、現地の情報をわかり ...
+- [【 ブラジルニュース 速報集】 ブラジル 日報 - X](https://x.com/BRASILNIPPOU) — 【 ブラジルニュース 速報集】 ブラジル 日報 · @BRASILNIPPOU · 11h. 25日に迫る ブラジル 大統領選の決選投票を前に、第1回投票で敗れた 主要 候補が相次いで右派のフラヴィオ ...
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 最新 ニュース · 競馬・ ブラジル カップ 18日 · （世界グルめぐり）魅惑の脂身、残り物に「口福」 ブラジル · 高金利 ブラジル 、クレカに悲鳴 多額債務、大統領選の焦点に · 2千 ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル「貧困層の大統領」に逆風 育てた中間層が離反 · ブラジル大統領選挙25日決選投票 右派勝利なら親米・市場重視に転換か · ブラジル大統領選討論会、直前で中止 ...
+- [ブラジル 日報 Jornal Brasil Nippou - YouTube](https://www.youtube.com/@BrasilNippou/playlists) — ブラジル 日報 今日 の ニュース ランキング · 相川七瀬 in ブラジル · ブラジル アマゾン · 県連日本祭り2025 · 佳子さま来伯2025年6月 サンパウロマリンガブラジリア ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「ブラジル」ニュース一覧 ; ブラジル大統領決選投票まで1週間 支持率きっ抗激しい選挙戦 . 10月19日 14:41 ; ブラジル大統領選挙 10月25日に決選投票へ. 10月5日 20:35.
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ブラジル 日報 · 『精霊たちの家』から45年＝プラネタ賞を射止めた『夜明け前の刻』＝84歳アジェンデが再びペンをとる理由 · 《 ブラジル 》移民俳人が語る「日本語への誇り」＝ ...
+- [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — ブラジル大統領選、決選投票へ フラビオ・ボルソナロ氏が現職大統領をリード · ブラジル大統領選、ルラ氏とフラビオ・ボルソナロ氏が接戦 トランプ氏も注視 · ブラジル警察、 ...
+
+### South Korea (English)(検索日時 / searched at: 2026-10-19)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Jennie (singer)](https://en.wikipedia.org/wiki/Jennie_(singer)) — Jennie Kim (Korean: 김제니; born January 16, 1996) is a South Korean singer, rapper, songwriter, and actress. Born in South Korea, she moved to New Zealand in 2004 and returned to South Korea to successfully audition for YG Entertainment in 2010.
+- [Lee Sun-kyun](https://en.wikipedia.org/wiki/Lee_Sun-kyun) — Lee Sun-kyun (Korean: 이선균; March 2, 1975 – December 27, 2023) was a South Korean actor. Internationally, he was best known for his role in Bong Joon-ho's Academy Award–winning film Parasite (2019), for which he won an Actor Award along with his castmates.
+- [Cashero](https://en.wikipedia.org/wiki/Cashero) — Cashero (Korean: 캐셔로) is a 2025 South Korean television series directed by Lee Chang-min, written by Lee Jae-in and Jeon Chan-ho, and starring Lee Jun-ho, Kim Hye-jun, Kim Byung-chul, and Kim Hyang-gi. The series is based on the Kakao webtoon of the same name by Lee Hoon and No Hye-ok, together known as "Team Befar".
+

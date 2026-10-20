@@ -247,3 +247,42 @@ Tags: `France` `2026-10`
 - [Actualités France en direct : info du jour, faits divers, actu en ...](https://www.20minutes.fr/france/) — 18 juil. 2026 · France : retrouvez toute l'actualité française en continu et en direct via nos articles, infographies et vidéos
 - [20 Minutes - Toute l’actualité en direct et les dernières infos ...](https://www.20minutes.fr/) — 7 oct. 2010 · Suivez l’actualité du jour sur 20 Minutes, média gratuit et indépendant. Politique, Sport, Culture, High Tech, Ecologie…
 
+### France(検索日時 / searched at: 2026-10-19)
+
+Tags: `France` `2026-10`
+
+- [Île-de-France](https://fr.wikipedia.org/wiki/%C3%8Ele-de-France) — L'Île-de-France est une région historique et administrative française. Il s'agit d'une région très fortement peuplée, qui représente à elle seule 18,8 % de la population de la France métropolitaine sur seulement 2,2 % de sa superficie, ce qui en fait la région la plus peuplée (12,46 millions d'habitants en 2023) et la plus densément peuplée (1 038 hab/km2) de France.
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Affaire Agnès Le Roux](https://fr.wikipedia.org/wiki/Affaire_Agn%C3%A8s_Le_Roux) — L'affaire Agnès Le Roux, également appelée affaire Le Roux, affaire Agnelet, ou affaire Le Roux-Agnelet est une affaire criminelle survenue à Nice (Alpes-Maritimes) en France en 1977, conclue le 11 avril 2014 par la condamnation pour assassinat du principal suspect, Maurice Agnelet, ex-amant de la disparue. À ce jour, le corps d'Agnès Le Roux demeure introuvable.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Fabrice Arfi](https://fr.wikipedia.org/wiki/Fabrice_Arfi) — Fabrice Arfi, né le 4 septembre 1981 à Lyon, est un journaliste français. Il est connu pour ses enquêtes à l'origine de nombreuses révélations sur l'affaire Woerth-Bettencourt, l'affaire Karachi, l'affaire Sarkozy-Kadhafi, l'affaire des quotas de carbone et l'affaire Cahuzac.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+
+### Russia (English)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Russia (English)` `2026-10`
+
+- [What in JavaScript can make both contentEditable and textarea unable to recieve any input?](https://stackoverflow.com/questions/26450780) — - box-1 ["Russia Today", "http://rt.com/"], ["Reuters", "http://www.reuters.com/"], ["Al Jazeera", "http://america.aljazeera.com/"], ["The Raw Story", "http://rawstory.com/"], &hellip; http://whatshouldireadnext.com/"], ["Which Book", "http://www.openingthebook.com/whichbook/"], ["TechRaptor", "http://techraptor.net/"], ["TechCrunch", "http://techcrunch.com/"], ["Gamer Headlines &hellip;
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Propaganda in Russia](https://en.wikipedia.org/wiki/Propaganda_in_Russia) — Propaganda in Russia promotes views, perceptions, or agendas of the government of Russia. The media include state-run outlets and online technologies, and may involve using "Soviet-style 'active measures' as an element of modern Russian 'political warfare.'" Notably, contemporary Russian propaganda promotes the cult of personality of Vladimir Putin and positive views of Soviet history.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — That should worry Trump.", "description": "More legal pressure on Manafort=more chance he'll flip in the Russia investigation.", "url": "https://www.washingtonpost.com/news/the-fix &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — { Observable, of } from 'rxjs'; import { switchMap } from 'rxjs/operators'; @Injectable() export class SportsService implements OnInit { sports: any = []; _urll = 'https://newsapi.org/v2/top-headlines &hellip; 'Bentley' on 25th birthday", "description": "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social &hellip;
+- [Show HN: Forty.News – Daily news, but on a 40-year delay](https://forty.news) — Hacker News · 443 points · 180 comments · 2025-11-22
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Ukraine (Japanese)` `2026-10`
+
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — 2026. 10/19: トランプ氏、ゼレンスキー氏を痛烈非難 自身の要求無視したロシアへの大規模攻撃受け · ウクライナ 、ロシアの石油施設に今年最大規模のドローン攻撃 ...
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — 13時間前. 米ロ中首脳、APEC首脳会議に合わせ会談の可能性＝ロシア大統領報道官 · 11時間前. ロシアが ウクライナ に大規模空爆、情報共有巡りゼレンスキー氏不満表明 · 7 ...
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — ロシアがウクライナ首都の橋を連日攻撃、独首相の電撃訪問の最中も · ロシア、ウクライナのエネルギーインフラを攻撃 春以降で最大規模 · 北朝鮮捕虜の韓国移送、 ...
+- [ウクライナ の最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/22A00077) — スロバキア東部、ウクライナ物流の新拠点に ポーランド経由を補完 · ゼレンスキー氏「スターリンク、完全回復せず」 米ロの軽油合意を拒否 · ウクライナ軍が使うスターリンク ...
+- [新着 ニュース - ウクルインフォルム](https://www.ukrinform.jp/block-lastnews) — ウクライナ への全面侵略を続けるロシア軍は18日、同国南部ザポリッジャに対して航空攻撃を行った。集合住宅に着弾があり、若い女性1名が死亡、さらに2名が負傷した。
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — 2026年10月19日. プーチン大統領、米中ロ3者会談提案か 11月のAPEC首脳会議で · 2026年10月17日. プーチン氏、 ウクライナ 「緩衝地帯」返さない 事実上の要求引き上げ · 2026 ...
+- [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ロシアはウクライナの非軍事化などを要求して全面攻撃を仕掛けたが、首都キーウの短期制圧に失敗 。欧米の支援を受けたウクライナが徹底抗戦し、戦闘は長期化した。25年1 ...
+- [ロシアの ウクライナ 侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — 米 ロ軍ミサイル警戒情報の共有を再び停止か ウクライナ事前避難困難に 米側は否定 · ロシアがウクライナに大規模空爆、情報共有巡りゼレンスキー氏不満表明 · ウクライナ、 ...
+

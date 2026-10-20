@@ -432,3 +432,16 @@ Tags: `Cambodia` `2026-10`
 - [វីអូអេ - ព័ត៌មាន VOA](https://khmer.voanews.com/) — 17 hours ago · ព័ត៌មាន ពេល ព្រឹក ព័ត៌មាន ពេល រាត្រី Hello VOA សំឡេង ជំនាន់ ថ្មី វេទិកា អាស៊ាន ព័ត៌មាន តាមប្រធានបទ កម្ពុជា អន្តរជាតិ …
 - [កម្ពុជា៖ ព័ត៌មាន, podcasts, វីដេអូ និង ...](https://www.rfi.fr/km/%E1%9E%96%E1%9E%B6%E1%9E%80%E1%9F%92%E1%9E%99%E1%9E%82%E1%9E%93%E1%9F%92%E1%9E%9B%E1%9E%B9%E1%9F%87/%E1%9E%80%E1%9E%98%E1%9F%92%E1%9E%96%E1%9E%BB%E1%9E%87%E1%9E%B6/) — 4 days ago · អាន ឬ ស្តាប់ ឡើងវិញ នូវ ព័ត៌មាន និង បទវិភាគ ស្តីពី កម្ពុជា តាមរយៈ Podcast របស់ RFI
 
+### Cambodia(検索日時 / searched at: 2026-10-19)
+
+Tags: `Cambodia` `2026-10`
+
+- [កម្ពុជាថ្ងៃនេះ - Cambodia Today - កម្មវិធី​នីមួយៗ](https://khmer.voanews.com/z/2690) — August 1, 2026 - កម្ពុជាថ្ងៃនេះ (Cambodia Today) នាំជូនមក​នូវ​សេចក្តី​រាយការណ៍​ជា​វីដេអូស្តី​អំពី ព័ត៌មាន​និង​ព្រឹត្តិការណ៍​ទាក់ទងនឹង​កម្ពុជា ទាំង​ក្នុង​និង​ក្រៅ​ប្រទេស។ - កម្មវិធី​នីមួយៗ
+- [កម្ពុជាថ្ងៃនេះ | Sihanoukville (city) | Facebook](https://www.facebook.com/camdaynews/) — ព័ត៌មាន បឋម៖ ករណីអគ្គីយភ័យឆា/បឆេះយ៉ាងសន្ធោសន្ធៅ នៅក្រោយផ្ទះសំណាក់ប៉ៃលិន (កន្លែងចាក់សម...
+- [ព័ត៌មាន​ថ្មីៗ Archives - The Cambodia Daily Khmer](https://www.cambodiadaily.com/category/latest/) — កម្ពុជាច្រានចោលការទាមទារព្រំដែនជាឯកតោភាគីរបស់ថៃ និងចោទថាបន្តរំលោភកិច្ចព្រមព្រៀងទ្វេភាគី ...
+- [ព័ត៌មានជាតិ – TVK Cambodia](https://www.tvk.gov.kh/category/national/) — 1 week ago - នៅរសៀលថ្ងៃទី០៩ ខែតុលា ឆ្នាំ២០២៦ ឯកឧត្តម ឡេ មិញហុឹង នាយករដ្ឋមន្រ្តីនៃសាធារណរដ្ឋសង្គមនិយមវៀតណាម បានអញ្ជើញមកបំពេញទស្សនកិច្ចផ្លូវការនៅព្រះរាជាណាចក្រកម្ពុជា ចាប់ពីថ្ងៃទី០៩ ដល់ថ្ងៃទី១០…
+- [News – វិមាន៧មករា](https://www.cpp.org.kh/en/topics/news-en) — វិមាន៧មករា · Cambodian People's Party
+- [ព័ត៌មានជាតិ - Kampuchea Thmey Daily](https://www.kampucheathmey.com/category/local-news) — ព័ត៌មានជាតិ២៤ ម៉ោង មុន · សម្ដេចធិបតីប្រាប់ទៅលោក អ៊ំ សំអាន អាចពឹងទូតបរទេសជួយតាមដាន បើមិនទុកចិត្តពីការធានាសុវត្ថិភាពលើដីកម្ពុជា...
+- [សំណួរ និងចម្លើយចំនួន៨ កម្ពុជា ឆ្លើយតបថៃ ពាក់ព័ន្ធបញ្ហាព្រំដែន](https://m.freshnews.com.kh/localnews/415621-2026-01-20-11-08-50) — January 20, 2026 - សំណួរទី១៖ ភាគីថៃអះអាងថា ការរក្សាវត្តមានកងទ័ពរបស់ខ្លួននៅលើទឹកដីកម្ពុជា គឺ ស្របតាមសេចក្តីថ្លែងការណ៍រួមថ្ងៃទី ២៧ ខែធ្នូ «យ៉ាងម៉ឺម៉ាត់» ហើយមិនមែនជាការ «កាន់កាប់» នោះទេ។ តើកម្ពុជាមើលឃើញយ៉ាងណាចំពោះការបកស្រាយនេះ? ចម្ល
+- [ព័ត៌មានកម្ពុជា](https://www.youtube.com/playlist?list=PL1ie9jay6H_CQZROxOD2XmLhjZDdgi3Cw) — AboutPressCopyrightContact usCreatorsAdvertiseDevelopersTermsPrivacyPolicy & SafetyHow YouTube worksTest new features · © 2026 Google LLC · ព័ត៌មានកម្ពុជា - YouTube
+

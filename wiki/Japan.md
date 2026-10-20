@@ -313,3 +313,29 @@ Tags: `Japan` `2026-10`
 - [国内ニュース - Yahoo!ニュース](https://news.yahoo.co.jp/categories/domestic) — 国内に関するニュースを新着順にお届け。 Yahoo!ニュースでは、新聞・通信社が配信するニュースのほか、映像、写真や個人の書 …
 - [主要 トピックス一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/topics/top-picks) — トピックス一覧 ; 橋本愛とユニット復活 のんが希望. 10/18(日) 21:37 ; ホリプロTSC 田淵幸一氏の孫優勝. 10/18(日) 21:27 ; カーセンサーのサイト 一時停止. 10/18(日) 21: ...
 
+### Japan(検索日時 / searched at: 2026-10-19)
+
+Tags: `Japan` `2026-10`
+
+- [新着ニュース一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-latest-nationwide) — 新着ニュース一覧 · 北朝鮮 キム・ヨジョン氏 韓国へ拡声機放送再開などを警告 · 超低出生体重児の大動脈の血管へのステント治療成功 静岡 · アジアパラ大会 競泳 鈴木孝幸 ...
+- [Google ニュース](https://news.google.com/home?hl=ja&gl=JP&ceid=JP%3Aja) — コックピットに小動物が侵入 福岡発・鹿児島行きJAL機が欠航 機内を捜索中（KBC九州朝日放送） · 63歳歌手、置き配荷物の“惨状”に「どうやって持ってきたらこんなに ...
+- [速報・新着ニュース一覧：朝日新聞](https://www.asahi.com/news/) — フランス暴動、店内から商品が次々と… · 正体不明の「小動物」、出発前の操縦室に現れ姿消す JAL便が欠航 · アジアパラに 日本 選手団最年少14歳の2人が出場 日本 の課題克服へ.
+- [Yahoo!ニュース - Yahoo! JAPAN](https://news.yahoo.co.jp/) — 公共工事「入札不調」相次ぐ 背景. 224. 1時間前 · 中国経済成長 テック産業が後押し. 147. 解説. 3時間前 ; · 部屋に遺体 包丁所持疑いで女逮捕. 44. 26分前 ; · ユニクロが ...
+- [日本経済新聞 - ニュース・速報 最新情報](https://www.nikkei.com/) — 円が「 主要 3通貨で最弱」脱却へQUICK調査、米欧政治リスク見込む 会員限定記事 · 日本 株に投資妙味、「インフレは最良の友」仏金融大手責任者 会員限定記事 · 日銀総裁の「 ...
+- [時事ドットコム：時事通信社が運営するニュースサイト](https://www.jiji.com/) — ニュースＱ＆Ａ · 深層探訪 · ＡＩブーム、強まる懸念 市場リスクに格差拡大―「軽量型」に活路・ＩＭＦ世銀総会 2026年10月17日 · 深層探訪 · インフレと財政悪化が火種 金利上昇を加速、ＡＩ頼みにリスク―Ｇ２０財務相会議 2026年10月16日 ·
+- [毎日新聞デジタル | 毎日新聞のニュースサイト](https://mainichi.jp/) — 外国人採用急停止「よくやった」の声も 高市印「厳格化」の行方 · 特定技能外食受け入れ停止 人手不足の「給食」は別分野で再開へ · 「政治家は現場見て」崩壊危機の老人 ...
+- [主要 トピックス一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/topics/top-picks) — トピックス一覧 ; 部屋に遺体 包丁所持疑いで女逮捕. 10/19(月) 22:55 ; 工藤新監督 ドラフト会議は欠席. 10/19(月) 22:53 ; ユニクロが値上げ 11商品を11月に. 10/19(月) 22: ...
+
+### Germany (English)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Germany (English)` `2026-10`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+

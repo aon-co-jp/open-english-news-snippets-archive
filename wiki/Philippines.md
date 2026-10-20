@@ -338,3 +338,16 @@ Tags: `Philippines` `2026-10`
 - [Pilipino Star Ngayon | Balita ngayon - Philstar.com](https://www.philstar.com/pilipino-star-ngayon/) — Dec 25, 2021 · Online edition ng Pilipino Star Ngayon, ang dyaryong disente ng masang intelihente. Abangan ang pinakabagong …
 - [Balita - National](https://balita.mb.com.ph/national/) — 5 days ago · Nagbigay ng tips si Pangulong Ferdinand 'Bongbong' Marcos, Jr. sa publiko para paghandaan ang Super El Niño sa …
 
+### Philippines(検索日時 / searched at: 2026-10-19)
+
+Tags: `Philippines` `2026-10`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 2 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Kinuwestiyon ni Chairman Emeritus Dr. Jose Antonio Goitia kung bahagi ng mas malawak na estratehiya ng Tsina ang tumitinding mga kilos nito sa West Philippine Sea upang pahinain ang paninindigan ng Pilipinas.
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Tinukoy ni Interior Secretary Jonvic Remulla ang politiko mula sa Mindanao na umano’y sangkot sa tangkang pagpupuslit ng shabu na nagkakahalaga ng P3.5 bilyon mula sa Laos na patungong Pilipinas. ... Naglabas ang National Bureau of Investigation (NBI) ng mga subpoena sa mga miyembro ng podcast na "Machong Chismisan" matapos ang kanilang mga pahayag tungkol kay Joshua "Josh" Aquino, anak ni Kris Aquino. ... Dalawang lalaki ang pinaghahahanap ngayon matapos nilang paghahampasin hanggang sa mamatay ang isang aso sa Barangay Buliwao sa Quezon, Nueva Vizcaya.
+- [Pilipino Star Ngayon - October 19, 2026](https://philstarmedia.pressreader.com/pilipino-star-ngayon) — Pilipino Star Ngayon - October 19, 2026 · Previous issue date: · Pilipino Star Ngayon - October 18, 2026
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — 1 week ago - Philippine Entertainment Tabloid for the latest showbiz news
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 1 day ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+- [Balita - National](https://balita.mb.com.ph/national/) — 14 hours ago - Ang Nangungunang Pahayagang Tagalog sa Bansa National
+

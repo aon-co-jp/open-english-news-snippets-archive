@@ -306,3 +306,42 @@ Tags: `China (Japanese)` `2026-10`
 - [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/17: 中国 、解任された米大統領報道官に再訪呼び掛け 「まともなトイレがない」発言受け; 10/09: 中国 、ラオス北西部に基地開設 かつてCIAが使用した飛行場 ...
 - [「中国」のニュース一覧 - 日本経済新聞](https://r.nikkei.com/regions/10086) — 2026年10月10日 · 日本経済新聞の電子版。 日経や日経BPの提供する経済、企業、国際、政治、マーケット、情報・通信、社会など …
 
+### Egypt(検索日時 / searched at: 2026-10-19)
+
+Tags: `Egypt` `2026-10`
+
+- [الصفحة الرئيسة](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9_%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9) — 
+- [أخبار اليوم (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها التوأم مصطفى أمين (21 فبراير 1914-13ابريل1997) وعلي أمين (21 فبراير 1914-3 أبريل 1976) عام 1944.
+- [دار أخبار اليوم](https://ar.wikipedia.org/wiki/%D8%AF%D8%A7%D8%B1_%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85) — دار أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها مصطفى أمين وعلي أمين عام 1944.
+- [الأخبار (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة الأخبار وهي جريدة يومية رسمية تصدر في القاهرة، وتُوزَع في مصر والعالم العربي. أسسها الأخوان مصطفى وعلي أمين سنة 1952 عن مؤسسة أخبار اليوم ورئيس التحرير أسامة السعيد.
+- [وفيات 2026](https://ar.wikipedia.org/wiki/%D9%88%D9%81%D9%8A%D8%A7%D8%AA_2026) — 
+- [مصر](https://ar.wikipedia.org/wiki/%D9%85%D8%B5%D8%B1) — مِصرُ (رسميًّا: جُمْهُوْرِيَّةُ مِصْرَ العَرَبيَّةُ) دولةٌ عربية، عابرة للقارات، تمتد على الركن الشَّمالي الشرقي لإفريقيا والركنِ الجَنوبي الغربي من آسيا بجسر بري شكلته شبه جزيرة سَيناء. قُدِّر عدد سكانها بأكثرَ من 120 مليون نسَمة؛ لتكون الثالثةَ عشْرة بين دول العالم سكانًا، والأكثر سكاناً عربيًّا وشرقًا أوسطيًّا.
+- [عملية طوفان الأقصى](https://ar.wikipedia.org/wiki/%D8%B9%D9%85%D9%84%D9%8A%D8%A9_%D8%B7%D9%88%D9%81%D8%A7%D9%86_%D8%A7%D9%84%D8%A3%D9%82%D8%B5%D9%89) — عَمَلِيَّةُ طُوفَـانِ الأَقْـصَى و السَّبْتُ الأَسْـوَدُ و هُجُومُ السَّابِعِ مِنْ أُكْتُوبَرَ و أَحْدَاثُ السَّابِعِ مِنْ أُكْتُوبَرَ تُشير جميعها إلى العملية العسكرية الممتدّة التي شنّتها فصائل المقاومة الفلسطينية في قطاع غزة بقيادة حركة حماس على الاحتلال الإسرائيلي فجر يوم السبت 22 ربيع الأول 1445 (7 أكتوبر/تشرين الأول 2023) إذ أعلن القائد العام للكتائب محمد الضيف بدء العملية ردًّا على «الانتهاكات الإسرائيلية في باحات المسجد الأقصى واعتداء المستوطنين الإسرائيليين على المواطنين الفلسطينيين في القدس والضفة والداخل المحتل.» بدأت عمليَّة طُوفَان الأقصى عبر إطلاق المقاومة هُجوماً صَاروخيًّا واسعَ النطاق بوابلٍ من الصواريخ بلغ عددها 4300 صاروخٍ على الأقلِّ صوبَ مختلف المستوطنات الإسرائيليّة من ديمونا في الجنوب إلى هود هشارون في الشمال والقدس في الشرق، وتزامنَ مع ذلك اقتحام برِّي من المُقاومين عبر السَّيارات رُباعيّة الدَّفع والدّراجات النّارية والطّائرات الشّراعيّة وغيرها للبلدات المتاخمة للقطاع، والتي تُعرف باسم غلاف غزة، حيث سيطروا على عددٍ من المواقع العسكريّة خاصة في سديروت، ووصلوا أوفاكيم، ونتيفوت، وخاضوا اشتباكاتٍ عنيفة في المستوطنات الثلاثة وفي مستوطنات أخرى كما أسروا عددًا من الجنود والمدنيين واقتادوهم لغَزَّة فضلًا عن اغتنامِ مجموعةٍ من الآليّات العسكريّة الإسرائيليَّة. في 9 أكتوبر، أعلن جيش الاحتلال الإسرائيلي استعادته السيطرة على جميع البلدات الَّتي استولت عليها فصائل المُقاومة الفلسطينيَّة في غِلاف قطاع غزَّة مع استمرار بعض المناوشات المُتفرِّقة، وأعلن وزير الدفاع الإسرائيلي يوآف غالانت بدء ما أسمَاه حصاراً شاملاً على غزة، بما في ذلك حظر دخول الغذاء والوقود.
+- [باقي زكي يوسف](https://ar.wikipedia.org/wiki/%D8%A8%D8%A7%D9%82%D9%8A_%D8%B2%D9%83%D9%8A_%D9%8A%D9%88%D8%B3%D9%81) — اللواء باقي زكي يوسف (23 يوليو 1931 – 23 يونيو 2018)، رئيس فرع المركبات بالجيش الثالث الميداني أثناء حرب أكتوبر، وصاحب فكرة استخدام ضغط المياه لأحداث ثغرات في الساتر الترابي المعروف بخط برليف في سبتمبر عام 1969 والتي تم تنفيذها في حرب أكتوبر عام 1973، كما أيضاً تم تسجيل الفكرة باسمه لحفظ حقوقه المعنوية.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [台湾 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/taiwan) — 台湾 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や台湾の最新ニュース・特集 をまとめました。中国の習近平国家主席の動向や中国経済、台湾を巡る情勢、TSMCや鴻海のニュースなどをお伝えします。
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 外交部の林佳龍部長、ワルシャワ安全保障フォーラムで基調講演 · 国立 台湾 歴史博物館、地方の女神だった媽祖が「天后」へとその地位を変えた過程を紹介する特別展.
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「台湾」ニュース一覧 · 三菱電機 自動車部品子会社にホンハイの出資受け入れで会見 · 台湾TSMC過去最高益「需要減速の兆候なし」 · 自民 古屋前選対委員長 台湾訪問 頼総統と ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「台湾 山の上の町、地の塩、世の光」と題する演説 · 愛知・名古屋2026アジアパラ競技大会、台湾代表選手団結団 ...
+- [台湾ニュース ＠中央社フォーカス 台湾 (@focustaiwanjapa) / X](https://x.com/focustaiwanjapa) — 台湾ニュース を政治、社会からスポーツ、エンタメまで、日本語で毎日発信しています。 公式アプリ配信中。iOS、Androidに対応しています。「フォーカス 台湾 ... 台湾 ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 日本の国家資格、「 台湾 」表記可能に 歯科医「長年の問題がやっと正された」 · 艋舺公園がリニューアル 水面に「逆さ龍山寺」映る開放的な空間に／ 台湾 ・台北 ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 艋舺公園がリニューアル 水面に「逆さ龍山寺」映る開放的な空間 に／台湾・台北 · 夜のアートイベント「台北白夜祭」31日に開催 テーマは「流し」文化から着想 · 台湾 ...
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- [Elections in Afghanistan](https://en.wikipedia.org/wiki/Elections_in_Afghanistan) — Though Afghanistan has had democratic elections throughout the 20th century, the electoral institutions have varied as changes in the political regime have disrupted political continuity. Elections were last held under the Islamic Republic of Afghanistan, which was deposed by the Taliban in August 2021.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [2026 Shpageeza Cricket League](https://en.wikipedia.org/wiki/2026_Shpageeza_Cricket_League) — The 2026 Shpageeza Cricket League (also known as for sponsorship reasons as 2026 e& Shpageeza Cricket League) was the 11th edition of the Shpageeza Cricket League, a professional Twenty20 cricket (T20) league established by the Afghanistan Cricket Board (ACB) in 2013, and the seventh edition to have official T20 status. On 20 June 2026, Afghanistan Cricket Board announced the complete fixtures of the 2026 editions.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [The News Agents](https://en.wikipedia.org/wiki/The_News_Agents) — The News Agents is a British daily podcast produced by Global Media & Entertainment. It is presented by Emily Maitlis, Jon Sopel, and Lewis Goodall.
+- [David Muir](https://en.wikipedia.org/wiki/David_Muir) — David Jason Muir ( MURE; born November 8, 1973) is an American journalist and anchor for ABC World News Tonight and co-anchor of the ABC News magazine 20/20, part of the news department of the ABC broadcast-television network, based in New York City. Muir previously served as the weekend anchor and primary substitute anchor on ABC's World News Tonight with Diane Sawyer before succeeding her on September 1, 2014.
+

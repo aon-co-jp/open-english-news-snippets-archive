@@ -317,3 +317,42 @@ Tags: `Italy` `2026-10`
 - [RaiNews | Le ultime notizie gratuite aggiornate in tempo reale](https://www.rainews.it/) — RaiNews è il portale di notizie di Rai aggiornato 24 ore su 24. News, attualità, ultime notizie e aggiornamenti sempre gratuiti.
 - [Ultime notizie - Today](https://www.today.it/notizie/tutte/) — 17 ore fa · Ultime notizie in tempo reale. Aggiornamenti su news di cronaca, politica, sport, calcio, …
 
+### Italy(検索日時 / searched at: 2026-10-19)
+
+Tags: `Italy` `2026-10`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Pagina principale](https://it.wikipedia.org/wiki/Pagina_principale) — 
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Episodi di Squadra antimafia - Palermo oggi (ottava stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(ottava_stagione)) — L'ottava ed ultima stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa con il titolo Squadra antimafia - Il ritorno del boss in prima visione in Italia da Canale 5 dall'8 settembre 2016.
+- [Episodi di Squadra antimafia - Palermo oggi (sesta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(sesta_stagione)) — La sesta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dall'8 settembre al 10 novembre 2014..
+
+### China (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国人民銀行、翌日物短期金利を政策金利に 潘総裁が方針 · 三菱電機、車事業はEV制御に集中 鴻海との日台合弁通じて構造改革 · 中国の9月新築住宅価格、主要都市の7割で下落.
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 記者会見する 中国 外務省の毛寧報道局長＝19日、北京（. 中国 、首相の靖国玉串料に反発 外務省・報道局長「断固反対」. 17時21分. 共同通信.
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/17: 中国 、解任された米大統領報道官に再訪呼び掛け 「まともなトイレがない」発言受け; 10/09: 中国 、ラオス北西部に基地開設 かつてCIAが使用した飛行場 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国製車両、ノルウェー軍の機密情報を記録 訓練中に発覚 (10月19日 15:51) · 中国GDP、4．5％増 政府目標の下限に―7～9月期(10月19日 12:19) · 中国、AI技術の輸出 ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 第4回 中国 無形文化遺産保護年次大会で演舞パレード 遼寧省 · 仏・カンヌで開催の「MIPCOM2026」にチャイナパビリオン設置 · 「第47回世界ブドウ・ワイン会議」が開幕 寧夏 ...
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 ; 秋の広州交易会開幕、バイヤー登録34万人 · 経済 · マクロ経済 ; 「アフリカの携帯王」伝音、香港上場 · IT · IT一般 ; 広東省のCPI、9月は1.1％上昇 · 経済.
+- [Xinhua - jp. news .cn](https://jp.news.cn/) — 中国 ・武漢で第15回琴台音楽祭開幕 · 北京マラソン開催 天安門広場前で快走 · 政治 · 中国 国務院台湾事務弁公室、頼清徳の演説を批判 台湾海峡の平和と安定損なう · 中国 ...
+
+### France (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — フランスの抗議デモ、逮捕者1800人超 に · フランス全土で物価高抗議デモ、警察と衝突 略奪や放火も · 国連総長「化石燃料への補助金は自殺への補助金」 · ゼレンスキー大統領 ...
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — フランス暴動、店内から商品が次々と … · 燃える市庁舎、住民らぼうぜん フランスの小都市に及んだデモと騒乱 · 火星衛星で世界初の試料採取へ 20日MMX打ち上げ、往復5年の旅.
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/19: フランス 大統領「破壊行為には代償を」 全土で暴動や略奪、2人が死亡; 10/18: フランス 全土で55万人が抗議活動 市庁舎に放火、1200人拘束 ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 仏全土に高校生デモ拡大 財政悪化で教育予算逼迫、大統領選の火種 に · 仏極右ルペン氏、本命浮上で市場意識 大統領選へ疑念消えぬ財政拡張 · フランス今や「欧州の ...
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — トランプ氏、ウクライナのスターリンクへのアクセスは制限していないと主張 · 仏スーパーの冷蔵庫にサイバー攻撃、設定温度が上昇 数億円相当の食品を廃棄か · フランスの ...
+- [フランス の ニュース ・最新記事 - 読売新聞](https://www.yomiuri.co.jp/keyword/99916/) — 前田 プレミア初ゴー ル · フランス各地でデモに乗じ破壊や略奪、歴史的建造物の市庁舎は放火で焼失…全国1500の小売店が襲撃受ける · ヨルダン川西岸でイスラエル人が欧州 ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — フランス デモに乗じた暴動で店舗1500以上被害か イタリアでも · フランス 物価高対策など訴え大規模デモ 放火など混乱も広がる · フランス抗議活動 無関係映像で“移民が暴動 ...
+- [今日 の フランス | フランス 情報メディアのET TOI（エトワ）](https://www.parisettoi.fr/news/) — 2日前 - 今日のフランス · 2026.10.16. 法人税の税収欠損、年間60億ユーロの規模 に · 2026.10.16. パリ市、自転車交通安全プランを公表：2億ユーロを投資へ · 2026.10 ...
+

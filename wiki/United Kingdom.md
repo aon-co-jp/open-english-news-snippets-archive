@@ -344,3 +344,42 @@ Tags: `United Kingdom` `2026-10`
 - [UK News | Top Stories from the UK | Reuters](https://www.reuters.com/world/uk/) — 3 days ago · Reuters.com is your online source for the latest UK news stories and current events, ensuring our readers up to date …
 - [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqJQgKIh9DQkFTRVFvSUwyMHZNRGR6YzJNU0JXVnVMVWRDS0FBUAE?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
 
+### United Kingdom(検索日時 / searched at: 2026-10-19)
+
+Tags: `United Kingdom` `2026-10`
+
+- [Timeline of GB News](https://en.wikipedia.org/wiki/Timeline_of_GB_News) — This is a timeline of the history of GB News, a free-to-air television and radio news channel in the United Kingdom.
+- [2026 in the United Kingdom](https://en.wikipedia.org/wiki/2026_in_the_United_Kingdom) — Events from the year 2026 in the United Kingdom.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [GB News](https://en.wikipedia.org/wiki/GB_News) — GB News is a British free-to-air editorial television and radio news channel based in London, England. Announced in September 2020 and launched in June 2021 from studios at Paddington Basin, London, GB News became Britain's first television news start-up since the launch of Sky News in 1989.
+- [Headlines!](https://en.wikipedia.org/wiki/Headlines!) — Headlines! is the debut extended play (EP) by British-Irish girl group The Saturdays.
+- [The Sun (United Kingdom)](https://en.wikipedia.org/wiki/The_Sun_(United_Kingdom)) — The Sun is a British tabloid newspaper, published by the News Group Newspapers division of News UK, itself a wholly owned subsidiary of News Corp. It was founded as a broadsheet in 1964 as a successor to the Daily Herald, and became a tabloid in 1969 after it was purchased by its current owner.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+
+### Taiwan (English)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Taiwan (English)` `2026-10`
+
+- [Taiwan-related terms](https://en.wikipedia.org/wiki/Taiwan-related_terms) — Taiwan-related terms are officially-sanctioned words and phrases by the Chinese Communist Party (CCP) and the government agencies of the People's Republic of China (PRC) that they and affiliated non-governmental organizations such as news, media, publishing, and education bodies use when speaking about matters related to Taiwan. These terms include English translations and censored terms.
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by Taiwan's Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+
+### Russia (Japanese)(検索日時 / searched at: 2026-10-19)
+
+Tags: `Russia (Japanese)` `2026-10`
+
+- [「 ロシア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — 「 ロシア 」 ニュース 一覧 ; 体操世界選手権 ロシア 女子トップ選手にビザおりず. 10月19日 16:13 ; 木原官房長官 北方領土問題「事態打開に向けて取り組む」. 10月19日 14:55.
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 10/19: トランプ氏、ゼレンスキー氏を痛烈非難 自身の要求無視した ロシア への大規模攻撃受け · ウクライナ、 ロシア の石油施設に今年最大規模のドローン攻撃 ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — ロシア北西部に過去最大級攻撃 1人死亡、石油施設で火災 · ロシア制裁法停止は60日間か ルビオ米国務長官「影響検討」 · ロシアの衛星が米衛星に異常接近、ウクライナ支援 ...
+- [ロシア | 最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — 11時間前. ロシアがウクライナに大規模空爆、情報共有巡りゼレンスキー氏不満表明 · 8時間前. プーチン氏、下院選受けた内閣改造案支持 財務相が副首相も兼任 · 7時間前.
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ロシア・サンクトペテルブルクが夜間攻撃受ける 石油施設が標的 に · トランプ氏、ロシアへの制裁停止は和平交渉継続のためと主張 与野党から批判も · トランプ氏、ウクライナ ...
+- [ロシア の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/russia/) — ロシア · 「シャヘド型ドローン」が現代の戦争を変えている … · プーチンが直面する「食品インフレ」が戦争継続の要所になる · ウクライナのドローンがロシアの兵器庫に侵入…
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシアがウクライナの子どもを「ロシア兵」に、占領地で進む洗脳と軍事化 、少年少女が直面する生々しい現実 · なぜロシアは外国で自国のパスポートを配るのか、「自国民保護 ...
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — プーチン氏、ドネツク州完全制圧は「主要目標」 · ロシア、ウクライナの無人機902機撃墜と発表 モスクワ周辺で180機 · ロシア、フランスによる船舶拿捕を非難「海賊行為」 ...
+
