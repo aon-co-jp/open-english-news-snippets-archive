@@ -508,3 +508,9 @@ Tags: `Myanmar` `2026-10`
 
 - (no items / 記事なし)
 
+### Myanmar(検索日時 / searched at: 2026-10-20)
+
+Tags: `Myanmar` `2026-10`
+
+- (no items / 記事なし)
+

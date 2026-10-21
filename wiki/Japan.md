@@ -339,3 +339,16 @@ Tags: `Germany (English)` `2026-10`
 - [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
 - [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
 
+### Japan(検索日時 / searched at: 2026-10-20)
+
+Tags: `Japan` `2026-10`
+
+- [NHKニュース 速報・最新情報](https://news.web.nhk/newsweb) — 新着 ニュース · 国の省エネ住宅事業で2万3000件超の情報漏えいのおそれ. 10月20日 23:39 · 台風30号 先島諸島に23日から接近見込み 西日本に影響可能性も. 10月20日 22:17.
+- [Google ニュース](https://news.google.com/home?hl=ja&gl=JP&ceid=JP%3Aja) — トップ ニュース · トランプ氏が仏大規模デモは移民政策の失敗原因と主張、民主党を「マルクス主義者や移民の党」…接戦州で批判 · 高市総理“次の総理が8％に戻す” 2年後に自身 ...
+- [主要トピックス一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/topics/top-picks) — トピックス一覧 ; 韓国2棟ビル火災19人負傷 男拘束. 10/20(火) 23:15 ; 岩井コスモ証券にサイバー攻撃. 10/20(火) 22:57 ; 台風30号 本州付近に来週接近恐れ. 10/20(火) 22:29.
+- [速報・新着ニュース一覧：朝日新聞](https://www.asahi.com/news/) — 9 時間前 - ニュース > 日付別一覧 · 速報・新着ニュース一覧 · 2026年7月 · 2026年8月 · 2026年9月 · 2026年10月 · 1日 · 2日 · 3日 · 4日 · 5日 · 6日 · 7日 · 8日 · 9日 · 10日 · 11日 · 12日 · 13日 · 14日 · 15日 · 16日 ·
+- [Yahoo!ニュース - Yahoo! JAPAN](https://news.yahoo.co.jp/) — J-CASTニュース10/20(火)14:45 · 1 · 高市政権発足1年 高支持率を支える“高市流の言葉” 発信力が一転…諸刃の剣にも 問われる2年目の真価【news23】 · TBS NEWS DIG Powered by JNN10/20(火)12:33 · 11:44 · 2 · “ゴースト団地”解体・再開発へ 工場閉鎖で入居者ゼロ 公園は雑草にのみ込まれゴミ投棄で廃墟化 千葉・茂原市 ·
+- [日本経済新聞 - ニュース・速報 最新情報](https://www.nikkei.com/) — バイトダンスなど3社、NVIDIAからGPU製品5兆円超 ロイター報道 · ニデック調査委、歴代5社長に損失先送りの責任認定 損害は276億円 · 不正アクセス、中国系AI「ARTEX」で 日本 ...
+- [時事ドットコム：時事通信社が運営するニュースサイト](https://www.jiji.com/) — ニュース一覧 · グランプリは田淵幸一さんの孫娘・田淵結真さん 第48回ホリプロタレントスカウトキャラバン · 乃木坂４６奥田いろは「ゼロから作ることにワクワク！」 日本初演ミュージカル「秘密の花園」は「物語が本当にいい」 ·
+- [毎日新聞デジタル | 毎日新聞のニュースサイト](https://mainichi.jp/) — 山形から茨城まで17万5000円分タクシー無賃乗車か 53歳を逮捕 · 「どうしても行きたかった」 休職中にパチンコ 佐倉市職員処分 · 「50年」住宅ローンに黄信号? · 「みゆ ...
+

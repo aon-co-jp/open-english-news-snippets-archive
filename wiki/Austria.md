@@ -388,3 +388,87 @@ Tags: `Afghanistan (Japanese)` `2026-10`
 - [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン戦争、過去の戦争と比べてどのくらい不 ...
 - [アフガニスタン 最新情報 タリバンが実権握る - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A2%E3%83%95%E3%82%AC%E3%83%8B%E3%82%B9%E3%82%BF%E3%83%B3.html) — アフガニスタン情勢. アメリカ軍がアフガニスタンから完全撤退 。イスラム主義勢力タリバンが実権を握ったアフガニスタンの最新情報をお伝えします。
 
+### Austria(検索日時 / searched at: 2026-10-20)
+
+Tags: `Austria` `2026-10`
+
+- (no items / 記事なし)
+
+### France (Japanese)(検索日時 / searched at: 2026-10-20)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · イスラエル警察が10人逮捕 ヨルダン川西岸での記者・外交官襲撃に関与の疑い · パリなど フランス 各地に夜間外出禁止令 週末の暴動受け · フランス 各地で物価高など ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — French · フランス 暴動で2400人逮捕 マクロン氏「暴力は正当化できない」 · フランス の抗議デモ、逮捕者1800人超に · フランス 全土で物価高抗議デモ、警察と衝突 略奪や放火も ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「 フランス 」 ニュース 一覧 · フランス 首相 状況次第で新たな外出禁止令求める考え · フランス でデモ乗じた暴動受け一部の都市で外出禁止令 · フランス デモに乗じた暴動で店舗 ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 仏全土に高校生デモ拡大 財政悪化で教育予算逼迫、大統領選の火種 に · 仏極右ルペン氏、本命浮上で市場意識 大統領選へ疑念消えぬ財政拡張 · フランス今や「欧州の ...
+- [今日 の フランス | フランス 情報メディアのET TOI（エトワ）](https://www.parisettoi.fr/news/) — 3日前 - 今日のフランス · 2026.10.16. 法人税の税収欠損、年間60億ユーロの規模 に · 2026.10.16. パリ市、自転車交通安全プランを公表：2億ユーロを投資へ · 2026.10 ...
+- [フランス の ニュース ・最新記事 - 読売新聞](https://www.yomiuri.co.jp/keyword/99916/) — 新着一覧 · フランス 各地でデモに乗じ破壊や略奪、歴史的建造物の市庁舎は放火で焼失…全国1500の小売店が襲撃受ける · ヨルダン川西岸でイスラエル人が欧州外交官ら襲撃 ...
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 最新 ニュース · 【社説】欧州に広がる若者デモ 将来の不安に向き合い、対話を尽くせ · デモの出口、見えぬ フランス 財政悪化、政府の物価高対策にも足かせ · 暴動、広がる混乱 ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/20: フランス 、一部地域に夜間外出禁止令 欧州各地にも抗議行動広がる; 10/19: フランス 大統領「破壊行為には代償を」 全土で暴動や略奪、2人が死亡 ...
+
+### South Korea (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Jennie (singer)](https://en.wikipedia.org/wiki/Jennie_(singer)) — Jennie Kim (Korean: 김제니; born January 16, 1996) is a South Korean singer, rapper, songwriter, and actress. Born in South Korea, she moved to New Zealand in 2004 and returned to South Korea to successfully audition for YG Entertainment in 2010.
+- [Lee Choon-jae](https://en.wikipedia.org/wiki/Lee_Choon-jae) — Lee Choon-jae (Korean: 이춘재; born January 31, 1963), also known as the Hwaseong Serial Killer, is a South Korean serial killer known for committing the Hwaseong serial murders (Korean: 화성 연쇄 살인 사건). Between 1986 and 1994, Lee murdered fifteen women and girls in addition to committing numerous sexual assaults, predominantly in Hwaseong, Gyeonggi Province, and the surrounding areas.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Lee Sun-kyun](https://en.wikipedia.org/wiki/Lee_Sun-kyun) — Lee Sun-kyun (Korean: 이선균; March 2, 1975 – December 27, 2023) was a South Korean actor. Internationally, he was best known for his role in Bong Joon-ho's Academy Award–winning film Parasite (2019), for which he won an Actor Award along with his castmates.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Ukraine (Japanese)` `2026-10`
+
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — 14時間前. ウクライナ 向け迎撃弾未納の可能性、政治的意図はない＝米国務長官 · 14時間前. ロシア、 ウクライナ 西部のエネ施設にも攻撃拡大 停電相次ぐ · 8時間前.
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — 最新 ニュース · ロシアの攻撃で発生した火災に放水する ウクライナ の消防士 · ウクライナ 兵をつり上げた大型ドローンが飛行している · 灰色の空の下、水に面した低層の施設から ...
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — 2026. 10/20: 幼少時にロシアで描いた反戦の絵、4年経った今も少女の人生に影を落とす · ロシアの人工衛星、許可なく他国の衛星に異例の接近; 10/19: トランプ氏、 ...
+- [ロシアの ウクライナ 侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — ウ軍 ドローンで空から負傷兵救出. 352. 10/19(月) 23:55 ; 対露制裁見送り 米ウの亀裂深刻. 946. 10/18(日) 15:59 ; ロシア 最激戦地「制圧」と主張. 514. 10/17(土) 11:03.
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — 2026年10月19日. プーチン大統領、米中ロ3者会談提案か 11月のAPEC首脳会議で · 2026年10月17日. プーチン氏、 ウクライナ 「緩衝地帯」返さない 事実上の要求引き上げ · 2026 ...
+- [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ウクライナ大統領が米代表団と会談へ 侵攻終結巡り協議、難航も ―ノルウェー(10月20日 19:07) · 韓国、在ウクライナ大使館員を一部引き揚げ 大使召還に続く措置―北朝鮮兵捕虜 ...
+- [ウクライナ にロシアが侵略 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/22012404) — 【日経】2022年2月、ロシアが ウクライナ に侵略しました。戦況や世界各国の動きなど、関連する最新 ニュース と解説をまとめました。
+- [ウクルインフォルム通信](https://www.ukrinform.jp/) — トップ ニュース · ロシア軍の無人機攻撃によりキーウ近郊の幹線道路で車両炎上 3名死亡、4名負傷. 写真 · ゼレンシキー宇大統領、ロシア軍攻撃による児童の死亡にコメント ...
+
+### Iran (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Iran (English)` `2026-10`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests were a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [TikTok in Iran](https://en.wikipedia.org/wiki/TikTok_in_Iran) — TikTok in Iran, despite being heavily restricted due to domestic policies (Internet censorship) and international sanctions, holds significant cultural, social, and political importance. Following the lifting of restrictions on Iranian user registration in 2023, Iranians were able to access the platform using VPNs.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
+- [List of wars involving Iran](https://en.wikipedia.org/wiki/List_of_wars_involving_Iran) — This is a list of wars involving the Islamic Republic of Iran, excluding its predecessor states. It is an unfinished historical conspectus.
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Egypt (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Egypt (English)` `2026-10`
+
+- [Al-Masry Al-Youm](https://en.wikipedia.org/wiki/Al-Masry_Al-Youm) — Al-Masry Al-Youm (Arabic: المصري اليوم, romanized: al-Maṣrī l-Yawm, IPA: [elˈmɑsˤɾi lˈjoːm], meaning The Egyptian Today) is an Egyptian privately owned daily newspaper that was first published in June 2004. It is published in Arabic as is its website, almasryalyoum.com.
+- [Assassination of Anwar Sadat](https://en.wikipedia.org/wiki/Assassination_of_Anwar_Sadat) — On 6 October 1981, Anwar Sadat, the 3rd president of Egypt, was assassinated during the annual victory parade held in Cairo to celebrate the victory over Israel in the Yom Kippur War. The assassination was undertaken by members of the Egyptian Islamic Jihad.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Gods of Egypt (film)](https://en.wikipedia.org/wiki/Gods_of_Egypt_(film)) — Gods of Egypt is a 2016 American fantasy action film directed by Alex Proyas based on ancient Egyptian deities. It stars Nikolaj Coster-Waldau, Brenton Thwaites, Chadwick Boseman, Élodie Yung, Courtney Eaton, Rufus Sewell, Gerard Butler, and Geoffrey Rush.
+

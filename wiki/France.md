@@ -286,3 +286,16 @@ Tags: `Ukraine (Japanese)` `2026-10`
 - [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ロシアはウクライナの非軍事化などを要求して全面攻撃を仕掛けたが、首都キーウの短期制圧に失敗 。欧米の支援を受けたウクライナが徹底抗戦し、戦闘は長期化した。25年1 ...
 - [ロシアの ウクライナ 侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — 米 ロ軍ミサイル警戒情報の共有を再び停止か ウクライナ事前避難困難に 米側は否定 · ロシアがウクライナに大規模空爆、情報共有巡りゼレンスキー氏不満表明 · ウクライナ、 ...
 
+### France(検索日時 / searched at: 2026-10-20)
+
+Tags: `France` `2026-10`
+
+- [Île-de-France](https://fr.wikipedia.org/wiki/%C3%8Ele-de-France) — L'Île-de-France est une région historique et administrative française. Il s'agit d'une région très fortement peuplée, qui représente à elle seule 18,8 % de la population de la France métropolitaine sur seulement 2,2 % de sa superficie, ce qui en fait la région la plus peuplée (12,46 millions d'habitants en 2023) et la plus densément peuplée (1 038 hab/km2) de France.
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Fabrice Arfi](https://fr.wikipedia.org/wiki/Fabrice_Arfi) — Fabrice Arfi, né le 4 septembre 1981 à Lyon, est un journaliste français. Il est connu pour ses enquêtes à l'origine de nombreuses révélations sur l'affaire Woerth-Bettencourt, l'affaire Karachi, l'affaire Sarkozy-Kadhafi, l'affaire des quotas de carbone et l'affaire Cahuzac.
+- [Audrey Goutard](https://fr.wikipedia.org/wiki/Audrey_Goutard) — Audrey Goutard est une journaliste française de presse écrite, radio et télévision, aussi réalisatrice et écrivaine.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+

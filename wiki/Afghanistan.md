@@ -400,3 +400,37 @@ Tags: `Austria (English)` `2026-10`
 - [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
 - [Santorini International Airport](https://en.wikipedia.org/wiki/Santorini_International_Airport) — Santorini International Airport (Greek: Διεθνής Αερολιμένας Σαντορίνης) (IATA: JTR, ICAO: LGSR) is an airport in Santorini, Greece, located north of the village of Kamari. The airport serves as both a military and a civil airport.
 
+### Afghanistan(検索日時 / searched at: 2026-10-20)
+
+Tags: `Afghanistan` `2026-10`
+
+- [افغانستان](https://ps.wikipedia.org/wiki/%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86) — افغانستان په رسمي توګه د افغانستان اسلامي امارت په غرونو کې کلابند يو غرنيز او سمسور هېواد دی چې د "۴۳ میلیونه" وګړو او «۶۵۲۸۶۴» کیلومتره مربع ځمکي په درلودلو سره د آسيا په زړه کي پروت دی. په ټولیزه توګه دا هېواد د منځنۍ اسيا يوه ستراتېژیکه سیمه ګڼل کېږي چي په لوېدیځ کي له ایران، په شمال لوېدیځ کي له ترکمنستان، په شمال کي له ازبکستان او تاجکستان او په شمال ختیځ کي له چین سره ګډې پولې لري.
+- [د لنډې کيسې تاريخچه](https://ps.wikipedia.org/wiki/%D8%AF_%D9%84%D9%86%DA%89%DB%90_%DA%A9%D9%8A%D8%B3%DB%90_%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%DA%86%D9%87) — 
+- [انځور خبريالي](https://ps.wikipedia.org/wiki/%D8%A7%D9%86%DA%81%D9%88%D8%B1_%D8%AE%D8%A8%D8%B1%D9%8A%D8%A7%D9%84%D9%8A) — د ليكلو توكيو ترڅنگ د انځورونو خپراوى د انځوريزې خبريالۍ په نوم ياديږي. په اوسني پرمختللي پېر كې انځورخبريالي دډله یيزو رسنيو يوه بايده برخه گرځېدلې او له انځور پرته د ورځپاڼو خپراوى ناشونى او بيخونده برېښي.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — Tajikistan · スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ タジキスタン 政府 · 中国の習主席、上海協力機構会議出席へ カザフ・ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · 「 タジキスタン に輸出」香港で開封の形跡 日本産牛肉、19～24年850トン 貿易商「うそつらい」 · 偽りの輸出先、国産牛肉どこへ · 結び合い、ありがとう ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース · 消費税減税後の支援金、高市首相「年収350万円上限で2000万人に支給」… · 中国産ウナギを「愛知県一色町から厳選仕入れ」、偽装販売の疑いで販売会社 ...
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — …のみ中国代表は6日、国際親善試合で当時FIFAランキング101位の タジキスタン 代表と対戦し、0−1で敗れた。9月と10月の代表ウィークで4試合を戦っ…
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — 「屈辱的記録を次々更新」中国代表、 タジキスタン に史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も痛ましい」 · タジキスタン で露主導のバックギャモン国際 ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Ukraine (English)` `2026-10`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Disinformation in the Russian invasion of Ukraine](https://en.wikipedia.org/wiki/Disinformation_in_the_Russian_invasion_of_Ukraine) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Ukraine bioweapons conspiracy theory](https://en.wikipedia.org/wiki/Ukraine_bioweapons_conspiracy_theory) — In March 2022, during the Russian invasion of Ukraine, Russian officials falsely claimed that public health facilities in Ukraine were "secret U.S.-funded biolabs" purportedly developing biological weapons, which was debunked by multiple media outlets, scientific groups, and international bodies. The claim was amplified by China's Ministry of Foreign Affairs and Chinese state media, and was also promoted by followers of the QAnon conspiracy theory and subsequently supported by other far-right groups in the United States.
+- [2025 Trump–Zelenskyy Oval Office meeting](https://en.wikipedia.org/wiki/2025_Trump%E2%80%93Zelenskyy_Oval_Office_meeting) — On February 28, 2025, U.S. president Donald Trump and U.S. vice president JD Vance held a highly contentious bilateral meeting with Ukrainian president Volodymyr Zelenskyy inside the Oval Office at the White House in Washington, D.C. Televised live and arranged with the intention to discuss continued U.S. support for Ukraine in repelling the ongoing Russo-Ukrainian war, it was expected to conclude with the signing of the Ukraine–United States Mineral Resources Agreement; however, the meeting ended abruptly and without a clear resolution. During its last ten minutes, Trump and Vance repeatedly criticized Zelenskyy, at times drowning out his voice.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+

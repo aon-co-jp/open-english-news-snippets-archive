@@ -351,3 +351,55 @@ Tags: `Philippines` `2026-10`
 - [Balita - Balita](https://balita.mb.com.ph/balita/) — 1 day ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
 - [Balita - National](https://balita.mb.com.ph/national/) — 14 hours ago - Ang Nangungunang Pahayagang Tagalog sa Bansa National
 
+### Philippines(検索日時 / searched at: 2026-10-20)
+
+Tags: `Philippines` `2026-10`
+
+- [Pinakamuling Balita sa Pilipinas Ngayon (Tagalog News Headlines)](https://www.randall-travel-award.missouri.edu/latest-news-in-the-philippines-today-tagalog-1326637427.html) — June 24, 2026 - Balita sa buong bansa, kabilang ang mga pangunahing pangyayari sa politika, ekonomiya, at lipunan , ay patuloy na iniiwasan ng mga mamamayan ang pagsusuri sa mga detalye. Sa tuwing may nangyayari sa Pilipinas, mahalaga ang agwat na mabilis at tumpak sa pagsasalin sa wikang Filipino.
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 3 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Kinuwestiyon ni Chairman Emeritus Dr. Jose Antonio Goitia kung bahagi ng mas malawak na estratehiya ng Tsina ang tumitinding mga kilos nito sa West Philippine Sea upang pahinain ang paninindigan ng Pilipinas.
+- [Balita Sa Tagalog Ngayong Araw | Balitambayan](https://www.gmanetwork.com/news/balitambayan/) — 17 hours ago - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Tinukoy ni Interior Secretary Jonvic Remulla ang politiko mula sa Mindanao na umano’y sangkot sa tangkang pagpupuslit ng shabu na nagkakahalaga ng P3.5 bilyon mula sa Laos na patungong Pilipinas. ... Naglabas ang National Bureau of Investigation (NBI) ng mga subpoena sa mga miyembro ng podcast na "Machong Chismisan" matapos ang kanilang mga pahayag tungkol kay Joshua "Josh" Aquino, anak ni Kris Aquino. ... Dalawang lalaki ang pinaghahahanap ngayon matapos nilang paghahampasin hanggang sa mamatay ang isang aso sa Barangay Buliwao sa Quezon, Nueva Vizcaya.
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — A portal of daily newspapers covering Philippine news headlines, business, lifestyle, advertisement, sports and entertainment. Also delivers Manila and Cebu news.
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — 1 week ago - Philippine Entertainment Tabloid for the latest showbiz news
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 12 hours ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance Corporation.
+- [List of vice presidential trips made by JD Vance](https://en.wikipedia.org/wiki/List_of_vice_presidential_trips_made_by_JD_Vance) — This is a list of vice presidential trips made by JD Vance during his tenure as the 50th vice president of the United States. This list excludes trips made within Washington, D.C., the U.S. federal capital, in which the Number One Observatory Circle, the official residence of the vice president, is located.
+
+### Russia (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Russia (English)` `2026-10`
+
+- [What in JavaScript can make both contentEditable and textarea unable to recieve any input?](https://stackoverflow.com/questions/26450780) — - box-1 ["Russia Today", "http://rt.com/"], ["Reuters", "http://www.reuters.com/"], ["Al Jazeera", "http://america.aljazeera.com/"], ["The Raw Story", "http://rawstory.com/"], &hellip; http://whatshouldireadnext.com/"], ["Which Book", "http://www.openingthebook.com/whichbook/"], ["TechRaptor", "http://techraptor.net/"], ["TechCrunch", "http://techcrunch.com/"], ["Gamer Headlines &hellip;
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Propaganda in Russia](https://en.wikipedia.org/wiki/Propaganda_in_Russia) — Propaganda in Russia promotes views, perceptions, or agendas of the government of Russia. The media include state-run outlets and online technologies, and may involve using "Soviet-style 'active measures' as an element of modern Russian 'political warfare.'" Notably, contemporary Russian propaganda promotes the cult of personality of Vladimir Putin and positive views of Soviet history.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — That should worry Trump.", "description": "More legal pressure on Manafort=more chance he'll flip in the Russia investigation.", "url": "https://www.washingtonpost.com/news/the-fix &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — { Observable, of } from 'rxjs'; import { switchMap } from 'rxjs/operators'; @Injectable() export class SportsService implements OnInit { sports: any = []; _urll = 'https://newsapi.org/v2/top-headlines &hellip; 'Bentley' on 25th birthday", "description": "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social &hellip;
+- [Links between Trump associates and Russian officials](https://en.wikipedia.org/wiki/Links_between_Trump_associates_and_Russian_officials) — Since Donald Trump was a 2016 candidate for president of the United States, multiple suspicious links between Trump associates and Russian officials were discovered by the FBI, a special counsel investigation, and several United States congressional committees, as part of their investigations into Russian interference in the 2016 United States elections. Following intelligence reports about the Russian interference, Trump and some of his campaign members, business partners, administration nominees, and family members were subjected to intense scrutiny to determine whether they had improper dealings during their contacts with Russian officials.
+- [Show HN: Forty.News – Daily news, but on a 40-year delay](https://forty.news) — Hacker News · 443 points · 180 comments · 2025-11-22
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 関連の最新 ニュース を24時間体制で多面的に展開。中国との関係や内政、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [台湾 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/taiwan) — 台湾 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 19日 17:09. 中国の9月新築住宅価格、 主要 都市の7割で下落 · 19日 17:00. 中国、日本政府へ「強烈な抗議」 高市首相の玉串料奉納に · 19日 17:00. 三菱電機、車事業はEV制御 ...
+- [最新 | フォーカス 台湾 - 中央社日本語版 - Focus Taiwan](https://japan.focustaiwan.tw/news) — 最新 · テコンドー男子の蕭翔文が金 アジアパラ大会、 台湾 勢のメダル1号 · 中国によるAI利用の選挙介入が巧妙化 社会の対立激化狙う＝国安関係者／ 台湾 · 「レシートくじ」 ...
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「 台湾 」 ニュース 一覧 · 三菱電機 自動車部品子会社にホンハイの出資受け入れで会見 · 台湾 TSMC過去最高益「需要減速の兆候なし」 · 自民 古屋前選対委員長 台湾 訪問 頼総統と ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 外交部の林佳龍部長、ワルシャワ安全保障フォーラムで基調講演 · 国立 台湾 歴史博物館、地方の女神だった媽祖が「天后」へとその地位を変えた過程を紹介する特別展.
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · テコンドー男子の蕭翔文が金 アジアパラ大会、台湾勢のメダル1 号 · 中国によるAI利用の選挙介入が巧妙化 社会の対立激化狙う＝国安関係者／台湾 ...
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — テコンドー男子の蕭翔文が金 アジアパラ大会、 台湾 勢のメダル1号 · 中国によるAI利用の選挙介入が巧妙化 社会の対立激化狙う＝国安関係者／ 台湾 · 李登輝元総統植樹の ...
+

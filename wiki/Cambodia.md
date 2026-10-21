@@ -445,3 +445,42 @@ Tags: `Cambodia` `2026-10`
 - [សំណួរ និងចម្លើយចំនួន៨ កម្ពុជា ឆ្លើយតបថៃ ពាក់ព័ន្ធបញ្ហាព្រំដែន](https://m.freshnews.com.kh/localnews/415621-2026-01-20-11-08-50) — January 20, 2026 - សំណួរទី១៖ ភាគីថៃអះអាងថា ការរក្សាវត្តមានកងទ័ពរបស់ខ្លួននៅលើទឹកដីកម្ពុជា គឺ ស្របតាមសេចក្តីថ្លែងការណ៍រួមថ្ងៃទី ២៧ ខែធ្នូ «យ៉ាងម៉ឺម៉ាត់» ហើយមិនមែនជាការ «កាន់កាប់» នោះទេ។ តើកម្ពុជាមើលឃើញយ៉ាងណាចំពោះការបកស្រាយនេះ? ចម្ល
 - [ព័ត៌មានកម្ពុជា](https://www.youtube.com/playlist?list=PL1ie9jay6H_CQZROxOD2XmLhjZDdgi3Cw) — AboutPressCopyrightContact usCreatorsAdvertiseDevelopersTermsPrivacyPolicy & SafetyHow YouTube worksTest new features · © 2026 Google LLC · ព័ត៌មានកម្ពុជា - YouTube
 
+### Cambodia(検索日時 / searched at: 2026-10-20)
+
+Tags: `Cambodia` `2026-10`
+
+- [កម្ពុជាថ្ងៃនេះ - Cambodia Today - កម្មវិធី​នីមួយៗ](https://khmer.voanews.com/z/2690) — August 1, 2026 - កម្ពុជាថ្ងៃនេះ (Cambodia Today) នាំជូនមក​នូវ​សេចក្តី​រាយការណ៍​ជា​វីដេអូស្តី​អំពី ព័ត៌មាន​និង​ព្រឹត្តិការណ៍​ទាក់ទងនឹង​កម្ពុជា ទាំង​ក្នុង​និង​ក្រៅ​ប្រទេស។ - កម្មវិធី​នីមួយៗ
+- [ព័ត៌មាន​ថ្មីៗ Archives - The Cambodia Daily Khmer](https://www.cambodiadaily.com/category/latest/) — កម្ពុជាច្រានចោលការទាមទារព្រំដែនជាឯកតោភាគីរបស់ថៃ និងចោទថាបន្តរំលោភកិច្ចព្រមព្រៀងទ្វេភាគី ...
+- [កម្ពុជាថ្ងៃនេះ | Sihanoukville (city) | Facebook](https://www.facebook.com/camdaynews/) — ព័ត៌មាន បឋម៖ ករណីអគ្គីយភ័យឆា/បឆេះយ៉ាងសន្ធោសន្ធៅ នៅក្រោយផ្ទះសំណាក់ប៉ៃលិន (កន្លែងចាក់សម...
+- [ព័ត៌មានជាតិ – TVK Cambodia](https://www.tvk.gov.kh/category/national/) — 1 week ago - នៅរសៀលថ្ងៃទី០៩ ខែតុលា ឆ្នាំ២០២៦ ឯកឧត្តម ឡេ មិញហុឹង នាយករដ្ឋមន្រ្តីនៃសាធារណរដ្ឋសង្គមនិយមវៀតណាម បានអញ្ជើញមកបំពេញទស្សនកិច្ចផ្លូវការនៅព្រះរាជាណាចក្រកម្ពុជា ចាប់ពីថ្ងៃទី០៩ ដល់ថ្ងៃទី១០…
+- [ព័ត៌មានជាតិ - Kampuchea Thmey Daily](https://www.kampucheathmey.com/category/local-news) — ព័ត៌មានជាតិ២៤ ម៉ោង មុន · សម្ដេចធិបតីប្រាប់ទៅលោក អ៊ំ សំអាន អាចពឹងទូតបរទេសជួយតាមដាន បើមិនទុកចិត្តពីការធានាសុវត្ថិភាពលើដីកម្ពុជា...
+- [ព័ត៌មានកម្ពុជា](https://www.youtube.com/playlist?list=PL1ie9jay6H_CQZROxOD2XmLhjZDdgi3Cw) — AboutPressCopyrightContact usCreatorsAdvertiseDevelopersTermsPrivacyPolicy & SafetyHow YouTube worksTest new features · © 2026 Google LLC · ព័ត៌មានកម្ពុជា - YouTube
+- [Home - The Cambodia Daily Khmer](https://www.cambodiadaily.com/) — February 20, 2025 - ប្រធានាធិបតី​ភូមា ឧត្ដមសេនីយ៍ មីន អ៊ុងឡាំង កាលពី​ថ្ងៃ​ព្រហស្បតិ៍ ទី​៣០ ខែ​មេសា ឆ្នាំ​២០២៦ បាន​បញ្ជា​ឱ្យ​ផ្ទេរ​អ្នកស្រី អ៊ុងសាន ស៊ូជី ទៅ​ឃុំ​ខ្លួន​ក្នុង​ផ្ទះ គឺ ៥​ឆ្នាំ​បន្ទាប់ពី​ចាប់​ឃុំ​ខ្លួន​អ្នកស្រី​អំឡុង​ក
+- [ក្រសួងព័ត៌មាន](https://www.information.gov.kh/) — ប្លែក លឿន ទុកចិត្តបាន នៅពេលណា ទីណាក៏បាន
+
+### Italy (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Italy (English)` `2026-10`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+
+### Russia (Japanese)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Russia (Japanese)` `2026-10`
+
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 10/20: 幼少時に ロシア で描いた反戦の絵、4年経った今も少女の人生に影を落とす · ロシア の人工衛星、許可なく他国の衛星に異例の接近; 10/19: トランプ氏、 ...
+- [「 ロシア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — 「 ロシア 」 ニュース 一覧 · トランプ大統領 習主席・プーチン大統領との3者会談実現に意欲 · 記者拘束“領事面会実現せず遺憾 即時解放求める”官房長官 · 「声を上げ続けて」 ...
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ロシア · ウクライナ兵をつり上げた大型ドローンが飛行している · ロシア の攻撃で発生した火災に放水するウクライナの消防士 · 灰色の空の下、水に面した低層の施設から炎と ...
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — ロシア · 20時間前. 教皇、ゼレンスキー氏に ロシア との協力要請 人道危機下のオレシキ支援巡り · 19時間前. 米ロ中首脳会談に前向き、非核化協議の可能性＝トランプ氏 · 18 ...
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · 戦争は兵器の数だけでは勝てない、イランとウクライナが突きつける大国の軍事的優位の限界 · ウクライナ軍の「ヴィヴァルディ作戦」、大型ドローンで地上無人車両を ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — 日ロ関係のいまを追う。 記者拘束、プーチン氏の北方領土訪問に続く 13日、 ロシア 極東ユジノサハリンスク。北海道新聞の記者が泊まるホテルの一室に覆面姿の連邦保安局（ ...
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — Russia · プーチン氏、ドネツク州完全制圧は「 主要 目標」 · ロシア 、ウクライナの無人機902機撃墜と発表 モスクワ周辺で180機 · ロシア 、フランスによる船舶拿捕を非難「海賊 ...
+- [ロシア の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/russia/) — ロシア · 「シャヘド型ドローン」が現代の戦争を変えている … · プーチンが直面する「食品インフレ」が戦争継続の要所になる · ウクライナのドローンがロシアの兵器庫に侵入…
+

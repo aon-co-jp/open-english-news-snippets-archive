@@ -360,3 +360,42 @@ Tags: `Italy (Japanese)` `2026-10`
 - [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ. Italy. イタリア 、学校でのブルカ禁止を閣議決定 1クラスの外国人上限を30％に ...
 - [イタリア 新聞 (@ciao_journal) · Milan - Instagram](https://www.instagram.com/ciao_journal/) — わくわくする イタリア 新聞『チャオジャーナル』公式アカウント ミラノを中心に配布しております Periodico italo giapponese pubblicato da Geienneffe ...
 
+### Taiwan(検索日時 / searched at: 2026-10-20)
+
+Tags: `Taiwan` `2026-10`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=uIyZulFA5p0qwwItrUMYoq_nRlPwReGNJYWaH1DE71_) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=uIyZulFA5p0qwwItrUMYov1PcA0pm32-ecNKOlwQmwq) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際資訊](http://www.baidu.com/link?url=3mUrv5UAK1ikF9RPgur67Rd692AgiJeSnHwoYSbF0lPA-jchpJ6QLekY5ViaENjc) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=VcBbhGXg5Z9l9MNhjcNBvPuttNOQJnkC0FgsBcLjJrJR4JifNInpF2IWLr9l8n5o) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-手机闽南网](http://www.baidu.com/link?url=3mUrv5UAK1ikF9RPgur67Sv_K5KUIu6SffI7nIZdvGhggLORUDP9rbXUhgVAYNj2) — 
+- [中国 台湾 网](http://www.baidu.com/link?url=5GHSbPsfryhwlAvg8eeECZ9kcUVwHs08QjotkDaowH3) — 
+- [即时 新闻 _新华 台湾 _新华网](http://www.baidu.com/link?url=5GHSbPsfryhwlAvg8eeECX4uO2pA4HqKC8R66QaAK13Hk9clMtxdCg1j8ii74m2W) — 
+- [TVBS新聞網 - 最受信任的台灣新聞媒體](https://news.tvbs.com.tw/) — 五月天吉他手石頭驚傳萌生退團念頭，據悉主因是連年高強度巡演導致腰椎滑脫舊疾頻繁復發，加上妻小已移居英國，讓他難以兼顧事業與家庭。圈內友人透露，向來深思熟慮的石頭曾吐露離團想法，絕非一時衝動。對此，所屬相信音樂否認傳聞，強調五月天目前只是休息中，演唱會電影即將與大家見面。 ... 薔琵颱風將達巔峰，最新颱風路徑預估可能登陸台灣或通過台灣近海，各國路徑預測有很大分歧，氣象專家賈新興預估，23 日清晨 04:00 暴風圈邊緣有機會碰觸東北角陸地，接下來氣溫溜滑梯，北部變天炸雨。
+
+### China (Japanese)(検索日時 / searched at: 2026-10-20)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国、きらめく高層ビルに空室 オフィスに潜むもう一つの不動産問題 正午から生解説 · 中国CATL純利益32%増 1〜9月期、海外向け電池販売が好調 · バイトダンスなど3社、 ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 中国複数当局が「科学技術による商業・貿易振興」推進を加速 · 李強総理がタジキスタンのラフモン大統領と会談 · 94歳の男性が43時間列車に乗り西蔵へ一人旅 · 若者の間で「水 ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国、南シナ海巡り米海軍艦「違法」侵入と非難 台湾船と対峙も · 台湾東方での中国哨戒活動、米議会諮問委トップ「不安定化招く」 · 中国が11月に孫文生誕記念行事、台湾が ...
+- [Xinhua - jp. news .cn](https://jp.news.cn/) — 中国 ・武漢で第15回琴台音楽祭開幕 · 北京マラソン開催 天安門広場前で快走 · 政治 · 中国 国務院台湾事務弁公室、頼清徳の演説を批判 台湾海峡の平和と安定損なう · 中国 ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 中国 政府主導で香港に開業してから1年となった「. 中国 調停院、署名48カ国 開業1年、G7含まれず. 18時12分. 共同通信.
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/17: 中国 、解任された米大統領報道官に再訪呼び掛け 「まともなトイレがない」発言受け; 10/09: 中国 、ラオス北西部に基地開設 かつてCIAが使用した飛行場 ...
+- [【ライブ】『 中国 に関する ニュース 』約1年ぶり米中首脳会談 ...](https://www.youtube.com/watch?v=NtzYaJZVQQ8) — 2023/11/16 ... 【ライブ】『 中国 に関する ニュース 』約1年ぶり米中首脳会談 実現の背景には何が… / 首脳会談終え 中国 ・習主席、米 主要 企業幹部との夕食会 など ニュース ...
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-20)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- [Elections in Afghanistan](https://en.wikipedia.org/wiki/Elections_in_Afghanistan) — Though Afghanistan has had democratic elections throughout the 20th century, the electoral institutions have varied as changes in the political regime have disrupted political continuity. Elections were last held under the Islamic Republic of Afghanistan, which was deposed by the Taliban in August 2021.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [2026 Shpageeza Cricket League](https://en.wikipedia.org/wiki/2026_Shpageeza_Cricket_League) — The 2026 Shpageeza Cricket League (also known as for sponsorship reasons as 2026 e& Shpageeza Cricket League) was the 11th edition of the Shpageeza Cricket League, a professional Twenty20 cricket (T20) league established by the Afghanistan Cricket Board (ACB) in 2013, and the seventh edition to have official T20 status. On 20 June 2026, Afghanistan Cricket Board announced the complete fixtures of the 2026 editions.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [The News Agents](https://en.wikipedia.org/wiki/The_News_Agents) — The News Agents is a British daily podcast produced by Global Media & Entertainment. It is presented by Emily Maitlis, Jon Sopel, and Lewis Goodall.
+- [David Muir](https://en.wikipedia.org/wiki/David_Muir) — David Jason Muir ( MURE; born November 8, 1973) is an American journalist and anchor for ABC World News Tonight and co-anchor of the ABC News magazine 20/20, part of the news department of the ABC broadcast-television network, based in New York City. Muir previously served as the weekend anchor and primary substitute anchor on ABC's World News Tonight with Diane Sawyer before succeeding her on September 1, 2014.
+
