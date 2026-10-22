@@ -568,3 +568,94 @@ Tags: `Thailand (English)` `2026-10`
 - [Tawanchai P.K. Saenchaimuaythaigym](https://en.wikipedia.org/wiki/Tawanchai_P.K._Saenchaimuaythaigym) — Narongsak Kaewmala (Thai: ณรงค์ศักดิ์ แก้วมาลา; born April 7, 1999), known professionally as Tawanchai P.K.Saenchai (Thai: ตะวันฉาย พี.เค.แสนชัย) is a professional Muay Thai fighter and kickboxer. He currently competes in the Featherweight division of ONE Championship, where he is the former ONE Featherweight Muay Thai World Champion.
 - [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
 
+### Tajikistan(検索日時 / searched at: 2026-10-21)
+
+Tags: `Tajikistan` `2026-10`
+
+- [Хабарҳо - Хабарҳои муҳими имрӯз ва рӯйдодҳои ...](https://sputnik.tj/khabarho/) — Хабарҳо - Хабарҳои муҳими имрӯз ва рӯйдодҳои асосии марбут ба мавзӯъ - Sputnik Тоҷикистон
+- [ИмрӯзNews](https://imruz.tj/) — 17 hours ago · Актуальные новости Таджикистана, региона и мира.
+- [Тоҷикистон — ИмрӯзNews](https://imruz.tj/tj/category/news-of-tajikistan-tj/) — Sep 27, 2026 · Президенти Тоҷикистон Эмомалӣ Раҳмон имрӯз, 28 сентябр, дар шаҳри Хоруғ бо роҳбарону фаъолони …
+- [Имрӯз парвози мустақим байни Душанбе ва Минск ...](https://khabarikhush.tj/tg/2026/08/29/imr%D3%AFz-parvozi-musta%D2%9Bim-bajni-dushanbe-va-minsk-kushoda-shud/) — Aug 29, 2026 · Ин чорабинӣ як қадами муҳим дар таҳкими робитаҳои Тоҷикистону Беларус гардид, ки ба рушди муносибатҳои …
+- [Иқтисод - Хабарҳои муҳими имрӯз ва рӯйдодҳои ...](https://sputnik.tj/economy/) — Хабарҳои охирини пайванд ба мавзӯъ Иқтисод: Саҳми вилояти суғд дар ҳаҷми умумии содироти кишвар ба маротиб …
+- [Асоси - Хабарҳои Тоҷикистон – Садои мустақили ...](https://tajnews.org/) — Sep 21, 2026 · Мо танҳо хабарҳои воқеӣ, арзу шикоятҳо ва масъалаҳои муҳими ҷамъиятиро нашр мекунем — бо риояи …
+- [ТАҚВИМИ АМИТ «ХОВАР»: имрӯз 21 октябр, чоршанбе ...](https://khovar.tj/2026/10/ta-vimi-amit-hovar-imr-z-21-oktyabr-chorshanbe-294-umin-r-zi-soli-2026-ast/) — 14 hours ago · 21 октябри соли 2002 Президенти Ҷумҳурии Тоҷикистон муҳтарам Эмомалӣ Раҳмон Дабири кулли Созмони …
+- [Farmatsevt | Имрӯз барои ҳар як фарди Тоҷикистон ...](https://www.instagram.com/reel/DeF1uHKoExd/) — Бигзор ҳамаи орзуҳои неку нақшаҳои созандаатон амалӣ гарданд ва Тоҷикистони азиз ҳамеша дар фазои сулҳу оромӣ, …
+
+### France (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `France (English)` `2026-10`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Taiwan (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Taiwan (English)` `2026-10`
+
+- [Taiwan-related terms](https://en.wikipedia.org/wiki/Taiwan-related_terms) — Taiwan-related terms are officially-sanctioned words and phrases by the Chinese Communist Party (CCP) and the government agencies of the People's Republic of China (PRC) that they and affiliated non-governmental organizations such as news, media, publishing, and education bodies use when speaking about matters related to Taiwan. These terms include English translations and censored terms.
+- [COVID-19 pandemic in Taiwan](https://en.wikipedia.org/wiki/COVID-19_pandemic_in_Taiwan) — The COVID-19 pandemic in Taiwan was a part of the worldwide pandemic of coronavirus disease 2019 (COVID-19) caused by severe acute respiratory syndrome coronavirus 2 (SARS-CoV-2). As of 19 March 2023 in Taiwan, 10,231,343 are confirmed cases, including 18,775 deaths.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by Taiwan's Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Taiwanese Mandarin](https://en.wikipedia.org/wiki/Taiwanese_Mandarin) — Taiwanese Mandarin, natively referred to as Guoyu (Chinese: 國語; pinyin: Guóyǔ; Zhuyin Fuhao: ㄍㄨㄛˊ ㄩˇ; lit. 'national language') or Huayu (Chinese: 華語; pinyin: Huáyǔ; Zhuyin Fuhao: ㄏㄨㄚˊ ㄩˇ; lit.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイス の 主要 メディアが報じた日本関連 ニュース を週1回、まとめてお届けする無料 ニュース レターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [Schweiz News - Aktuelle Infos - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.alllatestnews.schweiznewspaper&hl=ja) — 2026/06/24 ... スイス の ニュース : スイス および世界中の ニュース を入手してください! もう重要なメッセージを見逃すことはありません。 スイス ニュース を使用 ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — スイス. 最新ニュース. 自閉症の子らにサーフセラピー 由比ケ浜で活動「うみがめくらぶ」 · ボランティアに励まされて子どもたちがサーフィンに挑戦する=2026年10 · 自閉症 ...
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 中外製薬の「エンスプリング」、甲状腺眼症を対象に米国で承認取得 · UBS、 スイス 脱出の切り札 メガバンク・野村は統合相手の伏兵か · スイス 資源大手グレンコア、豪市場で ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス の天気 - ウェザー ニュース](https://weathernews.jp/onebox/tenki/world/5/switzerland/) — 人気の都市ランキング（ スイス ） · スイス の観光地 · スイス の空港 · スイス の雨雲レーダー · 世界各地の天気 · お天気 ニュース · 日本各地の天気予報.
+- [スイス の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/topic/switzerland/page4) — スイス の ニュース ・速報 · 筑波山ロープウエー(筑波観光鉄道提供) · 北斗星（9月13日付） · 新潟県産米を使ったおにぎりを楽しむ参加者＝11日、 · 宮崎県の焼酎を楽しむ ...
+- [スイス のメディアが報じた日本の ニュース ｜4/15号 - Swissinfo](https://www.swissinfo.ch/jpn/various/%E3%82%B9%E3%82%A4%E3%82%B9%E3%81%AE%E3%83%A1%E3%83%87%E3%82%A3%E3%82%A2%E3%81%8C%E5%A0%B1%E3%81%98%E3%81%9F%E6%97%A5%E6%9C%AC%E3%81%AE%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9%EF%BD%9C4-15%E5%8F%B7/91262602) — 2026/04/15 ... このコンテンツが公開されたのは、 2026/08/04 スイス の 主要 報道機関が7月28日～8月3日に伝えた日本の ニュース から、①「友情」の裏には何が？
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — ローマ教皇レオ14世、肺腺がん確認 手術成功 · 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ · イタリア、学校でのブルカ禁止を閣議決定 1クラスの ...
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【新型戦闘機開発へ独が参加 プロジェクト全体の足枷となるか？ · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤 ...
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア・ミラノでも略奪・破壊 暴徒の若者ら警察と衝突 · マクロン仏大統領、暴動めぐり「代償を」 物価高・教育デモには理解 · 「欧州の病人」を待ち構える財政規律の ...
+- [イタリア の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/34887/) — 主要ニュース · トランプ氏が仏大規模デモは移民政策の失敗原因と主張、民主党を「マルクス主義者や移民の党」… · ウクライナ軍、前線の負傷兵を「大型無人機」で初めて救出…
+- [イタリア の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/italia_news) — 2020/06/18 ... イタリア の 主要 メディアまとめ【 ニュース 編】 · 1．la Repubblica · 2．Corriere Della Sera · 3．Il Fatto Quotidiano · 4．La Stampa · 5．Tiscali.
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 10/19: フランス大統領「破壊行為には代償を」 全土で暴動や略奪、2人が死亡; 10/14: 旅客機内にトコジラミ、カンタス便が欠航に 「所持品や衣類の上をはう虫が…
+- [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
+
+### Japan (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Japan (English)` `2026-10`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+
+### Egypt (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Egypt (English)` `2026-10`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Al-Masry Al-Youm](https://en.wikipedia.org/wiki/Al-Masry_Al-Youm) — Al-Masry Al-Youm (Arabic: المصري اليوم, romanized: al-Maṣrī l-Yawm, IPA: [elˈmɑsˤɾi lˈjoːm], meaning The Egyptian Today) is an Egyptian privately owned daily newspaper that was first published in June 2004. It is published in Arabic as is its website, almasryalyoum.com.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Gods of Egypt (film)](https://en.wikipedia.org/wiki/Gods_of_Egypt_(film)) — Gods of Egypt is a 2016 American fantasy action film directed by Alex Proyas based on ancient Egyptian deities. It stars Nikolaj Coster-Waldau, Brenton Thwaites, Chadwick Boseman, Élodie Yung, Courtney Eaton, Rufus Sewell, Gerard Butler, and Geoffrey Rush.
+

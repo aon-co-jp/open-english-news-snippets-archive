@@ -369,3 +369,42 @@ Tags: `Brazil (English)` `2026-10`
 - [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable network. Owned by CNN Worldwide, the network primarily carries true-crime programming, recently drifting away from limited live news programming.
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 
+### Switzerland(検索日時 / searched at: 2026-10-21)
+
+Tags: `Switzerland` `2026-10`
+
+- [20 Minuten: Aktuelle Nachrichten, Schlagzeilen - News von Jetzt](https://www.20min.ch/) — Alle News auf einen Blick: Beim grössten Schweizer Nachrichtenportal findest du 24/7 Aktuelles, Bilder, Hintergründe und Videos aus …
+- [Schweiz - aktuelle Nachrichten - tagesschau.de](https://www.tagesschau.de/thema/schweiz) — 30. Aug. 2026 · Schweiz - Nachrichten und Information: An 365 Tagen im Jahr, rund um die Uhr aktualisiert, die wichtigsten News auf …
+- [Aktuelle News aus der Schweiz und weltweit – SRF](https://www.srf.ch/news) — SRF News: Nachrichten aus den Bereichen US-Wahlen 2024, Ukraine, Klima, Schweiz, International, Wirtschaft, Gesellschaft und …
+- [Schweizer Nachrichten heute | SchweizHeute](https://schweizheute.com/de) — SchweizHeute: offizielle Nachrichten aller 26 Kantone und des Bundes, KI-gestützt in drei klare Punkte zusammengefasst — …
+- [Blick: Nachrichten und Schlagzeilen aus der Schweiz und ...](https://www.blick.ch/) — 23. Sept. 2025 · Aktuelle Nachrichten, News und Kommentare aus Wirtschaft, Politik, Sport, Kultur, Gesellschaft, Wissen & Lifestyle …
+- [Schweiz heute | Überregionale News aus der Schweiz](https://www.schweizheute.ch/) — Vor einem Tag · Lesen Sie neu alle Inhalte unserer Regionalzeitungen bequem auf Ihrem News-Portal.
+- [Schweiz News: Aktuelle Nachrichten zum Staat in Europa](https://www.handelsblatt.com/themen/schweiz) — Vor einem Tag · Die Schweiz ist ein Staat in Europa. Lesen Sie hier aktuelle News und neueste Nachrichten von heute zur Schweiz.
+- [Schweiz – News und Hintergründe zum Inland | NZZ Nachrichten](https://www.nzz.ch/schweiz) — 23. Sept. 2026 · Aktuelle News zur Schweiz, Abstimmungen, Sessionen und Inlandspolitik – umfassend informiert mit der Neuen …
+
+### Tajikistan (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Tajikistan (English)` `2026-10`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people: 11 men, 3 women, and a 10-year-old girl.
+- [Jihadi John](https://en.wikipedia.org/wiki/Jihadi_John) — Mohammed Emwazi (born Muhammad Jassim Abdulkarim Olayan al-Dhafiri; Arabic: محمد جاسم عبد الكريم عليان الظفيري), commonly referred to as Jihadi John (17 August 1988 – 12 November 2015), was a British militant of Kuwaiti origin seen in several videos produced by the Islamist extremist group Islamic State (IS) showing the beheadings of a number of captives in 2014 and 2015. A group of his hostages nicknamed him "John" since he was part of a four-person terrorist cell with English accents whom they called 'The Beatles'; the press later began calling him "Jihadi John".
+- [Zapad 2025](https://en.wikipedia.org/wiki/Zapad_2025) — Zapad 2025 (Russian: Запад-2025, Belarusian: Захад-2025, romanized: Zakhad-2025, lit. 'West 2025') was a Russian-Belarusian joint strategic military exercise, that took place in Belarus on 12–16 September 2025. Belarus has said the drills will test the Union State's defensive readiness, with main activities staged at central training areas near Barysaw and a reciprocal movement of units between the two states.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer serving since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 関連の最新 ニュース を24時間体制で多面的に展開。中国との関係や内政、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国・台湾 · 中国の若年失業率、9月18%と過去3番目の高さ 前月比で改善 · 配車大手グラブの台湾フードパンダ買収を阻止 競争当局 · 中国CATL、3割増益も先に待つ試練 EV電池 ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 外交部の林佳龍部長、ワルシャワ安全保障フォーラムで基調講演 · 国立 台湾 歴史博物館、地方の女神だった媽祖が「天后」へとその地位を変えた過程を紹介する特別展.
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「 台湾 」 ニュース 一覧 · 三菱電機 自動車部品子会社にホンハイの出資受け入れで会見 · 台湾 TSMC過去最高益「需要減速の兆候なし」 · 自民 古屋前選対委員長 台湾 訪問 頼総統と ...
+- [「 台湾 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/taiwan/) — 2026. 09/25: 電車の優先席めぐり乗客が乱闘、動画拡散で議論噴出 東アジア · 習氏、トランプ氏に「 台湾 独立反対」を要請 中国国営メディア; 08/29: 台湾 沖で確認され ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「 台湾 山の上の町、地の塩、世の光」と題する演説 · 外交部、ベリーズとパラグアイが中国の威嚇に屈せず 台湾 と ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · グラブのフードパンダ 台湾 事業買収を認めず 公正取引委 「競争上の懸念」指摘 · 中国の俳優ジャン・リンホー、訪台申請承認されず 過去に 台湾 の地位おとしめる投稿＝ ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — グラブのフードパンダ 台湾 事業買収を認めず 公正取引委 「競争上の懸念」指摘 · 政治 · 中国による制裁「 台湾 支持の決意、むしろ強固に」 ベリーズ首相インタビュー · 政治 ...
+

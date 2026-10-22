@@ -363,3 +363,16 @@ Tags: `Israel` `2026-10`
 - [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
 - [Mahmoud Ahmadinejad and Israel](https://en.wikipedia.org/wiki/Mahmoud_Ahmadinejad_and_Israel) — Mahmoud Ahmadinejad was the president of Iran from 3 August 2005 to 3 August 2013, and during that time had repeatedly made contentious speeches and statements against Israel. Ahmadinejad refused to call Israel by name, instead calling it the "Zionist regime".
 
+### Israel(検索日時 / searched at: 2026-10-21)
+
+Tags: `Israel` `2026-10`
+
+- [Israel News | Israel.com](https://www.israel.com/news) — 17 hours ago · Today's rate and quick tables. The latest headlines from Israel: security, government, the economy, technology, health …
+- [Israel News — Today's Headlines on the News Map](https://globalnewsmap.net/country/israel) — Today's top headlines from 3 local news outlets in Israel, updated every 6 hours by the Global News Map.
+- [Israel Breaking News Headlines Today | Ground News](https://ground.news/interest/israel) — Mar 2, 2026 · Stay current with all the latest and breaking news about Israel, compare headlines and …
+- [Israel News - CNBC](https://www.cnbc.com/israel-news/?msockid=1a7cfbee3d186492244cec1d3c9e6558) — 2 days ago · Business news and breaking news related to Israel, the Middle East, foreign policy, Gaza and the West Bank, terrorism, …
+- [Israel News - The Jerusalem Post](https://www.jpost.com/israel-news) — 17 hours ago · Stay informed on Israel News: All for the latest updates, and breaking news on Israeli politics, culture, Israeli sports, …
+- [The State of Israel · Daily Israeli News and Knowledge …](https://thestateofisrael.com/) — 17 hours ago · Daily Israeli news, politics, and knowledge: the 25th Knesset, 2026 election polls, IDF, …
+- [The Times of Israel | News from Israel, the Middle East …](https://www.timesofisrael.com/) — Now, amid fresh riots and claims of antisemitism, the rush to judgment feels familiar.
+- [Live Updates - The Times of Israel](https://www.timesofisrael.com/live/) — Golan visits injured journalist Heidi Levine: 'The heart breaks. And the blood boils'
+

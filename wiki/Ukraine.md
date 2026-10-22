@@ -403,3 +403,107 @@ Tags: `Ukraine` `2026-10`
 - [Донецькі новини](https://uk.wikipedia.org/wiki/%D0%94%D0%BE%D0%BD%D0%B5%D1%86%D1%8C%D0%BA%D1%96_%D0%BD%D0%BE%D0%B2%D0%B8%D0%BD%D0%B8) — Донецькі новини — донецьке регіональне видання. Виходить один раз на тиждень.
 - [Україна 24](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0_24) — «Україна 24» — закритий загальноукраїнський інформаційний телеканал, що входив до медіаконгломерату «Медіа Група Україна» Ріната Ахметова.
 
+### Ukraine(検索日時 / searched at: 2026-10-21)
+
+Tags: `Ukraine` `2026-10`
+
+- [Новини України і світу сьогодні. Головні і ...](https://glavcom.ua/) — Всі новини за останню добу. Найактуальніші новини онлайн: політики, економіки, спорту, здоров'я, шоу-бізнесу, …
+- [Головні новини України сьогодні - Espreso TV](https://espreso.tv/ukrayina) — 17 год. тому · Головні новини України сьогодні Новини України 24/7 онлайн – це можливість завжди бути в курсі останніх …
+- [Новини України - останні новини України ...](https://r.unian.ua/) — 17 год. тому · УНІАН - останні новини Україна, новини дня онлайн. Новини політики, економіки, свіжі …
+- [ᐈ Головні новини України та світу за сьогодні](https://www.ukr.net/news/main.html) — 【Головні новини за сьогодні】 Найважливіші новини України за день ⏳ на UKR.NET ⚡ актуальні …
+- [Новини - Останні новини України сьогодні | РБК ...](https://www.rbc.ua/) — Головні новини України та світу сьогодні, політичні та аналітичні статті, новини економіки та курси валют, інтерв'ю, точки зору, …
+- [Новини - останні новини України та світу ...](https://korrespondent.net/) — 5 лип. 2026 р. · Новини сьогодні - новини України сьогодні. Головні новини в Україні та світі онлайн, всі надзвичайні новини …
+- [ТСН • Новини України: останні, термінові та ...](https://tsn.ua/) — 17 год. тому · Всі новини за останню добу. Найактуальніші новини 1+1 онлайн, політики, економіки, стилю та спорту на TSN.ua.
+- [Новини України та світу: останні новини на ...](https://focus.ua/uk/ukraine) — 17 год. тому · Головні та свіжі новини України за сьогодні. ⏩ Останні українські новини від аналітичного видання Фокус: …
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Germany (Japanese)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Germany (Japanese)` `2026-10`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ · ノルド・ストリーム爆破、ウクライナ人被告の裁判が ドイツ で始まる · ロボットが少女にわいせつ行為……少年らが操作した疑い、ロボットは押収 ドイツ · ドイツ 元情報 ...
+- [「 ドイツ 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 · ドイツ 市場開拓へ デパートで日本産のコメを試験販売 · ドイツ 13歳未満の子ども SNS利用を原則禁止へ · 日本の名目GDP 来年 世界6位に インドと ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネス ニュース ・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... 主要 テーマに(EU、 ドイツ ). 2026年10月2日. ベルリンで「IFA 2026」開催、アジア ...
+- [現地メディアから厳選！ ドイツ の 主要ニュース まとめ読み ...](https://www.instagram.com/p/Dd8pSKPDTuB/) — 2026/10/01 ... 主な参考メディア. SZ（南 ドイツ 新聞）@sz. FAZ（フランクフルター・アルゲマイネ紙）@faz. Tagesschau（ターゲスシャウ）@tagesschau プロフィールの ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany. 独極右AfDと極左政党がウクライナ支援停止で協力、州議会で動議可決 · 人型ロボット使って16歳少女に性的暴行、SNSで生配信した疑い ドイツ警察が少年ら捜査 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — ドイツ . 最新 ニュース . 【社説】火星圏探査 培った技術の集大成、発展と継承を着実に · H3ロケット10号機の打ち上げが成功し、会見に臨むJAXAの川勝 · 【社説】火星圏探査 ...
+
+### France (Japanese)(検索日時 / searched at: 2026-10-21)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 最新 ニュース · 【社説】火星圏探査 培った技術の集大成、発展と継承を着実に · G7大臣会合、AIの安全性を議論「意図しない挙動によるリスク」 · ラ・ フランス 、大玉で豊作に ...
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · イスラエル警察が10人逮捕 ヨルダン川西岸での記者・外交官襲撃に関与の疑い · パリなど フランス 各地に夜間外出禁止令 週末の暴動受け · フランス 各地で物価高など ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — French · 世界の気温、今世紀中に2.6度上昇の見通し 国連が警告 · フランス 首相、新たなデモに備え警察を大規模動員 極左過激派が「反乱」画策とも主張 · フランス 、パリなど ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「 フランス 」 ニュース 一覧 · フランス 一部で夜間外出禁止令続く ルーブル美術館は営業再開 · フランス 各地で夜間外出禁止令続く 今週末もデモ 警備強化へ · フランス 首相 ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/21: フランス 暴動の略奪品をフリマ出品、大手ヴィンテッドが対応表明 政府も監視強化; 10/20: 【分析】 フランス 全土の暴動は予兆に過ぎず はるかに大きな社会 ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 仏全土に高校生デモ拡大 財政悪化で教育予算逼迫、大統領選の火種 に · 仏極右ルペン氏、本命浮上で市場意識 大統領選へ疑念消えぬ財政拡張 · フランス今や「欧州の ...
+- [フランス の ニュース ・最新記事 - 読売新聞](https://www.yomiuri.co.jp/keyword/99916/) — フランス · 松家仁之さんの「火山のふもとで」、 フランス の文学賞最終候補に… · ［深層 NEWS ］ フランス 大規模デモ、「政府の対応は難しい」… · 小椋藍選手の登場で2輪の ...
+- [パリの ニュース ：地域情報・文化・トレンドをチェック](https://www.sortiraparis.com/ja/nyusu/pari-de) — これは警察庁の要請によるものです。乗換えは停止、RER B線の部分運休も発生します。帰路の準備に役立つ情報をお伝えします。 ... パリとイル＝ド＝ フランス の夜間外出禁止令 ...
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Die Weltwoche](https://en.wikipedia.org/wiki/Die_Weltwoche) — Die Weltwoche (German pronunciation: [diː ˈvɛltˌvɔxə], "The World Week") is a Swiss weekly magazine based in Zollikon, Canton of Zurich. Since 2006, it has been privately owned by Roger Köppel, a publicist, journalist and politician from the right-wing populist and conservative Swiss People's Party.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
+- [Oded Balilty](https://en.wikipedia.org/wiki/Oded_Balilty) — Oded Balilty (Hebrew: עודד בלילטי; born March 30, 1979, Jerusalem) is an Israeli documentary photographer. He is an Associated Press (AP) photographer and won the Pulitzer Prize for Breaking News Photography in 2007.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Iran (Japanese)` `2026-10`
+
+- [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — イラン軍事衝突 · イスラエル首相、トランプ氏とイラン情勢協議 再攻撃を示唆 · 米NY原油一時110ドル台、5カ月ぶり高値 ホルムズ海峡での攻撃警戒 · バンス氏、ネタニヤフ氏の ...
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン 情勢の ニュース ・速報. 200件中 1~20件表示. 東京証券取引所. 東証反発、終値前日比545円高 米 イラン の戦闘終結協議に期待. 15時38分. 共同通信. 東京証券取引所.
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 10/21: 英空軍基地へのテロ計画で男2人再逮捕、 イラン 情報機関に協力か 残る5人は保釈中; 10/19: イラン の司令官ら、さらなる戦争に備え 「世界は驚愕する」 ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — イラン情勢 関連ニュース · 米国防長官がイスラエル訪問 イラン情勢協議か (10月20日 19:04) · トライアスロン中東4大会への派遣中止 情勢悪化を受け(10月20日 14:04).
+- [イラン 攻撃の最新 ニュース と解説記事 - TBS NEWS DIG](https://newsdig.tbs.co.jp/list/tag/%E3%82%A4%E3%83%A9%E3%83%B3) — 中東イエメンで、親イラン武装組織フーシ派が暫定政権側の軍事施設を弾道ミサイルで攻撃 し、少なくとも53人が死亡、200人がけがをしました。AP通信によりますと、攻撃が ...
+- [最新中東・アフリカ ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/mideast/) — イラン、米中間選挙まで交渉引き延ばし トランプ氏への政治的打撃狙う . 1時間前. カタール代表団がイラン到着か、情報錯綜 · Reuters logo. 5時間前. イラン、要求履行まで ...
+- [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — イラン情勢 · ペルシャ湾からの石油輸出、イラン戦争前を上回る · 親イラン武装組織、中国供給部品で高性能ミサイルを開発 · イランが核施設の防衛強化と国民結集、戦闘再開に ...
+- [米・イスラエルの イラン 攻撃 - 朝日新聞](https://www.asahi.com/topics/AP-e956a437-68cb-474e-8e5d-61a96c3636e6/) — 米国とイスラエルが2026年2月28日、 イラン を先制攻撃し最高指導者ハメネイ師を殺害しました。 イラン は反撃するともにホルムズ海峡を事実上封鎖。
+
+### Iran (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Iran (English)` `2026-10`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests were a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [TikTok in Iran](https://en.wikipedia.org/wiki/TikTok_in_Iran) — TikTok in Iran, despite being heavily restricted due to domestic policies (Internet censorship) and international sanctions, holds significant cultural, social, and political importance. Following the lifting of restrictions on Iranian user registration in 2023, Iranians were able to access the platform using VPNs.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [List of wars involving Iran](https://en.wikipedia.org/wiki/List_of_wars_involving_Iran) — This is a list of wars involving the Islamic Republic of Iran, excluding its predecessor states. It is an unfinished historical conspectus.
+- [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
+
+### Italy (English)(検索日時 / searched at: 2026-10-21)
+
+Tags: `Italy (English)` `2026-10`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
