@@ -430,3 +430,16 @@ Tags: `China (English)` `2026-10`
 - [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
 - [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
 
+### United States(検索日時 / searched at: 2026-10-21)
+
+Tags: `United States` `2026-10`
+
+- [CBS News | Breaking News, Top Stories & Exclusive Coverage](https://www.cbsnews.com/) — Anna Marlene Somoza is now awaiting extradition to the United States, where she will face first-degree murder charges, officials said.
+- [U.S. News: Latest Breaking Stories and Video on National Issues](https://www.nbcnews.com/us-news) — 16 hours ago - In the letter obtained by NBC News, Jane Doe said the university’s president seemed to brush off her report of a gang rape when he met with her sorority’s leader.
+- [U.S. News: Latest news, breaking news, today's news ...](https://www.cbsnews.com/us/) — U.S. breaking news: Today's top stories updated by the CBS News team.
+- [NBC News USA - Breaking News, Top Stories, Politics ...](https://nbcnewsusa.com/) — 2 days ago · The latest headlines shaping the U.S. and the world today Follow the latest developments in politics, business, world …
+- [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Breaking News, Latest News and Current News from FOXNews.com. Breaking news and video. Latest Current News: U.S., World, Entertainment, Health, Business, Technology, Politics, Sports Published: 1 hour ago
+- [Google News - U.S. - Latest](https://news.google.com/topics/CAAqIggKIhxDQkFTRHdvSkwyMHZNRGxqTjNjd0VnSmxiaWdBUAE?hl=en-US&ceid=US:en) — Read full articles, watch videos, browse thousands of titles and more on the "U.S." topic with Google News.
+- [US News & Breaking News in the US | Fox News](https://www.foxnews.com/us?msockid=1a7cfbee3d186492244cec1d3c9e6558) — Discover the latest stories in the US and read below for the trending US articles. Learn about the latest …
+- [Google News - Headlines](https://news.google.com/topics/CAAqJggKIiBDQkFTRWdvSUwyMHZNRFZxYUdjU0FtVnVHZ0pWVXlnQVAB) — Read full articles, watch videos, browse thousands of titles and more on the "Headlines" topic with Google News.
+

@@ -403,3 +403,16 @@ Tags: `Taiwan (Japanese)` `2026-10`
 - [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · テコンドー男子の蕭翔文が金 アジアパラ大会、台湾勢のメダル1 号 · 中国によるAI利用の選挙介入が巧妙化 社会の対立激化狙う＝国安関係者／台湾 ...
 - [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — テコンドー男子の蕭翔文が金 アジアパラ大会、 台湾 勢のメダル1号 · 中国によるAI利用の選挙介入が巧妙化 社会の対立激化狙う＝国安関係者／ 台湾 · 李登輝元総統植樹の ...
 
+### Philippines(検索日時 / searched at: 2026-10-21)
+
+Tags: `Philippines` `2026-10`
+
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Kinuwestiyon ni Chairman Emeritus Dr. Jose Antonio Goitia kung bahagi ng mas malawak na estratehiya ng Tsina ang tumitinding mga kilos nito sa West Philippine Sea upang pahinain ang paninindigan ng Pilipinas.
+- [Balita Sa Tagalog Ngayong Araw | Balitambayan - GMA Network](https://www.gmanetwork.com/news/balitambayan/) — Jan 22, 2015 · Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita | Balitambayan - GMA Network](https://www.gmanetwork.com/news/balitambayan/balita/) — Tinukoy ni Interior Secretary Jonvic Remulla ang politiko mula sa Mindanao na umano’y sangkot sa tangkang pagpupuslit ng shabu na nagkakahalaga ng P3.5 bilyon mula sa Laos na patungong Pilipinas. ... Naglabas ang National Bureau of Investigation (NBI) ng mga subpoena sa mga miyembro ng podcast na "Machong Chismisan" matapos ang kanilang mga pahayag tungkol kay Joshua "Josh" Aquino, anak ni Kris Aquino. ... Dalawang lalaki ang pinaghahahanap ngayon matapos nilang paghahampasin hanggang sa mamatay ang isang aso sa Barangay Buliwao sa Quezon, Nueva Vizcaya.
+- [Pilipinas: balita – all.news](https://www.all.news/news/philippines/filipino/) — Pilipinas: ang mga pangunahing balita at headline ngayon, ina-update bawat oras. Tinitipon ng all.news ang nangungunang mga …
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 1 day ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+- [Breaking News & Headlines in the Philippines | ABS-CBN …](https://www.abs-cbn.com/news) — 3 days ago - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
+- [Pilipino Star Ngayon | Balita ngayon - Philstar.com](https://www.philstar.com/pilipino-star-ngayon/) — Dec 25, 2021 · Online edition ng Pilipino Star Ngayon, ang dyaryong disente ng masang intelihente. Abangan ang pinakabagong …
+- [Balita - National](https://balita.mb.com.ph/national/) — Oct 13, 2026 · Nagbigay ng tips si Pangulong Ferdinand 'Bongbong' Marcos, Jr. sa publiko para paghandaan ang Super El Niño sa …
+

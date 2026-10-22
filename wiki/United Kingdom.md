@@ -435,3 +435,16 @@ Tags: `Afghanistan (Japanese)` `2026-10`
 - [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定政権、女性の足露出や化粧も禁止 抗議デモを武力鎮圧 ...
 - [パキスタンがアフガン 主要 都市を攻撃、国防相「戦争状態」](https://www.reuters.com/jp/world/security/MP4O2O57JBNGXONXNS3PMYPATY-2026-02-27/) — 2026/02/27 ... [カブール／イスラマバード 27日 ロイター] - パキスタンのハワジャ国防相は27日、同国が隣国 アフガニスタン と「戦争」状態にあると宣言した。
 
+### United Kingdom(検索日時 / searched at: 2026-10-21)
+
+Tags: `United Kingdom` `2026-10`
+
+- [UK News - The latest headlines from the UK | Sky News](https://news.sky.com/uk) — 
+- [United Kingdom News — Today's Headlines on the News Map](https://globalnewsmap.net/country/united-kingdom) — Today's top headlines from 2 local news outlets in United Kingdom, updated every 6 hours by the Global News Map.
+- [United Kingdom news | Breaking News & Top Stories | NewsNow](https://www.newsnow.co.uk/h/World+News/Europe/Northern+Europe/United+Kingdom) — Read the latest United Kingdom headlines, on NewsNow. United Kingdom news, analysis and opinion from around the world.
+- [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNRGR6YzJNU0FtVnVLQUFQAQ?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
+- [UK | Latest News & Updates | BBC News](https://www.bbc.co.uk/news/uk) — Get all the latest news, live updates and content about the UK from across the BBC.
+- [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqJQgKIh9DQkFTRVFvSUwyMHZNRGR6YzJNU0JXVnVMVWRDS0FBUAE?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
+- [UK | Latest News & Updates - BBC](https://www.bbc.com/news/uk) — Aug 1, 2024 · Get all the latest news, live updates and content about the UK from across the BBC.
+- [UK News | Top Stories from the UK | Reuters](https://www.reuters.com/world/uk/) — 17 hours ago · Reuters.com is your online source for the latest UK news stories and current events, ensuring our readers up to date …
+
