@@ -371,3 +371,29 @@ Tags: `Egypt` `2026-10`
 - [المصري اليوم](https://www.almasryalyoum.com/) — 19 ربيع الآخر 1448 بعد الهجرة · حالة الطقس اليوم في مصر: الأرصاد تحذرمن مفاجآت الخريف.. وأمطار على هذه المناطق سمير راغب: «صائد المُسيرات» المصري يكلف 5 دولارات مقارنة بـ …
 - [أخبار اليوم (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها التوأم مصطفى أمين (21 فبراير 1914-13ابريل1997) وعلي أمين (21 فبراير 1914-3 أبريل 1976) عام 1944.
 
+### Egypt(検索日時 / searched at: 2026-10-22)
+
+Tags: `Egypt` `2026-10`
+
+- [مصر اليوم | Egypt Today | آخر أخبار مصر اليوم | المزيد ...](https://www.egypt-today.com/) — مصر اليوم أخر أخبار اليوم من مصر اليوم من اليوم الاول إلى اليوم السابع مع تغطية شاملة وكاملة لاخبار الاقتصاد المصري اليوم و كل يوم واشنطن / طهران ـ مصر اليوم على وقع استمرار …
+- [مصر اليوم](https://www.masralyoum.net/) — مصر اليوم تابع احدث اخبار مصر اليوم لحظه بلحظه بكل صدق ومصداقية في مصر اليوم واسعار العملات واسعار الذهب
+- [اليوم السابع](https://www.youm7.com/) — بوابة اليوم السابع الاخبارية تقدم احدث واهم اخبار مصر على مدار اليوم كما نقدم اهم اخبار الرياضة والفن والاقتصاد والحوادث
+- [المصري اليوم | الصفحة الرئيسية لموقع المصري اليوم](https://www.almasryalyoum.com/section/index/today) — 2 شعبان 1447 بعد الهجرة · اقرأ أهم أخبار اليوم من المصري اليوم والاخبار العاجلة وأخبار مجلس الوزراء وأخبار السياسة والاقتصاد والفن وأخبار الرياضة والتوك شو وغيرها المزيد
+- [الرئيسية| بوابة أخبار اليوم الإلكترونية](https://akhbarelyom.com/news/newssection/304/1/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9) — بوابة اخبار اليوم تقدم احدث واهم اخبار مصر على مدار اليوم مع تغطيات مصورة صور الاحداث وفيديوهات حصريه لها اولا باول كما نقدم اهم اخبار الرياضة والفن والاقتصاد والحوادث خبير زراعي …
+- [أخبار | المصري اليوم](https://www.almasryalyoum.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1) — 28 شعبان 1447 بعد الهجرة · لا يفوتك اخبار مصر واخبار اليوم العاجلة المحلية والعالمية، والمزيد من اخبار مصر مباشر وآخر المستجدات السياسية والاقتصادية، وبث مباشر لكافة المؤتمرات …
+- [أخبار عاجلة - اليوم السابع](https://www.youm7.com/Section/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84%D8%A9/65/1) — 15 ربيع الآخر 1448 بعد الهجرة · الأرصاد تكشف حالة الطقس بالقاهرة والمحافظات الآن. أعلنت الهيئة العامة للأرصاد الجوية استمرار الأجواء الخريفية على أغلب أنحاء الجمهورية، مع ظهور بعض …
+- [مصر اليوم](https://www.misrday.com/) — 10 ذو القعدة 1444 بعد الهجرة · البنك الدولي يرفع توقعاته لنمو الاقتصاد المصري إلى 5.1% أخبار × 24 ساعة.. البنك الدولي يرفع توقعاته لنمو الاقتصاد المصري إلى 5.1%...... المزيد ...
+
+### Austria (English)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Austria (English)` `2026-10`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+- [Megyn Kelly](https://en.wikipedia.org/wiki/Megyn_Kelly) — Megyn Marie Kelly (; born November 18, 1970) is an American journalist, attorney, political commentator, and media personality. She hosts The Megyn Kelly Show, a talk show and podcast that airs daily on SiriusXM's Triumph channel and has over 4 million subscribers on YouTube.
+

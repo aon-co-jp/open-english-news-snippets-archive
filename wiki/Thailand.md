@@ -314,3 +314,42 @@ Tags: `Thailand` `2026-10`
 - [ไทยรัฐ สำนักข่าวอันดับ 1 ของไทย ...](https://www.thairath.co.th/) — ที่ 17 ก.ย. พ.ศ. 2568 · ไทยรัฐ ติดตามข่าวล่าสุด ข่าวด่วน ทันทุกเหตุการณ์ ข่าวกีฬา ผลฟุตบอล ข่าวบันเทิง ดารา สุขภาพ กิน เที่ยว ตรวจหวย ดูดวง …
 - [ข่าวด่วนวันนี้ ข่าวด่วน ข่าว ...](https://www.sanook.com/hot/news/) — เปิด 10 ประเทศ "ภาษีแรงงานโหด" อันดับ 1 เก็บเกือบ 10 เท่าของทุน! "ใบชิโสะ" กินสดหรือปรุงสุกดีกว่ากัน? เปรียบเทียบข้อดี …
 
+### Thailand(検索日時 / searched at: 2026-10-22)
+
+Tags: `Thailand` `2026-10`
+
+- [ข่าว ข่าววันนี้ ข่าวด่วนทั่ว ...](https://thethaiger.com/th/thai-news/) — 17 ชั่วโมงที่ผ่านมา · อ่าน ข่าวไทยวันนี้ ที่ The Thaiger รับข่าวสารเกี่ยวกับเหตุการณ์ล่าสุดในประเทศไทย ข่าวสดใหม่ …
+- [ข่าวล่าสุดวันนี้ | Thai PBS News ข่าวไทย ...](https://www.thaipbs.or.th/news/today) — ที่ 2 ต.ค. พ.ศ. 2569 · ข่าวล่าสุดวันนี้ ติดตามข่าวด่วน ทันทุกเหตุการณ์ ข่าวกีฬา ข่าวการเมือง ข่าวบันเทิง ข่าวต่างประเทศ และอีกมากมาย
+- [Thaiger ข่าวประเทศไทย : ข่าววันนี้ ...](https://thethaiger.com/th/) — 6 วันที่ผ่านมา · Thaiger ข่าวประเทศไทย ข่าววันนี้ รายงานข่าวล่าสุดครอบคลุมทุกประเด็นร้อน ทั้งไทยและต่างประเทศ …
+- [ข่าวเด่นวันนี้ | Thai PBS News ข่าวไทย ...](https://www.thaipbs.or.th/news) — ที่ 17 ส.ค. พ.ศ. 2563 · ข่าวเด่นวันนี้ ข่าวที่คุณวางใจ โดยสำนักข่าวไทยพีบีเอส ติดตามข่าวและสถานการณ์ทั้งในและต่างประเทศได้ที่นี่
+- [ข่าวไทยรัฐ ข่าวล่าสุด ข่าวด่วน ...](https://www.thairath.co.th/news) — อ่านข่าวไทยรัฐ ข่าวด่วน ข่าวล่าสุด ข่าววันนี้ ทันทุกเหตุการณ์ ทุกเรื่องเด่น ทุกประเด็นร้อน อัพเดทข่าวสด รู้ข่าวสารก่อน ...
+- [ข่าวด่วนวันนี้ ข่าวด่วน ข่าว ...](https://www.sanook.com/hot/news/) — สภาพอากาศวันนี้ กรมอุตุฯ เตือน ภาคตะวันออก-ภาคใต้ โดนเต็มๆ ฝนถล่ม 37 จังหวัด 15 ชั่วโมงที่แล้ว ข่าว
+- [ไทยรัฐ สำนักข่าวอันดับ 1 ของไทย ...](https://www.thairath.co.th/) — ที่ 17 ก.ย. พ.ศ. 2568 · ไทยรัฐ ติดตามข่าวล่าสุด ข่าวด่วน ทันทุกเหตุการณ์ ข่าวกีฬา ผลฟุตบอล ข่าวบันเทิง ดารา สุขภาพ กิน เที่ยว ตรวจหวย ดูดวง …
+- [Google News](https://news.google.com/?hl=th) — สภาพอากาศวันนี้! ภาคตะวันออกและภาคใต้มีฝน 60% ไทยตอนบนมีฝนบางแห่ง.
+
+### France (English)(検索日時 / searched at: 2026-10-22)
+
+Tags: `France (English)` `2026-10`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — Italy · ローマ教皇レオ14世、肺腺がん確認 手術成功 · 動物愛護団体、ミラノファッションウイークで毛皮使用の禁止求めるデモ · イタリア 、学校でのブルカ禁止を閣議決定 1 ...
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 最新ニュース · 改憲の緊急事態条項、維新が早期条文化を主張 欧州を引き合いに討議 · 欧州で夜行列車に再び脚光 ユーチューバーが参入、めざす100都市 · ゲイ公表の高橋塁 ...
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア・ミラノでも略奪・破壊 暴徒の若者ら警察と衝突 · マクロン仏大統領、暴動めぐり「代償を」 物価高・教育デモには理解 · 「欧州の病人」を待ち構える財政規律の ...
+- [イタリア の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/italia_news) — 2020/06/18 ... イタリア の 主要 メディアまとめ【 ニュース 編】 · 1．la Repubblica · 2．Corriere Della Sera · 3．Il Fatto Quotidiano · 4．La Stampa · 5．Tiscali.
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 10/19: フランス大統領「破壊行為には代償を」 全土で暴動や略奪、2人が死亡; 10/14: 旅客機内にトコジラミ、カンタス便が欠航に 「所持品や衣類の上をはう虫が…
+- [イタリア の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/34887/) — 主要ニュース · まもなくドラフト会議、異例の「1位」公表球団なし… · 気象庁・すき家・三菱UFJ銀… · 日本企業がウクライナ軍へドローン納入、ロシア「明らかな敵対的行為 ...
+- [ニュース | アーモ イタリア](https://amoitalia.com/news/) — イタリア 旅行に関する最新 ニュース をお届けします。割引情報、プレゼント、新店舗、新しいレストランなど、旅行前にチェックするとお得です。
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · フランス デモに乗じた暴動で店舗1500以上被害か イタリアでも · ロシア警告の中 NATO核抑止の定例の演習始まる · トランプ大統領がコロンブス再 ...
+

@@ -443,3 +443,16 @@ Tags: `United States` `2026-10`
 - [US News & Breaking News in the US | Fox News](https://www.foxnews.com/us?msockid=1a7cfbee3d186492244cec1d3c9e6558) — Discover the latest stories in the US and read below for the trending US articles. Learn about the latest …
 - [Google News - Headlines](https://news.google.com/topics/CAAqJggKIiBDQkFTRWdvSUwyMHZNRFZxYUdjU0FtVnVHZ0pWVXlnQVAB) — Read full articles, watch videos, browse thousands of titles and more on the "Headlines" topic with Google News.
 
+### United States(検索日時 / searched at: 2026-10-22)
+
+Tags: `United States` `2026-10`
+
+- [Latest U.S. News | Top headlines from the USA | Reuters](https://www.reuters.com/world/us/) — 4 hours ago - The World Cup has captured the imagination of fans across the United States, no better illustrated than in the tournament store in Houston, where locals have been snapping ​up mementos of a rare chance to have the global finals on their doorstep.
+- [CBS News | Breaking News, Top Stories & Exclusive Coverage](https://www.cbsnews.com/) — Russia launched the strikes on Ukraine less than a day after negotiations to end the war, which also involved the United States, ended in St. Petersburg. ... L. Louise Lucas, a longtime state senator from Virginia, has been arrested in connection with an alleged bribery and racketeering scheme. ... The U.S. military has quietly reduced its footprint at posts in the Middle East due to ongoing threats from Iran and its Houthis allies in Yemen, sources tell CBS News.
+- [U.S. News: Latest news, breaking news, today's news ...](https://www.cbsnews.com/us/) — U.S. breaking news: Today's top stories updated by the CBS News team.
+- [U.S. News: Latest Breaking Stories and Video on National Issues](https://www.nbcnews.com/us-news) — 12 hours ago - Witnesses said Rogério Renato Mateucci, 55, died instantly . He was visiting the U.S. to attend an international program at Arizona State University, the Brazilian university he worked for said.
+- [USA News: Latest United States Headlines, News Today ...](https://www.nine.com.au/world-news/usa) — 4 days ago · Stay updated with the latest news from the United States. Breaking US headlines, American politics, breaking crime and …
+- [US News Today: Latest Headlines & Updates | Yahoo](https://www.yahoo.com/news/us/) — Oct 15, 2024 · Today's top US news from Yahoo News — breaking national stories, crime and courts coverage from trusted sources, …
+- [Breaking News, Latest News and Videos | CNN](https://www.cnn.com/) — View the latest news and breaking news today for U.S., world, weather, entertainment, politics and health at CNN.com.
+- [Google News - U.S. - Latest](https://news.google.com/topics/CAAqIggKIhxDQkFTRHdvSkwyMHZNRGxqTjNjd0VnSmxiaWdBUAE?hl=en-US&ceid=US:en) — Read full articles, watch videos, browse thousands of titles and more on the "U.S." topic with Google News.
+

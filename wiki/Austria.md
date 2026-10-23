@@ -498,3 +498,16 @@ Tags: `South Korea (English)` `2026-10`
 - [Lee Sun-kyun](https://en.wikipedia.org/wiki/Lee_Sun-kyun) — Lee Sun-kyun (Korean: 이선균; March 2, 1975 – December 27, 2023) was a South Korean actor. Internationally, he was best known for his role in Bong Joon-ho's Academy Award–winning film Parasite (2019), for which he won an Actor Award along with his castmates.
 - [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
 
+### Austria(検索日時 / searched at: 2026-10-22)
+
+Tags: `Austria` `2026-10`
+
+- [Deutschland - aktuelle Nachrichten - tagesschau.de](https://www.tagesschau.de/thema/deutschland) — Vor 6 Tagen · Deutschland - Nachrichten und Information: An 365 Tagen im Jahr, rund um die Uhr aktualisiert, die wichtigsten News …
+- [Aktuelle Nachrichten | DIE ZEIT](https://www.zeit.de/news/nachrichten) — 1. Juli 2026 · Lesen Sie hier aktuelle und wichtige Nachrichten von heute - aus Deutschland und der Welt.
+- [ZDFheute - Aktuelle Nachrichten und Videos auf einen Blick](https://www.zdfheute.de/) — News aus Deutschland sowie aktuelle Nachrichten aus Europa und aller Welt. Videos, Livestreams, Kommentare und Analysen von …
+- [Die neuesten Nachrichten rund um die Uhr. - Deutschlandfunk](https://www.deutschlandfunk.de/nachrichten-100.html) — 4. Dez. 2024 · Nachrichten, News, Eilmeldungen: Hier können Sie die wichtigsten, aktuellen Meldungen aus Politik, Wirtschaft, …
+- [Newsticker: Aktuelle Schlagzeilen und Eilmeldungen - ZDFheute](https://www.zdfheute.de/newsticker/schlagzeilen-100.html) — Vor 17 Stunden · Eilmeldungen von heute im Überblick: Die wichtigsten Nachrichten, Schlagzeilen und Informationen im ZDF …
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [tagesschau.de - die erste Adresse für Nachrichten und ...](https://www.tagesschau.de/) — Vor einem Tag · tagesschau.de - die erste Adresse für Nachrichten und Information: An 365 Tagen im Jahr, rund um die Uhr …
+- [Nachrichten, aktuelle Schlagzeilen und Videos - n-tv.de](https://www.n-tv.de/) — Nachrichten seriös, schnell und kompetent. Artikel und Videos aus Politik, Wirtschaft, Börse, Sport und aller Welt.
+

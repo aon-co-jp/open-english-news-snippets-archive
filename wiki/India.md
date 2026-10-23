@@ -506,3 +506,16 @@ Tags: `Ukraine (English)` `2026-10`
 - [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
 - [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
 
+### India(検索日時 / searched at: 2026-10-22)
+
+Tags: `India` `2026-10`
+
+- [How to make two column in a batch file?](https://stackoverflow.com/questions/13654471) — (5) = Times Now +5 echo (6) = Saharah AP +6 echo (7) = News X +7 echo (8) = Punjabi +8 echo (9) = Al Jazeera Sport + &hellip; 9 echo (10) = Al Jazeera Sport +10 pause echo (11) = Aaj Tak +11 echo (12) = Headlines Today +12 echo (13) = UTV Bindaas +13 echo &hellip;
+- [India News | Today's latest updates and breaking news from ...](https://www.ndtv.com/india) — 1 day ago · Today's top India news headlines, news on Indian politics, elections, government, business, technology, and Bollywood.
+- [India News, Latest Breaking News Headlines from India, Live ...](https://www.indiatoday.in/india) — India News Today: Read latest and breaking news headlines from India. Top India News, Current headlines, videos, photos and live …
+- [Headlines Today](https://www.indiatoday.in/headlines-today) — Headlines Today. India Today. Aaj Tak. India Today Hindi. NewsTak. GNTTV. Lallantop. Business Today. …
+- [India News: Latest India News, Today breaking News ...](https://www.hindustantimes.com/india-news) — India News: Get the latest India News, breaking headlines and live updates on politics, economy, crime, policy, society and major …
+- [Latest Breaking News Today – Top Headlines & Live Updates ...](https://economictimes.indiatimes.com/news) — 13 minutes ago · Stay updated with the latest breaking news, live updates, photos, videos and top trending stories from India and …
+- [Latest News Today, Breaking News, India News, Top ...](https://indianexpress.com/) — Get the latest news today, breaking news, and top news headlines updates from India and around the world. Stay updated on politics, …
+- [Load CSV file in single variant column in snowflake table](https://stackoverflow.com/questions/72475744) — Get today’s news headlines from Business", "col_003": " ", "col_004": "Technology", "col_005": " Sports", "col_006": " Movies", "col_007": " videos", "col_008": " photos", "col_009": " live news coverage &hellip; and exclusive breaking news from India.} &hellip;
+

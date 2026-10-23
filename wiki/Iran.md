@@ -801,3 +801,68 @@ Tags: `Thailand (Japanese)` `2026-10`
 - [タイニュース 速報ポータルサイトータイランド通信](http://thai.news-agency.jp/) — タイ から情報発信する タイニュース サイト。 タイ の政治、経済、社会、金融、 タイ 株情報、など現地からの生の ニュース をお届け。バンコクの情勢もいち早く ニュース 速報。
 - [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新 ニュース · ナンプラー香るパッタイは愛国の味 タイ 国民食を生んだ大戦の記憶 · 物価上昇率2％「近づいている」 日銀・植田総裁 · G20、共同声明見送り 財務相会議 ...
 
+### Iran(検索日時 / searched at: 2026-10-22)
+
+Tags: `Iran` `2026-10`
+
+- [صفحه اصلی | Iran International](https://www.iranintl.com/) — 17 hours ago · ایران اینترنشنال تازه ترین خبرهای سیاسی، اقتصادی، اجتماعی، ورزشی، فرهنگی و هنری از ایران و جهان را در تلویزیون و وبسایت خود پوشش می‌دهد.
+- [آخرین اخبار روز ایران و جهان ؛ خبرهای امروز ...](https://tasnimnews.ir/) — 1401 آبان 18, · آخرین اخبار روز ایران و جهان ؛ خلاصه خبرهای امروز ایران را در خبرگزاری تسنیم بخوانید
+- [خبرگزاری جمهوری اسلامی |صفحه اصلی | IRNA News Agency](https://www.irna.ir/) — 17 hours ago · آخرین اخبار ایران و جهان را در خبرگزاری جمهوری اسلامی بخوانید. معاون وزیر فرهنگ: بازخوانی زندگی و اندیشه مفاخر ایران، ضرورتی فرهنگی و تاریخی است تهران- …
+- [آخرین اخبار روز ایران و جهان ؛ خبرهای امروز ...](https://www.tasnimnews.ir/fa) — 1404 دی 23, · آخرین اخبار روز ایران و جهان ؛ خلاصه خبرهای امروز ایران را در خبرگزاری تسنیم بخوانید
+- [ایران - جدیدترین و آخرین اخبار ایران | شهر خبر](https://www.shahrekhabar.com/tag/%D8%A7%DB%8C%D8%B1%D8%A7%D9%86) — 17 hours ago · جدیدترین و آخرین اخبار ایران : سفارت ایران در باکو و سرکنسولگری ایران در نخجوان، به عنوان نمایندگان رسمی ایران در جمهوری آذربایجان فعالیت داشته و متولی ارائه …
+- [خبرگزاری ایسنا | صفحه اصلی | ISNA News Agency](https://www.isna.ir/) — 17 hours ago · خبرگزاری ایسنا آخرین اخبار ایران جهان دانشگاه علم و فن آوری ورزشی اجتماعی سیاسی اقتصادی فیلم عکس و استان ها | isna.ir, isna news agency,isna ,isna …
+- [IranWire](https://iranwire.com/) — نام ایران مدرن، ژینا امینی است چرا با وجود پرداخت خسارت از سوی بیمه، طرف مقابل از من... با ایران‌وایر همکاری کنید ویدیوها و مطالب خود را برای ما بفرستید اطلاعات بیشتر
+- [ایران اینترنشنال - پخش زنده - YouTube](https://www.youtube.com/c/IRANINTL/live) — 1405 اردیبهشت 8, · پخش زنده ایران اینترنشنال در یوتیوب برای دریافت تازه‌ترین رویدادهای خبری ایران و جهانما‌ به‌صورت ۲۴ ساعته اخبار و تحلیل‌های خبری را در لحظه و بدون سانسور به ...
+
+### China (English)(検索日時 / searched at: 2026-10-22)
+
+Tags: `China (English)` `2026-10`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [2023 Chinese balloon incident](https://en.wikipedia.org/wiki/2023_Chinese_balloon_incident) — From January 28 to February 4, 2023, a high-altitude balloon originating from China drifted across North American airspace, including Alaska, western Canada, and the contiguous United States. On February 4, the U.S. Air Force shot down the balloon over U.S. territorial waters off the coast of South Carolina near the city of Myrtle Beach.
+
+### Tajikistan (English)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Tajikistan (English)` `2026-10`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people: 11 men, 3 women, and a 10-year-old girl.
+- [Jihadi John](https://en.wikipedia.org/wiki/Jihadi_John) — Mohammed Emwazi (born Muhammad Jassim Abdulkarim Olayan al-Dhafiri; Arabic: محمد جاسم عبد الكريم عليان الظفيري), commonly referred to as Jihadi John (17 August 1988 – 12 November 2015), was a British militant of Kuwaiti origin seen in several videos produced by the Islamist extremist group Islamic State (IS) showing the beheadings of a number of captives in 2014 and 2015. A group of his hostages nicknamed him "John" since he was part of a four-person terrorist cell with English accents whom they called 'The Beatles'; the press later began calling him "Jihadi John".
+- [Zapad 2025](https://en.wikipedia.org/wiki/Zapad_2025) — Zapad 2025 (Russian: Запад-2025, Belarusian: Захад-2025, romanized: Zakhad-2025, lit. 'West 2025') was a Russian-Belarusian joint strategic military exercise, that took place in Belarus on 12–16 September 2025. Belarus has said the drills will test the Union State's defensive readiness, with main activities staged at central training areas near Barysaw and a reciprocal movement of units between the two states.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer who has served as the director of the Federal Bureau of Investigation since 2025. Patel additionally served as the acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-10-22)
+
+Tags: `South Korea (Japanese)` `2026-10`
+
+- [「 韓国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「 韓国 」 ニュース 一覧 · 韓国 イ大統領“AIに聞いた”内容をSNSに投稿し物議 · 【きょうのおはBiz 10月21日(水)】SNS活用で販路拡大 韓国 農家 · 韓国 駐ウクライナ大使館員の一 ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 11 時間前 ... 「空中浮遊」テスラを牽制する中国…人民日報「美しいコンセプトショー」 2026.10.22 15:23 ; 「事業家を装って中国を探る」…米国防総省、経済スパイ組織 ...
+- [韓国 ・朝鮮半島に関する ニュース と解説 - 日本経済新聞](https://www.nikkei.com/international/korea/) — PHP脆弱性、韓国政府が緊急対策会議 「サイバー警報」で注意促す · ムシンサ、ZOZOと日韓ファッション流通網 IPOへ海外成長加速 · 北朝鮮高官が軍事境界線付近を視察 金与正 ...
+- [最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 · 10時間前. 北朝鮮、韓宣伝放送を10月中に開始 戦術部隊が新たな配置に · 22時間前. 北朝鮮の複数ウェブサイトで断続的な接続障害、専門家が指摘 · 2026年10月20日.
+- [聯合 ニュース](https://jp.yna.co.kr/) — 韓国 ・ソウルの公共交通機関 海外メディアが世界5位と高評価 · 韓国 ・延世大 学生など約1万人の個人情報流出＝当局に捜査依頼 · 韓国 元法相 一審の懲役25年から9年に減刑＝ ...
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — 最新の 韓国ニュース · スポーツソウル日本版 · 10月22日 20時30分.
+- [韓国 関連 ニュース ｜dメニュー ニュース （NTTドコモ）](https://topics.smt.docomo.ne.jp/latestnews/keywords/306d5b1c48e24febedba3bf58a5307599f68e2b5501eccfda9f7fb8064c3f559) — dメニュー ニュース の 韓国 に関連する新着記事一覧です。今話題となっている 韓国 の関連 ニュース 記事をまとめています。
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Afghanistan (Japanese)` `2026-10`
+
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン 情勢 関連 ニュース · タリバンが子供の徴集強化 国連、爆発物被害多発も指摘―アフガン(10月17日 07:00) · タリバン教育相ら2人の逮捕状公開 女性抑圧めぐり ...
+- [「 アフガニスタン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10105) — ICC、タリバン暫定政権の教育相らに逮捕状 女性抑圧政策で · パキスタンが アフガニスタン 空爆 22人死亡か、タリバン反発 · パキスタン、 アフガニスタン を空爆 ドローン領空 ...
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 新着一覧 · 「ここはゾンビの街になる」アル・カーイダに復活の兆し、タリバン復権のアフガンで訓練場や神学校新設 · 農業 競技広がるタネに… · 米政権は「内戦状態」…
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — ... アフガニスタン 」の ニュース . ... 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン ...
+- [アフガニスタン 関連 ニュース - dメニューニュース - ドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/0bedd85b653193eb89cb1131c79b5e035495e267faff7829d380f75c4b2f6f66) — アフガニスタン 関連 ニュース · 「先入観ぶっ壊す」退避勧告アフガンへ渡航の旅系母子YouTuber、帰国報告も子どもに心配の声 · 「外務省はあてにならない」旅系母親YouTuber ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — アフガニスタン · BBCのFMラジオ放送、 アフガニスタン で停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ ...
+- [アフガニスタン ・イスラム共和国の関連情報 - フォロー](https://follow.yahoo.co.jp/themes/009cdd0d709727a72400/) — アフガニスタン・イスラム共和国 · 3:19 · 仏戦闘機、訓練飛行中に墜落 少なくとも1人死 亡 · 韓国、在ウクライナ大使館員半数を撤収へ 捕虜送還の公開巡り対立続く… · 「普遍的 ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — Afghanistan · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定政権、女性の足露出や化粧も禁止 抗議デモを ...
+

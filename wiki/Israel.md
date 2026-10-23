@@ -376,3 +376,68 @@ Tags: `Israel` `2026-10`
 - [The Times of Israel | News from Israel, the Middle East …](https://www.timesofisrael.com/) — Now, amid fresh riots and claims of antisemitism, the rush to judgment feels familiar.
 - [Live Updates - The Times of Israel](https://www.timesofisrael.com/live/) — Golan visits injured journalist Heidi Levine: 'The heart breaks. And the blood boils'
 
+### Israel(検索日時 / searched at: 2026-10-22)
+
+Tags: `Israel` `2026-10`
+
+- [Israel News — Today's Headlines on the News Map](https://globalnewsmap.net/country/israel) — Today's top headlines from 3 local news outlets in Israel, updated every 6 hours by the Global News Map.
+- [Israel News | Israel.com](https://www.israel.com/news) — 17 hours ago · Today's rate and quick tables. The latest headlines from Israel: security, government, the economy, technology, health …
+- [Israel Breaking News Headlines Today | Ground News](https://ground.news/interest/israel) — Mar 2, 2026 · Stay current with all the latest and breaking news about Israel, compare headlines and …
+- [Israel News - CNBC](https://www.cnbc.com/israel-news/?msockid=1a7cfbee3d186492244cec1d3c9e6558) — 1 day ago · Business news and breaking news related to Israel, the Middle East, foreign policy, Gaza and the West Bank, terrorism, …
+- [The State of Israel · Daily Israeli News and Knowledge …](https://thestateofisrael.com/) — 17 hours ago · Daily Israeli news, politics, and knowledge: the 25th Knesset, 2026 election polls, IDF, …
+- [Google News - Israel - Latest](https://news.google.com/topics/CAAqJQgKIh9DQkFTRVFvSUwyMHZNRE56Y0hvU0JXVnVMVWRDS0FBUAE?hl=en-IL&ceid=IL%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'Israel' topic with Google News.
+- [The Times of Israel | News from Israel, the Middle East …](https://www.timesofisrael.com/) — What is Israel’s upcoming election really about? Yaakov Katz sits down with ToI founding editor David …
+- [Israel National News](https://www.israelnationalnews.com/) — 17 hours ago · Far-left New York congressional candidate says Israeli forces detained him and dozens of activists during an olive …
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Iran (Japanese)` `2026-10`
+
+- [「 イラン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10110) — イラン の核開発問題を背景に、2025年6月から約2週間、米国とイスラエルは イラン の核関連施設に対する軍事攻撃を実施した。さらに2月28日から首都テヘランなどに大規模な ...
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 10/21: 英空軍基地へのテロ計画で男2人再逮捕、 イラン 情報機関に協力か 残る5人は保釈中; 10/19: イラン の司令官ら、さらなる戦争に備え 「世界は驚愕する」 ...
+- [イラン 攻撃の最新 ニュース と解説記事 - TBS NEWS DIG](https://newsdig.tbs.co.jp/list/tag/%E3%82%A4%E3%83%A9%E3%83%B3) — 外国籍の男女3人を覚せい剤所持などの疑いで逮捕 愛知・豊川市の病院で イラン 人男性が死亡した事件 3人は強盗致死罪ですでに起訴 · イスラエル首相「 イラン 体制打倒を指示 ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — イランは報復としてイスラエルや中東の米関連施設を攻撃 。殺害されたハメネイ師の後継に次男モジタバ・ハメネイ師（56）を選出した。 ... 原油価格の高騰など世界経済への ...
+- [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — WSJ日本版による イラン 情勢に関する最新 ニュース ... 主要 湾岸産油国が イラン への譲歩に反対する姿勢に転じ、戦争終結に向けた米 イラン ...
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン 情勢の ニュース ・速報. 200件中 1~20件表示. 外務省＝東京・霞が関. サウジ首都に渡航中止を勧告 外務省、フーシ派攻撃継続. 10月22日. 共同通信.
+- [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — 「 イラン 情勢」 ニュース 一覧 ... 米軍の イラン 核施設への攻撃【国際法の根拠や影響は？】 2025年6月23日 21:35. イラン 大統領 主要 核施設を攻撃したアメリカに報復を示唆.
+- [イラン 大統領の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%83%A9%E3%83%B3%E5%A4%A7%E7%B5%B1%E9%A0%98.html) — 最新ニュース · イラン「我々こそテロ被害者」 米との交渉再開にも含み 大統領演説 · 国連で「我々はテロ被害者」 イラン大統領演説、米代表は退席 · 「我々はテロの被害者」 ...
+
+### Thailand (English)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Thailand (English)` `2026-10`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Bhumibol Adulyadej](https://en.wikipedia.org/wiki/Bhumibol_Adulyadej) — Bhumibol Adulyadej (5 December 1927 – 13 October 2016), titled Rama IX, was King of Thailand from 9 June 1946 until his death in 2016. His reign of 70 years and 126 days is the longest of any Thai monarch, the longest on record of any independent Asian sovereign, and the third-longest of any sovereign state with a verified date.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [Tawanchai P.K. Saenchaimuaythaigym](https://en.wikipedia.org/wiki/Tawanchai_P.K._Saenchaimuaythaigym) — Narongsak Kaewmala (Thai: ณรงค์ศักดิ์ แก้วมาลา; born April 7, 1999), known professionally as Tawanchai P.K.Saenchai (Thai: ตะวันฉาย พี.เค.แสนชัย) is a professional Muay Thai fighter and kickboxer. He currently competes in the Featherweight division of ONE Championship, where he is the former ONE Featherweight Muay Thai World Champion.
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Ukraine (Japanese)` `2026-10`
+
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — ロシアは22日未明にかけてキーウを弾道ミサイルで激しく攻撃し、 ウクライナ はモスクワに向けて数百機の無人機（ドローン）を飛ばした。米国が戦争終結に向けて新​た ...
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — ... ウクライナ 」の ニュース . ... 「 ウクライナ 」の ニュース . 2026. 10/21: 【分析】 ウクライナ で起きた「スターシールド」通信制限、誰の ANALYSIS 【分析】 ウクライナ で ...
+- [ウクライナ にロシアが侵略 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/22012404) — ウクライナ 侵略 · セルビア議会選、強権与党が苦戦 プーチン氏は「支持」明言 · ロシア、米 ウクライナ と3カ国協議「11月再開の用意」 米特使に表明 · ゼレンスキー氏の支持率 ...
+- [新着 ニュース - ウクルインフォルム](https://www.ukrinform.jp/block-lastnews) — ウクライナ への全面侵略を続けるロシア軍は22日未明、同国首都キーウに対して弾道ミサイルや自爆型無人機で攻撃を行った。これにより、市民が1名死亡、24名が負傷した ...
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — 2026年10月22日. プーチン氏、 ウクライナ 情勢めぐる3カ国協議 「11月再開の用意」 · 2026年10月19日. プーチン大統領、米中ロ3者会談提案か 11月のAPEC首脳会議で · 2026年10 ...
+- [ロシアの ウクライナ 侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — 2022年2月24日に開始されたロシアによる ウクライナ への侵攻。ロシア軍が ウクライナ 東・南部4州の掌握を目指して攻撃を続ける一方、 ウクライナ 側は欧米の軍事支援を受け ...
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — ロシアの人たちは · 青空を背に、複数階のガラス張りのビルが大破している · ウクライナ による夜間のドローン攻撃でモスクワ製油所から火の手と黒煙が · 屋外の舗装された場所 ...
+- [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ウクライナ 情勢 関連 ニュース ... ロシアの ウクライナ 侵攻 ロシアのプーチン政権が2022年2月24日、 ウクライナ のロシア系住民保護を名目に開始した軍事侵攻。ロシアは ...
+

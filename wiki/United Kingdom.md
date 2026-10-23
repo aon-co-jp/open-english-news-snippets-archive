@@ -448,3 +448,29 @@ Tags: `United Kingdom` `2026-10`
 - [UK | Latest News & Updates - BBC](https://www.bbc.com/news/uk) — Aug 1, 2024 · Get all the latest news, live updates and content about the UK from across the BBC.
 - [UK News | Top Stories from the UK | Reuters](https://www.reuters.com/world/uk/) — 17 hours ago · Reuters.com is your online source for the latest UK news stories and current events, ensuring our readers up to date …
 
+### United Kingdom(検索日時 / searched at: 2026-10-22)
+
+Tags: `United Kingdom` `2026-10`
+
+- [UK News - The latest headlines from the UK | Sky News](https://news.sky.com/uk) — 
+- [United Kingdom News — Today's Headlines on the News Map](https://globalnewsmap.net/country/united-kingdom) — Today's top headlines from 2 local news outlets in United Kingdom, updated every 6 hours by the Global News Map.
+- [United Kingdom news | Breaking News & Top Stories | NewsNow](https://www.newsnow.co.uk/h/World+News/Europe/Northern+Europe/United+Kingdom) — Read the latest United Kingdom headlines, on NewsNow. United Kingdom news, analysis and opinion from around the world.
+- [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNRGR6YzJNU0FtVnVLQUFQAQ?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
+- [UK | Latest News & Updates | BBC News](https://www.bbc.co.uk/news/uk) — Get all the latest news, live updates and content about the UK from across the BBC.
+- [UK News | Top Stories from the UK | Reuters](https://www.reuters.com/world/uk/) — 1 day ago · Reuters.com is your online source for the latest UK news stories and current events, ensuring our readers up to date with …
+- [UK | Latest News & Updates - BBC](https://www.bbc.com/news/uk) — Aug 1, 2024 · Get all the latest news, live updates and content about the UK from across the BBC.
+- [Google News - United Kingdom - Latest](https://news.google.com/topics/CAAqJQgKIh9DQkFTRVFvSUwyMHZNRGR6YzJNU0JXVnVMVWRDS0FBUAE?hl=en-GB&ceid=GB%3Aen) — Read full articles, watch videos, browse thousands of titles and more on the 'United Kingdom' topic with Google News.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-22)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 台湾 休業休校情報 台風30号【22日夜8時現在】 · 台湾シリーズ、中信が4連敗を回避 延長十一回にサヨナラ勝ち · 「PHP」に脆弱性 台湾、修正版の早期適用呼びかけ · 習近平氏 ...
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — 台湾 の発達障害ある画家5人、京都で写生旅行 映画監督の林正盛さんと妻が主宰 作品展も · 習近平氏風刺の 台湾 人コメディアン、車に衝突され負傷 中国関与の越境弾圧疑い＝ ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · オーストラリアで 台湾 の運転免許証の切り替え可能に、各州・準州で順次実施 · 外交部と米イーストウエスト・センターの合同事業、第11回太平洋島国青年リーダー ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や 台湾 の最新 ニュース ・特集をまとめました。中国の習近平国家主席の動向や中国経済、 台湾 を巡る情勢、TSMCや鴻海の ニュース などをお伝えします。
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「 台湾 」 ニュース 一覧 · 三菱電機 自動車部品子会社にホンハイの出資受け入れで会見 · 台湾 TSMC過去最高益「需要減速の兆候なし」 · 自民 古屋前選対委員長 台湾 訪問 頼総統と ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 台湾 休業休校情報 台風30号【22日夜8時現在】 · 台湾 の発達障害ある画家5人、京都で写生旅行 映画監督の林正盛さんと妻が主宰 作品展も · 習近平氏風刺の 台湾 人コメディアン ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「 台湾 山の上の町、地の塩、世の光」と題する演説 · 外交部、ベリーズとパラグアイが中国の威嚇に屈せず 台湾 と ...
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾情勢 · 19時間前. 中国、台湾実効支配の東沙諸島周辺で「秩序維持」と主張 · 20時間前. 中国による偽情報拡散が増加、台湾当局が警告 統一地方選控え · 22時間前. 中国、 ...
+
