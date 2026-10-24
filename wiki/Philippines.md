@@ -429,3 +429,16 @@ Tags: `Philippines` `2026-10`
 - [Balita - National](https://balita.mb.com.ph/national/) — Oct 13, 2026 · Nagbigay ng tips si Pangulong Ferdinand 'Bongbong' Marcos, Jr. sa publiko para paghandaan ang Super El Niño sa …
 - [Latest Philippine News - Bombo Radyo News](https://www.bomboradyo.com/) — Mariing itinanggi ng House prosecution na na-coach ang Anti-Money Laundering Council (AMLC) Secretariat Executive Director Ronel Buenaventura bago ito humarap bilang testigo sa impeachment · Naglabas ang House of Representative ng resolusyon kung saan hinihikayat ang bawat ahensya at mga sangay ...
 
+### Philippines(検索日時 / searched at: 2026-10-23)
+
+Tags: `Philippines` `2026-10`
+
+- [Breaking News & Headlines in the Philippines | ABS-CBN News](https://www.abs-cbn.com/news) — 5 days ago - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
+- [List of Philippine television shows](https://en.wikipedia.org/wiki/List_of_Philippine_television_shows) — Here is the list of Philippine television shows categorised into its respective genres.
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 3 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Daniel Razon](https://en.wikipedia.org/wiki/Daniel_Razon) — Daniel Soriano Razon (Tagalog: [ˈdɐnjɛl soɾˈjano ɾaˈson]; born October 11, 1967) is a Filipino television and radio host. He is currently the Overall Servant (minister; Tagalog: Lingkod Pangkalahatan) of the Members Church of God International, succeeding Eli Soriano after the latter's death on February 11, 2021.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Mababasa at mapapanood ang maiinit at mahahalagang ulat pambansa, politikal, krimen at iba pa sa seksyon na 'Balita'. The 'BALITA' section offers national news, political developments and crime stories.
+- [Big News](https://en.wikipedia.org/wiki/Big_News) — Big News was a Philippine television news broadcasting show broadcast by ABC. Originally anchored by Duds Rivera and Bong Lapira, it aired from March 19, 1962 to September 22, 1972. The show returned on February 24, 1992.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 3 days ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+- [List of Philippine television programs by date](https://en.wikipedia.org/wiki/List_of_Philippine_television_programs_by_date) — The following is a partial list of Philippine television programs by date of first broadcast in the Philippines. The lists of television programs are in reverse chronological order by year; within each year, the list is chronological.
+

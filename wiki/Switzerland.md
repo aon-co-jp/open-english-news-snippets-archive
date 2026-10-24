@@ -421,3 +421,29 @@ Tags: `Switzerland` `2026-10`
 - [Blick: Nachrichten und Schlagzeilen aus der Schweiz und ...](https://www.blick.ch/) — 23. Sept. 2025 · Aktuelle Nachrichten, News und Kommentare aus Wirtschaft, Politik, Sport, Kultur, Gesellschaft, Wissen & Lifestyle …
 - [Schweiz: Aktuelle News, Bilder & Nachrichten - WELT](https://www.welt.de/themen/schweiz/) — 28. Sept. 2026 · 71 Prozent der Schweizer stimmen laut Hochrechnung gegen eine striktere Neutralität. Die Initiative hätte dem Land …
 
+### Switzerland(検索日時 / searched at: 2026-10-23)
+
+Tags: `Switzerland` `2026-10`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Schweiz](https://de.wikipedia.org/wiki/Schweiz) — Die Schweiz (schweizerdeutsch Schwiz, französisch [sɥis(ə)], italienisch [ˈzvitːsera], rätoromanisch [ˈʒviːtsrɐ] oder [ˈʒviːtsʁɐ], lateinisch Helvetia), amtlich Schweizerische Eidgenossenschaft (schweizerdeutsch Schwizerischi Eidgnosseschaft, französisch Confédération suisse, italienisch Confederazione Svizzera, rätoromanisch , lateinisch Confoederatio Helvetica), ist ein föderalistischer, demokratischer Staat in Mitteleuropa. Er grenzt im Norden an Deutschland, im Osten an Österreich und Liechtenstein, im Süden an Italien und im Westen an Frankreich.
+- [Freiburger Nachrichten](https://de.wikipedia.org/wiki/Freiburger_Nachrichten) — Die Freiburger Nachrichten sind eine regionale Schweizer Tageszeitung in Freiburg im Üechtland.
+- [Neue Zürcher Nachrichten](https://de.wikipedia.org/wiki/Neue_Z%C3%BCrcher_Nachrichten) — Die Neuen Zürcher Nachrichten (NZN) waren eine katholische Tageszeitung, die von 1904 bis 1991 in der Stadt Zürich erschien. Die Zeitung stand der 1896 in Zürich gegründeten Christlichsozialen Partei (heutige Christlichdemokratische Volkspartei, CVP) nahe und unterstützte den Aufbau und die Festigung der katholischen Verbände und der christlich-sozialen Parteiarbeit rund um Zürich.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Verband Schweizer Medien](https://de.wikipedia.org/wiki/Verband_Schweizer_Medien) — Der Verband Schweizer Medien (VSM) ist die Branchenorganisation der privaten Schweizer Medienunternehmen mit Schwerpunkt Print und Digital. Er vereinigt über 70 Unternehmen und branchennahe assoziierte Mitglieder, die zusammen rund 300 Zeitungen und Zeitschriften herausgeben sowie verschiedene Newsplattformen und elektronische Medien anbieten.
+- [Basler Zeitung](https://de.wikipedia.org/wiki/Basler_Zeitung) — Die Basler Zeitung (kurz BaZ) ist eine Schweizer Tageszeitung mit Sitz in Basel. Sie ging im Januar 1977 aus der Fusion der linksliberalen National-Zeitung mit den bürgerlich-konservativen Basler Nachrichten hervor und wird von den Basler Zeitung Medien herausgegeben.
+- [Schweizer Radio DRS](https://de.wikipedia.org/wiki/Schweizer_Radio_DRS) — Das Schweizer Radio DRS (Radio der deutschen und rätoromanischen Schweiz (SR DRS)) war zusammen mit dem Schweizer Fernsehen (SF) eines der beiden ehemaligen Schweizer Medienunternehmen, die am 1. Januar 2011 in der Unternehmung Schweizer Radio und Fernsehen (SRF) vereint wurden.
+
+### China (Japanese)(検索日時 / searched at: 2026-10-23)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 速報（国際） · 22日. 第2のTikTok騒動か 中国 系ネット証券に「国家安全上のリスク」 · 22日. プーチン氏、 中国 首相と会談「実務協力を拡大」 11月の首脳会談に意欲 · 22日 ...
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 習近平総書記が中国工農紅軍長征勝利90周年記念大会で重要談話 · 中国商務部「2026年1-9月の米国の対中投資は7.7％増加」 · 中国の対外投資ストック、9年連続で世界3位 · 「 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/17: 中国 、解任された米大統領報道官に再訪呼び掛け 「まともなトイレがない」発言受け; 10/09: 中国 、ラオス北西部に基地開設 かつてCIAが使用した飛行場 ...
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「中国」ニュース一覧 · 茂木外相 米中ロ首脳会談 アメリカと緊密に意思疎通し対応 · 中国チベット自治区でM7.0の地震 16人死亡54人けが · 中国 チベット自治区でM7.0の地震 ...
+- [Xinhua - jp. news .cn](https://jp.news.cn/) — 中国 ・広州交易会第1期終了 海外バイヤー過去最多の18万9千人 · 陸上女子1500mT11、 中国 勢が金銀 アジアパラ · 北京中医薬大学が創立70周年.
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国のニュース・速報. 地震が発生した中国チベット自治区ナクチュで捜索活動に臨む救援隊 ＝. チベットで地震16人死亡 M7、46人負傷. 09時58分. 共同通信.
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国、海外投資の管理強化 通商摩擦に対抗、技術流出阻止 (10月23日 14:39) · 中国政府系がサイバー攻撃 AI「アルテックス」使用―米MS(10月23日 10:03) · 「党の理想厳守 ...
+

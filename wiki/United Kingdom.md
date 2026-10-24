@@ -474,3 +474,29 @@ Tags: `Taiwan (Japanese)` `2026-10`
 - [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「 台湾 山の上の町、地の塩、世の光」と題する演説 · 外交部、ベリーズとパラグアイが中国の威嚇に屈せず 台湾 と ...
 - [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾情勢 · 19時間前. 中国、台湾実効支配の東沙諸島周辺で「秩序維持」と主張 · 20時間前. 中国による偽情報拡散が増加、台湾当局が警告 統一地方選控え · 22時間前. 中国、 ...
 
+### United Kingdom(検索日時 / searched at: 2026-10-23)
+
+Tags: `United Kingdom` `2026-10`
+
+- [Today (UK newspaper)](https://en.wikipedia.org/wiki/Today_(UK_newspaper)) — Today was a national newspaper in the United Kingdom that was published between 1986 and 1995. It was an early adopter of electronic production and colour printing.
+- [Timeline of GB News](https://en.wikipedia.org/wiki/Timeline_of_GB_News) — This is a timeline of the history of GB News, a free-to-air television and radio news channel in the United Kingdom.
+- [2026 in the United Kingdom](https://en.wikipedia.org/wiki/2026_in_the_United_Kingdom) — Events from the year 2026 in the United Kingdom.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [GB News](https://en.wikipedia.org/wiki/GB_News) — GB News is a British free-to-air editorial television and radio news channel based in London, England. Announced in September 2020 and launched in June 2021 from studios at Paddington Basin, London, GB News became Britain's first television news start-up since the launch of Sky News in 1989.
+- [The Sun (United Kingdom)](https://en.wikipedia.org/wiki/The_Sun_(United_Kingdom)) — The Sun is a British tabloid newspaper, published by the News Group Newspapers division of News UK, itself a wholly owned subsidiary of News Corp. It was founded as a broadsheet in 1964 as a successor to the Daily Herald, and became a tabloid in 1969 after it was purchased by its current owner.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
+
+### South Korea (English)(検索日時 / searched at: 2026-10-23)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Jennie (singer)](https://en.wikipedia.org/wiki/Jennie_(singer)) — Jennie Kim (Korean: 김제니; born January 16, 1996) is a South Korean singer, rapper, songwriter, and actress. Born in South Korea, she moved to New Zealand in 2004 and returned to South Korea to successfully audition for YG Entertainment in 2010.
+- [Lee Choon-jae](https://en.wikipedia.org/wiki/Lee_Choon-jae) — Lee Choon-jae (Korean: 이춘재; born January 31, 1963), also known as the Hwaseong Serial Killer, is a South Korean serial killer known for committing the Hwaseong serial murders (Korean: 화성 연쇄 살인 사건). Between 1986 and 1994, Lee murdered fifteen women and girls in addition to committing numerous sexual assaults, predominantly in Hwaseong, Gyeonggi Province, and the surrounding areas.
+- [Lee Sun-kyun](https://en.wikipedia.org/wiki/Lee_Sun-kyun) — Lee Sun-kyun (Korean: 이선균; March 2, 1975 – December 27, 2023) was a South Korean actor. Internationally, he was best known for his role in Bong Joon-ho's Academy Award–winning film Parasite (2019), for which he won an Actor Award along with his castmates.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+

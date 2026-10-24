@@ -451,3 +451,29 @@ Tags: `Brazil (English)` `2026-10`
 - [Daily Brazil News | Breaking News & Culture from Brazil](https://dailybrazilnews.com/) — 5 days ago · Stay informed with the latest news from Brazil—covering politics and daily breaking headlines. Trusted updates from …
 - [Google News - Brazil - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNREUxWm5JU0FtVnVLQUFQAQ) — Read full articles, watch videos, browse thousands of titles and more on the "Brazil" topic with Google News.
 
+### Taiwan(検索日時 / searched at: 2026-10-23)
+
+Tags: `Taiwan` `2026-10`
+
+- [即時 | 聯合新聞網](https://udn.com/news/breaknews/1) — 中度颱風薔琵今明兩天威脅全台，中央氣象署持續發布海上陸上颱風警報，根據最新資料顯示，薔琵颱風中心目前在鵝鑾鼻東方海面，向北北西移動，其暴風圈已接觸台灣東南部陸地，對台灣陸地構成威脅。 ... 新北市板橋區萬板路一棟11層樓集合式住宅，今凌晨零時14分許突發火災。新北市消防局接獲通報後，立即出動40輛救災車輛及92名消防人員趕赴現場展開搶救。海山警分局埔墘派出所亦迅速派遣8名警力，於周邊進行交通疏導管制與人員疏散作業。 ... 法國司法部長達馬南（Gerald Darmanin）今天表示，針對上周末暴動事件，法院以快速審理程序將217人定罪後，已...
+- [李文儀](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E5%84%80) — 李文儀（1978年9月30日—），於台灣出生的台灣新聞主播、主持人、製作人，畢業於英國倫敦大學學院國際公共政策碩士。現為三立新聞台《台灣大頭條》當家主播、《消失的國界》主持人、三立iNEWS《台灣新思路》主持人。
+- [即時總覽 │ TVBS新聞網](https://news.tvbs.com.tw/realtime) — 中度颱風「薔琵」持續逼近台灣，暴風圈已於今（23）日清晨接觸東部陸地！氣象粉專「台灣颱風論壇｜天氣特急」指出，薔琵環流範圍相當龐大，氣象雷達目前只能掃描到颱風約一半的結構，另一半仍在雷達監測範圍外。預估23日（星期五）夜晚至24日（星期六）上午最接近台灣，由於移動速度偏慢，加上可能受到地形影響，不排除出現不規則移動，甚至更靠近台灣或登陸，風雨影響時間恐因此延長。
+- [李晶玉](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%99%B6%E7%8E%89) — 李晶玉（1968年10月19日—），臺灣新聞主播及主持人，籍貫江西省，夫婿彭文正為通緝犯，夫妻二人曾主持過壹電視新聞台政論節目《正晶限時批》與民視新聞台政論節目《政經看民視》，現擔任網路政論節目《政經關不了》主持人、《今天遇見你》主持人。
+- [總覽新聞 - 即時 - 自由時報電子報](https://news.ltn.com.tw/) — 竟用假名當美國議員？ 民主黨「四人幫」要角涉身分詐欺遭搜索 無人應門理智斷線 男子情緒失控咆哮、滅火器砸門遭法辦 空射雄三飛彈零組件竟出現疑似中國製品 中科院：主動查驗排除疑慮 明年學測10月27日起報名 考生注意繳費期限 蔣萬安愛用贅詞?作文老師直言「直接破題、少講廢話」 網敲碗快去上課 沈伯洋、蔣萬安同上《少康戰情室》點閱差百萬 藍綠議員這樣看 台灣地形吸颱？台、日最新路徑估西折接近 鄭明典曝區域模式恐繞圈 來台放天燈許願「兩岸統一」！中籍女學生遭起底 網怒轟滾回去 琵颱風來襲 屏東霧台鄉預警性撤離24人 薔琵吹垮江啟臣巨幅看板 砸中至少4輛自小客車
+- [有线电视新闻网](https://zh.wikipedia.org/wiki/%E6%9C%89%E7%BA%BF%E7%94%B5%E8%A7%86%E6%96%B0%E9%97%BB%E7%BD%91) — 有線電視新聞網（英語：Cable News Network），英語縮寫及通稱「CNN」，是美國一個透過有線電視與衛星電視播出的新聞頻道，由泰德·透納於1980年創辦，最初由透納廣播公司經營，現隸屬天舞公司旗下。對全世界播出，CNN總部和主要播報室位於美國喬治亞州的亞特蘭大。
+- [台灣 | 世界新聞網](https://www.worldjournal.com/wj/cate/taiwan) — 公股投資蘇巧慧妹公司大虧 黃國昌：臭不可聞 場館禁「洋流」貼紙 北市府：公民基本常識 聲援吳子嘉 鄭麗文憂寒蟬效應：司法調查變政治武器 賴清德搭火車宜蘭輔選 吳宗憲指冒維...
+- [字幕跑馬燈](https://zh.wikipedia.org/wiki/%E5%AD%97%E5%B9%95%E8%B7%91%E9%A6%AC%E7%87%88) — 新聞跑馬燈（有時簡稱跑馬燈；英語對應詞：News ticker）是在電視新聞畫面上的一個小空間，通常是用來顯示頭條新聞或是新聞報導中較小的細節。跑馬燈有時也指在某些建築物或室內空間用來表現訊息的顯示版，如鐵路站內的列車到站資訊顯示跑馬燈。
+
+### Russia (English)(検索日時 / searched at: 2026-10-23)
+
+Tags: `Russia (English)` `2026-10`
+
+- [What in JavaScript can make both contentEditable and textarea unable to recieve any input?](https://stackoverflow.com/questions/26450780) — - box-1 ["Russia Today", "http://rt.com/"], ["Reuters", "http://www.reuters.com/"], ["Al Jazeera", "http://america.aljazeera.com/"], ["The Raw Story", "http://rawstory.com/"], &hellip; http://whatshouldireadnext.com/"], ["Which Book", "http://www.openingthebook.com/whichbook/"], ["TechRaptor", "http://techraptor.net/"], ["TechCrunch", "http://techcrunch.com/"], ["Gamer Headlines &hellip;
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — That should worry Trump.", "description": "More legal pressure on Manafort=more chance he'll flip in the Russia investigation.", "url": "https://www.washingtonpost.com/news/the-fix &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — { Observable, of } from 'rxjs'; import { switchMap } from 'rxjs/operators'; @Injectable() export class SportsService implements OnInit { sports: any = []; _urll = 'https://newsapi.org/v2/top-headlines &hellip; 'Bentley' on 25th birthday", "description": "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social &hellip;
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [Weekend Today](https://en.wikipedia.org/wiki/Weekend_Today) — Weekend editions of Today, an American morning news and talk program that airs daily on NBC, began with the launch of the Sunday edition of the program on September 20, 1987. After NBC expanded Today to seven days a week in the 1990s, the name Weekend Today was adapted primarily for promotional purposes.
+

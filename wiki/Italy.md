@@ -388,3 +388,29 @@ Tags: `Italy` `2026-10`
 - [Notizie dall'Italia: ultime notizie - StrettoWeb](https://www.strettoweb.com/notizie-italia/) — 17 ore fa · Leggi le ultime notizie dall'Italia su StrettoWeb: aggiornamenti in tempo reale su politica, cronaca, sport e tanto altro.
 - [Il Giornale d'Italia – news e video in tempo reale dall'Italia e ...](https://www.ilgiornaleditalia.it/) — 17 ore fa · Il Giornale d’Italia – Quotidiano nazionale con notizie in tempo reale di Politica, Cronaca, Attualità, Economia, Esteri, …
 
+### Italy(検索日時 / searched at: 2026-10-23)
+
+Tags: `Italy` `2026-10`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [Episodi di Squadra antimafia - Palermo oggi (ottava stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(ottava_stagione)) — L'ottava ed ultima stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa con il titolo Squadra antimafia - Il ritorno del boss in prima visione in Italia da Canale 5 dall'8 settembre 2016.
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Fake news](https://it.wikipedia.org/wiki/Fake_news) — Le fake news - note in italiano come bufale, notizie false, notizie fasulle o pseudonotizie - sono delle informazioni false o fuorvianti che possono essere divulgate attraverso qualsiasi media allo scopo di produrre misinformazione o disinformazione. ecc… Esempi di bufale possono essere articoli o pubblicazioni su reti sociali, redatti con informazioni inventate, ingannevoli o distorte, resi pubblici con il deliberato intento di disinformare, di creare scandalo attraverso i mezzi di informazione oppure di attirare clic su Internet.
+- [Storia d'Italia](https://it.wikipedia.org/wiki/Storia_d%27Italia) — La storia d'Italia è l'insieme degli eventi susseguitisi nel corso del tempo nell'area geografica italiana; la presenza in Italia di Roma, capitale del paese e già centro della civiltà romana e della Chiesa cattolica, ha reso la sua storia pilastro fondante della cultura occidentale, latina, europea e mediterranea. La sua eredità storico-culturale si riflette nell'elevato numero di patrimoni dell'umanità presenti nel paese.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-23)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイスの主要メディアが報じた日本 関連ニュース を週1回、まとめてお届けする無料ニュースレターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 中外製薬の「エンスプリング」、甲状腺眼症を対象に米国で承認取得 · UBS、スイス脱出の切り札 メガバンク・野村は統合相手の伏兵か · スイス資源大手グレンコア、豪市場で ...
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [スイス 20 先物 ニュース - Investing.com](https://jp.investing.com/indices/switzerland-20-futures-news) — UBSが スイス 経済に楽観的、ユーロ圏と米国関税にリスクを警戒. UBSのアナリストらは、堅調な消費需要と失業率の緩やかな低下を背景に、来年の スイス 経済の回復を予測し ...
+- [swissinfo.ch - スイス インフォ (@switzerlandinjapanese)](https://www.facebook.com/switzerlandinjapanese/) — シリコンバレーが「軍需産業」に変貌？ · もし、あなたの病院がAIによるサイバー攻撃を受けた ら？ · 植民地を持たなかった スイス に、なぜ4000体以上の遺 骨がある ...
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — 保育園児を刃物で襲撃、中国人留学生の男に拘禁15年 スイス · ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — スイス. 最新ニュース. 改憲の緊急事態条項、維新が早期条文化を主張 欧州を引き合いに討議 · 衆院憲法審査会に臨む与野党の議員ら。中央は古屋圭司会長 · 改憲の緊急事態 ...
+
