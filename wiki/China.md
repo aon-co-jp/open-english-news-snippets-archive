@@ -493,3 +493,16 @@ Tags: `China` `2026-10`
 - [头条推荐- 头条新闻 -hao123新闻导航 _hao123上网导航](http://www.baidu.com/link?url=Je6bo2for9a38wqifIlnVlvd2oj570uBGLFYToXdjLVVL7fcGgq-Eze8VwoAAKB-pVrshYJeUciLn54DGXUR-jUy1Wqx7JbjK4IeqGtvsBscPVjBLSzfSs4oqTkeyOA9) — 
 - [新华网_让 新闻 离你更近](http://www.baidu.com/link?url=nceuKmYtaV0NB8rqWWcbN81jNsAokCxG2md0AIZt8dz7O2egm_82hewcefCVzQFUeSfd90goQQdNCNOZNiNa6K) — 
 
+### China(検索日時 / searched at: 2026-10-24)
+
+Tags: `China` `2026-10`
+
+- [中国新闻_央视网(cctv.com)](https://news.cctv.com/china/) — 2026年8月12日 - 工业和信息化部近日印发《加快构建工业和信息化领域碳排放双控工作体系实施方案（2026—2030年）》，部署了领域内碳排放总量和强度双控的重点任务、实施路径 。
+- [今天 (NBC)](https://zh.wikipedia.org/wiki/%E4%BB%8A%E5%A4%A9_(NBC)) — 《今天》（英语：Today），也被称为《今日秀》（The Today Show），是一档美国的晨间新闻和脱口秀节目。每个工作日的晨间在美国全国广播公司（NBC）播出，于1952年1月14日首播。
+- [主页 - BBC News 中文](https://www.bbc.com/zhongwen/simp) — 蔷琵台风来袭之际，台湾各县市是否宣布停班停课，成为九合一地方选举前的舆论焦点。有研究指出，选举年台风“停班停课”可能性增加。 · 颱風薔琵風暴圈籠罩全台灣，至今造成1死171傷。氣象部門預測，週五（23日）...
+- [About Life刘德华巡回演唱会](https://zh.wikipedia.org/wiki/About_Life%E5%88%98%E5%BE%B7%E5%8D%8E%E5%B7%A1%E5%9B%9E%E6%BC%94%E5%94%B1%E4%BC%9A) — 刘德华“About Life”巡回演唱会（About Life Andy Lau Concert Tour），全称宏利保险隆重呈献About Life刘德华巡回演唱会，是香港歌手刘德华于2026年12月至2027年举行的巡回演唱会，以“About Life”为主题，由映艺娱乐主办。 香港站由宏利保险冠名赞助，于2026年12月18日至2027年1月10日在香港体育馆（红馆）举行20场跨年演唱会，横跨圣诞节及元旦。
+- [新华网_让新闻离你更近](https://www.news.cn/) — 新华全媒头条丨透视“十五五”开局之年中国经济三季报 · 追光丨海滩+音乐+短跑+赛艇=奥运新项目 · 秀我中国丨白首正当时：两个人的“电影厂” · 新闻分析丨中国女足主帅米利西奇缘何下课
+- [新闻联播](https://zh.wikipedia.org/wiki/%E6%96%B0%E9%97%BB%E8%81%94%E6%92%AD) — 《新闻联播》，中央广播电视总台新闻节目，于1978年1月1日启播，是中华人民共和国收视率最高、影响力最大的电视新闻栏目，被称为“中国政坛的风向标”。目前，该节目于北京时间每晚19:00在CCTV-1（含港澳版）、CCTV-7、CCTV-13、环球资讯广播并机首播，并于每晚21:00在CCTV-13，22:30在CCTV-4重播。
+- [头条新闻_中华人民共和国外交部](https://www.mfa.gov.cn/ttxw/) — 1个月前 - 外交史上的今天 · 领事常识 · 礼宾知识 · 建交国家一览表 · 中国地图 · 专题 · 政府信息公开 · 外交新媒体 · 首页 > 头条新闻 · 头条新闻 · 习近平向第140届中国进出口商品交易会致贺信（2026-10-14） ·
+- [中国中央电视台新闻频道](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E4%B8%AD%E5%A4%AE%E7%94%B5%E8%A7%86%E5%8F%B0%E6%96%B0%E9%97%BB%E9%A2%91%E9%81%93) — 中国中央电视台新闻频道（频道呼号：CCTV-13 新闻），是中国中央电视台拥有的以普通话广播为主的新闻频道之一，于2003年5月1日开始对外试播，同年7月1日正式开播，是一个全天候专业播送新闻、评论、访谈的电视频道。
+
