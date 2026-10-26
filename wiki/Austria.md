@@ -550,3 +550,16 @@ Tags: `Myanmar (English)` `2026-10`
 - [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 
+### Austria(検索日時 / searched at: 2026-10-25)
+
+Tags: `Austria` `2026-10`
+
+- [Deutschland - aktuelle Nachrichten - tagesschau.de](https://www.tagesschau.de/thema/deutschland) — 16. Okt. 2026 · Deutschland - Nachrichten und Information: An 365 Tagen im Jahr, rund um die Uhr aktualisiert, die wichtigsten News …
+- [ZDFheute - Aktuelle Nachrichten und Videos auf einen Blick](https://www.zdfheute.de/) — News aus Deutschland sowie aktuelle Nachrichten aus Europa und aller Welt. Videos, Livestreams, Kommentare und Analysen von …
+- [heute-Nachrichten - Aktuelle ZDF-Nachrichten aus aller …](https://www.zdfheute.de/video/heute-nachrichten) — Vor 2 Tagen · Der relevante Überblick aus der Nachrichtenredaktion des ZDF mit Vertiefung und …
+- [Aktuelle Nachrichten | DIE ZEIT](https://www.zeit.de/news/nachrichten) — 1. Juli 2026 · Lesen Sie hier aktuelle und wichtige Nachrichten von heute - aus Deutschland und der Welt.
+- [Aktuelle Politik-Nachrichten und News aus Deutschland](https://www.allgemeine-zeitung.de/politik/politik-deutschland/) — Vor 17 Stunden · Aktuelle Nachrichten von heute. Was war heute in Deutschland los? Hintergrundberichte und aktuelle Informationen.
+- [BR24 - Nachrichten, Fakten und Hintergrund | BR24](https://www.br.de/nachrichten/) — Vor 17 Stunden · Bleiben Sie informiert: Aktuelle Nachrichten, Fakten und Liveberichte aus Politik, Wirtschaft, Kultur und Sport aus …
+- [Die neuesten Nachrichten rund um die Uhr. - Deutschlandfunk](https://www.deutschlandfunk.de/nachrichten-100.html) — 4. Dez. 2024 · Nachrichten, News, Eilmeldungen: Hier können Sie die wichtigsten, aktuellen Meldungen aus Politik, Wirtschaft, …
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+

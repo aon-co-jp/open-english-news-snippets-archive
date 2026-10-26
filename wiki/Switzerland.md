@@ -460,3 +460,16 @@ Tags: `Switzerland` `2026-10`
 - [Basler Zeitung](https://de.wikipedia.org/wiki/Basler_Zeitung) — Die Basler Zeitung (kurz BaZ) ist eine Schweizer Tageszeitung mit Sitz in Basel. Sie ging im Januar 1977 aus der Fusion der linksliberalen National-Zeitung mit den bürgerlich-konservativen Basler Nachrichten hervor und wird von den Basler Zeitung Medien herausgegeben.
 - [Schweizer Radio DRS](https://de.wikipedia.org/wiki/Schweizer_Radio_DRS) — Das Schweizer Radio DRS (Radio der deutschen und rätoromanischen Schweiz (SR DRS)) war zusammen mit dem Schweizer Fernsehen (SF) eines der beiden ehemaligen Schweizer Medienunternehmen, die am 1. Januar 2011 in der Unternehmung Schweizer Radio und Fernsehen (SRF) vereint wurden.
 
+### Switzerland(検索日時 / searched at: 2026-10-25)
+
+Tags: `Switzerland` `2026-10`
+
+- [Schweizer Nachrichten heute | SchweizHeute](https://schweizheute.com/de) — SchweizHeute: offizielle Nachrichten aller 26 Kantone und des Bundes, KI-gestützt in drei klare Punkte zusammengefasst — …
+- [Aktuelle News aus der Schweiz und weltweit – SRF](https://www.srf.ch/news) — SRF News: Nachrichten aus den Bereichen US-Wahlen 2024, Ukraine, Klima, Schweiz, International, Wirtschaft, Gesellschaft und …
+- [20 Minuten: Aktuelle Nachrichten, Schlagzeilen - News von Jetzt](https://www.20min.ch/) — Alle News auf einen Blick: Beim grössten Schweizer Nachrichtenportal findest du 24/7 Aktuelles, Bilder, Hintergründe und Videos aus …
+- [Schweiz heute | Überregionale News aus der Schweiz](https://www.schweizheute.ch/) — Vor 2 Tagen · Lesen Sie neu alle Inhalte unserer Regionalzeitungen bequem auf Ihrem News-Portal.
+- [Aktuelle News und Schlagzeilen aus Schweiz und Welt](https://www.bluewin.ch/de/news) — Die wichtigen Nachrichten und Breaking News aus der Schweiz und der ganzen Welt zu Politik, Wirtschaft und Gesellschaft.
+- [Schweiz – News und Hintergründe zum Inland | NZZ Nachrichten](https://www.nzz.ch/schweiz) — 23. Sept. 2026 · Aktuelle News zur Schweiz, Abstimmungen, Sessionen und Inlandspolitik – umfassend informiert mit der Neuen …
+- [Schweiz News: Aktuelle Nachrichten zum Staat in Europa](https://www.handelsblatt.com/themen/schweiz) — Vor 3 Tagen · Die Schweiz ist ein Staat in Europa. Lesen Sie hier aktuelle News und neueste Nachrichten von heute zur Schweiz.
+- [Blick: Nachrichten und Schlagzeilen aus der Schweiz und ...](https://www.blick.ch/) — 1. Sept. 2024 · Aktuelle Nachrichten, News und Kommentare aus Wirtschaft, Politik, Sport, Kultur, Gesellschaft, Wissen & Lifestyle …
+
