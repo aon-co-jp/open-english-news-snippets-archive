@@ -455,3 +455,16 @@ Tags: `Philippines` `2026-10`
 - [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Kinuwestiyon ni Chairman Emeritus Dr. Jose Antonio Goitia kung bahagi ng mas malawak na estratehiya ng Tsina ang tumitinding mga kilos nito sa West Philippine Sea upang pahinain ang paninindigan ng Pilipinas.
 - [List of Philippine television programs by date](https://en.wikipedia.org/wiki/List_of_Philippine_television_programs_by_date) — The following is a partial list of Philippine television programs by date of first broadcast in the Philippines. The lists of television programs are in reverse chronological order by year; within each year, the list is chronological.
 
+### Philippines(検索日時 / searched at: 2026-10-25)
+
+Tags: `Philippines` `2026-10`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — 3 weeks ago - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 5 days ago - Mariing kinondena ng mga mambabatas na sina Senate President (SP) Sherwin Gatchalian, Sen. Erwin Tulfo, at Sen. Risa Hontiveros ang naging pahayag ni Chinese Ambassador to the Philippines Jing Quan na madali umano mananalo ang China kontra sa Pilipinas kung gagamit ito ng puwersa.
+- [Breaking News & Headlines in the Philippines | ABS-CBN …](https://www.abs-cbn.com/news) — 1 week ago - Stay updated with the latest breaking news, in-depth reports, and exclusive interviews. Get your trusted news coverage from ABS-CBN News.
+- [Videos - 24 Oras, Philippines Live News Today | GMA News ...](https://www.gmanetwork.com/news/video/shows/105/balitapilipinas/) — 1 week ago - Watch news reports, social videos, and livestreams that cover top stories and breaking events in the Philippines.
+- [Pilipino Star Ngayon | Balita ngayon - Philstar.com](https://www.philstar.com/pilipino-star-ngayon/) — Dec 25, 2021 · Online edition ng Pilipino Star Ngayon, ang dyaryong disente ng masang intelihente. Abangan ang pinakabagong …
+- [Balita - National](https://balita.mb.com.ph/national/) — Oct 13, 2026 · Nagbigay ng tips si Pangulong Ferdinand 'Bongbong' Marcos, Jr. sa publiko para paghandaan ang Super El Niño sa …
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Kinuwestiyon ni Chairman Emeritus Dr. Jose Antonio Goitia kung bahagi ng mas malawak na estratehiya ng Tsina ang tumitinding mga kilos nito sa West Philippine Sea upang pahinain ang paninindigan ng Pilipinas.
+- [Balita - Philippine News](https://balita.mb.com.ph/) — Viral ngayon ang isang pari sa Italy matapos nitong mag-middle finger sa isa sa mga kabataang nagmimitsa ng riot sa kanilang lugar. Kasunod ito ng sumiklab na malawakang kilos-protesta sa iba’t ibang pangunahing mga siyudad sa bansang Italy, partikular sa Milan, Bologna, at Turin, noong Oktubre 17-18, 2026.
+

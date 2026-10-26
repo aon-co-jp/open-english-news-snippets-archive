@@ -542,3 +542,16 @@ Tags: `Germany (Japanese)` `2026-10`
 - [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 10月16日 · EUのEV優遇制度案、日本製を除外 独仏が合意 · エンジン回帰の独ポルシェ、米国で次世代スポーツ車コンセプト初公開 · 伊ウニクレディトの独銀買収、ECBが承認 ...
 - [ドイツ の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/topic/germany/page4) — ドイツ の ニュース ・速報 · なでしこ、 ドイツ 戦へ調整 14日に世界3位と対戦 · ベルリンで記者会見する社会民主党のベアベル・バース共同党首＝9月 · 英国のバーナム首相（ ...
 
+### Taiwan(検索日時 / searched at: 2026-10-25)
+
+Tags: `Taiwan` `2026-10`
+
+- [NOWnews今日新聞](https://www.nownews.com/) — NOWNEWS今日新聞 《NOWNEWS APP》「聽新聞」功能，每日為您朗讀超過600則新聞。不需坐在電腦前或盯著手機瞧，可一邊做家事、開車、運動，讓AI語音主播用聲音陪伴您生活的每一刻。 ... 《鄉民大學問EP.162》字幕版｜#黃揚明 唱這首歌評洋流民調！#吳崢 同意民調不一定讓#沈伯洋 贏！#黃暐瀚 大膽預測結果！#洪孟楷 ：藍營需要大罷免團結！台北市藍綠版圖大洗牌了？！｜NOWNEWS ... 台灣大賽G5／關鍵盜三壘跑回致勝分！江坤宇笑曝給教練團一個眼神：也不知道他們有沒有看我｜NOWNEWS
+- [Yahoo新聞](https://tw.news.yahoo.com/) — 第61屆節目類金鐘獎因颱風延期至10月25日舉行，由陳漢典獨挑大樑主持。他開場展現模仿功力，一口氣模仿多位資深主持人並帶來精彩歌舞秀，炒熱典禮氣氛。典禮首度因颱風延期兩天，陳漢典感性宣布典禮重生，並感謝工作人員辛勞。本屆金鐘獎於台北流行音樂中心舉辦，並透過各大電視與網路平台同步直播，邀請觀眾一同見證精彩時刻。 ... 新北國王今靠李愷諺末節逆轉三分彈，以89：81力退新北中信特攻，收下2連勝，續居聯盟龍頭。特攻原定昨舉行開幕戰對決戰神，不過首戰因颱風攪局延至今天，今上半場靠法拉帝獨攬10分，加上謝亞軒3顆三分球，帶著48：42領先進入下半場。易籃後，特攻陷入得分荒，單節僅拿下14分，讓國王打完前三節取得67：62
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=sej6gdvdoK22apYMlPWP1LYo9kxBiywYNwONdyFKjz_) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-手机闽南网](http://www.baidu.com/link?url=3QzCeDQQGbTLlrBUsfX1HFv_hQh8dUGgBBkn67_iNbX-WJE19VYcia5qoe_64AIW) — 
+- [即时 新闻 _新华 台湾 _新华网](http://www.baidu.com/link?url=P3G59UC2LJHSWx-8BOSlMNe-wP3VaixXeW3GZ-XVJCVuKQIo5UEkUYV04ahQuT6h) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際資訊](http://www.baidu.com/link?url=3QzCeDQQGbTLlrBUsfX1HIUiyPDhu9g2vfYlrvvkkL-Yp9L1SlWZQBisDZukTD6U) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=KsrNTLJNQqm3Wg4vEqFmxYGYdohzf4rEStLt2dojWR4l4e0qz1_AvoPBxgR7wW7J-B_U7mM37ITNhhgnpQFPVq) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=sej6gdvdoK22apYMlPWP1TH4y6oUc0cnp-7YftzehtK) — 
+

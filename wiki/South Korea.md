@@ -469,3 +469,16 @@ Tags: `Italy (English)` `2026-10`
 - [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 
+### South Korea(検索日時 / searched at: 2026-10-25)
+
+Tags: `South Korea` `2026-10`
+
+- [조선일보 - 1등 디지털뉴스](https://www.chosun.com/) — 국내 최초의 온라인 뉴스서비스 조선닷컴은 국내 최고 언론사인 조선일보의 오피니언, 정치, 사회, 경제, 국제, 스포츠, 문화 뉴스를 빠르고 정확하게 제공합니다.
+- [가장빠른 주식 뉴스 국내주식 뉴스 오늘](https://overseasstockevents.com/%ea%b0%80%ec%9e%a5%eb%b9%a0%eb%a5%b8-%ec%a3%bc%ec%8b%9d%eb%89%b4%ec%8a%a4-%ea%b5%ad%eb%82%b4%ec%a3%bc%ec%8b%9d-%eb%89%b4%ec%8a%a4-%ec%98%a4%eb%8a%98/) — 가장빠른 주식 뉴스 ’는 신속하고 정확한 정보를 제공하여 투자자들이 시장에서 빠르게 대응할 수 있도록 돕습니다. ‘국내주식 뉴스 ’는 한국 주식 시장의 주요 뉴스 와 동향을 다루며, ‘ 오늘 주식 뉴스 ’는 하루 동안의 중요한 사건들을 정리하여 제공합니다. 이 정보를 통해 투자자들은 더 나은 결정을 내릴 수...
+- [IT/테크 주요 뉴스 오늘 의 핵심 흐름과 실무 시사점 분석](https://bstar36.tistory.com/610) — 주요 뉴스 오늘 의 핵심 흐름 아래 내용은 최근 24시간 내 수집된 원문 보도를 바탕으로 정리한 핵심 이슈입니다. 확정되지 않은 사실은 추가하지 않고, 원문에서 확인되는 범위 안에서 의미를 설명합니다. 1. 브랜드 인게이지먼트 네트워크, 카타네오 인수 완료 [지디넷코리아] 이번 인수는 반복 수익을 창출하는 수익성...
+- [뉴스 - 주요 뉴스 | KTV 국민방송](http://m.ktv.go.kr/news/major/list) — 이 시각 주요 뉴스 (26. 10. 25. 12시) ; "강력범죄, 전쟁 선포 각오로"···'가석방 없는 무기형' 검토 ; 국방부, 북에 군사회담 다시 제의···"MDL 명확한 위치 확인"
+- [연합뉴스TV | 대한민국 No.1 보도채널](https://www.yonhapnewstv.co.kr/) — 대한민국 No.1 보도채널, 뉴스 투데이, 속보, 정치, 경제, 사회, 라이브 방송 제공.
+- [경제 뉴스 — 오늘 의 날씨와 경제](https://weaco.co.kr/economy/) — 한눈에 보는 오늘의 뉴스
+- [9월 8일 한국 주요 뉴스 TOP 10](https://nwforyou.tistory.com/753) — 점은 인정했지만 부정한 청탁은 없었다고 밝혔습니다. 청와대는 제기된 의혹은 국회 인사청문회에서 검증해야 한다는 입장입니다. 출처: MBC·연합 뉴스 오늘 한국 주요 뉴스 는 초대 중수청장 후보자 지명과 한·프랑스 정상회담, 호르무즈 파병 검토가 정치·외교 분야의 핵심입니다. 경제 분야에서는 미국 원전 8기와...
+- [10월 5일- 세계 주요 언론이 본 한국](https://cafe.daum.net/achasansijo/IWBC/31?q=%ED%95%9C%EA%B5%AD%20%EB%89%B4%EC%8A%A4%20%EC%98%A4%EB%8A%98%20%EC%A3%BC%EC%9A%94&re=1) — 로이터와 AP 모두 폐막 소식을 국제 스포츠 주요 기사로 다뤘습니다. Reuters 다만 국내에서는 한국 의 금메달 수가 44년 만에 가장 적었다는 평가가 나오고 있어...일본과의 경기력 격차를 어떻게 줄일지가 과제로 남았습니다. SBS 뉴스 오늘 아침 제가 보는 중요도 1순위는 알래스카 LNG입니다. 미국 대통령이 한국 의...
+
