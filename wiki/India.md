@@ -623,3 +623,133 @@ Tags: `Myanmar (English)` `2026-10`
 - [Google News - Myanmar (Burma) - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNRFI0Ymw4U0FuUm9LQUFQAQ) — Read full articles, watch videos, browse thousands of titles and more on the "Myanmar (Burma)" topic with Google News.
 - [News Archives - Myanmar Now](https://myanmar-now.org/en/news/category/news/) — 3 days ago · Delayed developments and the cancellation of a major project raise doubts about the property market in Myanmar’s …
 
+### India(検索日時 / searched at: 2026-10-26)
+
+Tags: `India` `2026-10`
+
+- [How to make two column in a batch file?](https://stackoverflow.com/questions/13654471) — (5) = Times Now +5 echo (6) = Saharah AP +6 echo (7) = News X +7 echo (8) = Punjabi +8 echo (9) = Al Jazeera Sport + &hellip; 9 echo (10) = Al Jazeera Sport +10 pause echo (11) = Aaj Tak +11 echo (12) = Headlines Today +12 echo (13) = UTV Bindaas +13 echo &hellip;
+- [Load CSV file in single variant column in snowflake table](https://stackoverflow.com/questions/72475744) — Get today’s news headlines from Business", "col_003": " ", "col_004": "Technology", "col_005": " Sports", "col_006": " Movies", "col_007": " videos", "col_008": " photos", "col_009": " live news coverage &hellip; and exclusive breaking news from India.} &hellip;
+- [India Today (TV channel)](https://en.wikipedia.org/wiki/India_Today_(TV_channel)) — India Today is a 24-hour English language television news channel based in Noida, Uttar Pradesh that carries news, current affairs and business programming in India. The channel is owned by TV Today Network Ltd, which is a part of Living Media.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — ", "name": "The Times of India" }, "author": null, "title": "Hardik Pandya introduces his new 'Bentley' on 25th birthday", "description": &hellip; "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social media platform, Twitter", "url": "https: &hellip;
+- [String regular expression java](https://stackoverflow.com/questions/27226847) — for example string is : Input: It provides @p1 latest news, videos @p2 from India and @p3 the world. Get today's news headlines from @p5 Business, @p5 Replace all the parameters with @pn@. &hellip; The above string will become : Output: It provides @p1@ latest news, videos @p2@ from India and @p3@ the world. Get today's news headlines from @p4@ Business, @p5@ Any quick help appreciated. &hellip;
+- [List of terrorist incidents in India](https://en.wikipedia.org/wiki/List_of_terrorist_incidents_in_India) — This is a list of terrorist incidents in India. In July 2016, the Government of India released data saying that since 2005, terrorist attacks in India had killed 707 people and left over 3,200 injured.
+- [Rahul Shivshankar](https://en.wikipedia.org/wiki/Rahul_Shivshankar) — Rahul Shivshankar (Hindi: राहुल शिवशंकर) (born 22 January 1975) is an Indian journalist and an Indian TV anchor who worked as the editor-in-chief at Times Now. Before joining Times Now, Shivshankar worked in print and TV journalism.
+- [News24 (Indian TV channel)](https://en.wikipedia.org/wiki/News24_(Indian_TV_channel)) — News24 is a 24-hour Hindi news television channel owned by B.A.G. Films and Media Limited. It has been launched in 2007 and it is free-to-air channel in India.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Switzerland (Japanese)` `2026-10`
+
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 朝日新聞の、 スイス に関する ニュース や速報記事一覧です。 スイス に関する現状や背景を、わかりやすくお伝えします。
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイスの主要メディアが報じた日本 関連ニュース を週1回、まとめてお届けする無料ニュースレターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 中外製薬の「エンスプリング」、甲状腺眼症を対象に米国で承認取得 · UBS、スイス脱出の切り札 メガバンク・野村は統合相手の伏兵か · スイス資源大手グレンコア、豪市場で ...
+- [Schweiz News - Aktuelle Infos - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.alllatestnews.schweiznewspaper&hl=ja) — 2026/6/24 - スイスの現在の出来事 について知る 必要があるすべての情報を 1 か所で見つけることができます。 2. 最近のトピックと最新ニュース: 最もホットなトピック ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — スイスの氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイスで観光客を乗せたバスが横転 5人死亡 · W杯 決勝トーナメント【全結果 ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/switzerland) — スイス の ニュース ・速報. 200件中 1~20件表示. 佐藤俊夫さん. Aクラス優勝は福山の佐藤さん 広島県シニア囲碁大会東部地区大会. 10月24日. 中国新聞.
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — 保育園児を刃物で襲撃、中国人留学生の男に拘禁15年 スイス · ウクライナ戦争、民間人と捕虜数百人以上が性暴力被害 国連 · 「収容された遺体は氷山の一角」 国連人権トップ ...
+
+### Japan (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Japan (English)` `2026-10`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新ニュース · タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 偽りの輸出先、国産牛肉どこへ · 「タジキスタンに輸出」香港で開封の形跡 日本産牛肉、 ...
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 新着一覧 · 中国版「秩序」広がり欠く 米に対抗「世界の擁護者」演出… · 国産牛肉 不正輸出の疑い · プーチン氏、新START「延長」提案…制裁強化に傾くトランプ氏を対話に ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [ニュース 及びイベント | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/information/news-and-events-ja) — ニュース及びイベント · 東京におけるタジキスタン共和国独立35周年記念式典 · JDS新規参加者と大使との会談 · タジキスタン共和国独立35周年記念国際会議 · 東京における国民 ...
+- [神田ADB総裁、 タジキスタン における雇用創出と成長促進に向け](https://www.adb.org/ja/news/adb-president-launches-new-partnership-strategy-boost-jobs-and-growth-tajikistan) — 神田眞人アジア開発銀行（ADB）総裁は本日、 タジキスタン のエモマリ・ラフモン大統領と会談し、より多くの質の高い雇用創出に向け、同国政府が目指す強靭で多様性に ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+- [外交政策 ニュース - 在タジキスタン日本国大使館](https://www.tj.emb-japan.go.jp/itpr_ja/index.html) — 令和8年10月11日. サウジアラビアにおけるホーシー派の攻撃について（外務大臣談話） · 令和8年9月18日. 高市総理大臣及び茂木外務大臣の米国訪問（第81回国連総会等出席）.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Brazil (Japanese)` `2026-10`
+
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 最新ニュース · 中南米の親米化を止めたブラジル・ルラ氏の勝利 足元の分断なお深く · ブラジル大統領、ルラ氏再選 親米候補を破る 決選投票 · （時をよむ 論説委員室から） ...
+- [ブラジル の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/brazil_newsmedia) — 2020/4/15 - ブラジルの主要メディアまとめ【ニュース編】 · O Globo · Jarnal de Brasilia. · Folha de S.Paulo · O Estado de S. Paulo · Gazeta do Povo · Meia Hora · The ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル大統領選、決選投票始まる 左右候補が激突 · ブラジル、25日に大統領選の決選投票 中南米「右派7連勝」に続くか · 豊田通商、ブラジルでサトウキビからバイオガス ...
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — 《 ブラジル 》ロータリー＝ ブラジル に活路、野口大使が講演＝資源大国と戦略的連携を＝原油調達の多角化と技術移転に意欲 · 《 ブラジル 》女性活躍へ経験共有や数値化を提言＝ ...
+- [Notícias do Brasil de Hoje - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsbrazil&hl=ja) — 新聞のヘッドラインと一面を無料で閲覧できます。 このアプリは、 ブラジル の 主要 メディアを1か所に集約します。1日の出来事を分刻みで追跡し、各 ニュース ルームのヘッド ...
+- [「 ブラジル 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/) — 2026. 10/26: ブラジル 大統領選、ルラ氏がトランプ氏の盟友ボルソナーロ氏を破る 地域の右傾化に歯止め; 10/25: 奇跡の木として知られる植物、水道水のマイクロ ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — ブラジル大統領選挙 決選投票 現職のルーラ大統領が当選 . 10月26日 14:40 ; ブラジル大統領選挙 決選投票始まる. 10月25日 22:36 ; ブラジル大統領選挙 決選投票へ 世論調査 ...
+- [ブラジル - BBC ニュース](https://www.bbc.com/japanese/topics/c5qvpx7pjwzt) — ブラジル · ブラジル大統領選、米メタが干渉とルラ大統領が主張 対立候補の失格を要求 · ブラジル大統領選、決選投票へ 右派のフラヴィオ・ボルソナロ氏が第1回投票で勝利.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `South Korea (Japanese)` `2026-10`
+
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — HOT ISSUE · 金正恩委員長、死亡説を意識したか…見せつけるように車で国境越え · 年内の朝米首脳会談、「実現の可能性はほぼない」 · 「死亡説」の金正恩委員長、3日ぶり登場…
+- [最新の 韓国ニュース - ライブドアニュース - Livedoor](https://news.livedoor.com/article/category/44/) — 韓国 に関連する最新の ニュース をお届けします。
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 今日 の歴史（10月27日） · ［韓流］Baby DONT Cry 来月新曲を韓日同時リリース · サムスン電子会長の母に国民勲章 文化・医療・福祉分野で尽力＝ 韓国 · 韓国 きょうの ニュース ...
+- [Kstyle - 韓流・ 韓国 芸能 ニュース はKstyle](https://kstyle.com/) — 韓国 エンタメ・ 韓国 ドラマ・ 韓国 映画・K-POPの最新 ニュース から韓流スターのインタビュー、フォトレポートまで。Kstyleでは、あらゆる韓流・ 韓国 芸能情報をいち早くお ...
+- [韓国 ・朝鮮半島に関する ニュース と解説 - 日本経済新聞](https://www.nikkei.com/international/korea/) — 韓国 大統領補佐官「CPTPPは時間かかっても推進」 経済共同体を支持 · 韓国 SKハイニックスの「孫」、米IPOに急ブレーキ 工場新設に黄信号 · 金正恩氏の訪中、北朝鮮メディアも ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 韓国と北朝鮮 軍事境界線付近 地雷爆発めぐり国連で非難の応酬 · 女子ゴルフ 吉田優利がアメリカツアー初優勝 · アメリカ女子ゴルフ 吉田が2位浮上 首位に4打差 · キム総書記 ...
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 · 5時間前. 南北の緊張高まる、北朝鮮が境界付近にりゅう弾砲 国連に書 簡 · 1時間前. 北朝鮮、地雷爆発巡り国連に韓国非難の書簡 主権侵害に警告 · 1時間前. トランプ氏 ...
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Myanmar (Japanese)` `2026-10`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — 英国王からスーチー氏への届け物引き渡し ミャンマー当局が写真公開 · ミャンマー、ASEAN議長国のスーチー氏解放要求に抗議 外務省声明 · スーチー氏、赤十字ミャンマー代表 ...
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー · ニュース ヘッドライン · スーチー氏解放「現実的」、恩赦に期待 · 海外購入の携帯電話税、最大都市で徴収窓口拡充 · ヤンゴン地域議員、公定為替レート適用に懸念.
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — 《 ミャンマー 情勢の最新 ニュース 、解説記事一覧は下に》. スーチー氏、次男と5年ぶり会話 ミャンマー 政権が写真公開(10月22日 21:08). ミャンマー 親軍政権が22日公表 ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — 拘束中のスー・チー氏と電話 次男“生存確認できてよかった” · 拘束続くスー・チー氏に英国王からの本や書簡と政権側が発表 · 避難民医療支援のミャンマー人医師が講演 人権 ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — 【 ミャンマー 】 ミャンマー の医療崩壊、域内に感染症拡大の恐れ. NNA - 4日前. 報告 ... 【 ミャンマー 】中国発電大手、 ミャンマー で新発電事業を計画. NNA - 6日前.
+- [【 ミャンマー 総選挙】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-b3484606-5527-4171-bc78-cb818c538d74/) — ミャンマー人の送還、マレーシアで加速 移民・難民への反感が背景に · ミャンマー国軍が市場を空爆、49人死亡 武装勢力「戦争犯罪」非難.
+
+### Tajikistan (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Tajikistan (English)` `2026-10`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people: 11 men, 3 women, and a 10-year-old girl.
+- [Jihadi John](https://en.wikipedia.org/wiki/Jihadi_John) — Mohammed Emwazi (born Muhammad Jassim Abdulkarim Olayan al-Dhafiri; Arabic: محمد جاسم عبد الكريم عليان الظفيري), commonly referred to as Jihadi John (17 August 1988 – 12 November 2015), was a British militant of Kuwaiti origin seen in several videos produced by the Islamist extremist group Islamic State (IS) showing the beheadings of a number of captives in 2014 and 2015. A group of his hostages nicknamed him "John" since he was part of a four-person terrorist cell with English accents whom they called 'The Beatles'; the press later began calling him "Jihadi John".
+- [2026](https://en.wikipedia.org/wiki/2026) — 2026 (MMXXVI) is the current year, and is a common year starting on Thursday of the Gregorian calendar, the 2026th year of the Common Era (CE) and Anno Domini (AD) designations, the 26th year of the 3rd millennium and the 21st century, and the 7th year of the 2020s decade. The early part of the year saw escalating armed conflicts in the Americas and Middle East.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Eurasian Economic Union](https://en.wikipedia.org/wiki/Eurasian_Economic_Union) — The Eurasian Economic Union (EAEU or EEU) is an economic union of five post-Soviet states located in Eurasia. The EAEU has an integrated single market.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+
+### Austria (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Austria (English)` `2026-10`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+- [Broadcast journalism](https://en.wikipedia.org/wiki/Broadcast_journalism) — Broadcast journalism is the field of news and journals which are broadcast by electronic methods instead of the older methods, such as printed newspapers and posters. It works on radio (via air, cable, and Internet), television (via air, cable, and Internet) and the World Wide Web.
+
+### Iran (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Iran (English)` `2026-10`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests were a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [TikTok in Iran](https://en.wikipedia.org/wiki/TikTok_in_Iran) — TikTok in Iran, despite being heavily restricted due to domestic policies (Internet censorship) and international sanctions, holds significant cultural, social, and political importance. Following the lifting of restrictions on Iranian user registration in 2023, Iranians were able to access the platform using VPNs.
+- [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+

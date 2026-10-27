@@ -604,3 +604,16 @@ Tags: `China (Japanese)` `2026-10`
 - [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国のニュース・速報. 台湾の精密な衛星画像公開 中国国営テレビ . 19時35分. 共同通信. 在中国日本大使館で開かれた沖縄県の文化をPRする. 中国・北京で沖縄文化PR ...
 - [中華人民共和国の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD.html) — 最新 ニュース . （惜別）董建華さん 香港の初代行政長官 · 香港政府を去る際 ... 岩屋氏、 中国 2高官と会談 外相・副首相 関係改善見通せず · 北京で28日、 中国 の ...
 
+### United Kingdom(検索日時 / searched at: 2026-10-26)
+
+Tags: `United Kingdom` `2026-10`
+
+- [Timeline of GB News](https://en.wikipedia.org/wiki/Timeline_of_GB_News) — This is a timeline of the history of GB News, a free-to-air television and radio news channel in the United Kingdom.
+- [2026 in the United Kingdom](https://en.wikipedia.org/wiki/2026_in_the_United_Kingdom) — Events from the year 2026 in the United Kingdom.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [Headlines!](https://en.wikipedia.org/wiki/Headlines!) — Headlines! is the debut extended play (EP) by British-Irish girl group The Saturdays.
+- [The Sun (United Kingdom)](https://en.wikipedia.org/wiki/The_Sun_(United_Kingdom)) — The Sun is a British tabloid newspaper, published by the News Group Newspapers division of News UK, itself a wholly owned subsidiary of News Corp. It was founded as a broadsheet in 1964 as a successor to the Daily Herald, and became a tabloid in 1969 after it was purchased by its current owner.
+- [The Canary (website)](https://en.wikipedia.org/wiki/The_Canary_(website)) — The Canary was a left-wing news website based in the United Kingdom. While focusing on UK political affairs, it also covered global, science, environment and health news, and included a satirical section.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+

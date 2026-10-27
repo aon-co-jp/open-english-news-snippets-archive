@@ -436,3 +436,42 @@ Tags: `Egypt` `2026-10`
 - [المصري اليوم | الصفحة الرئيسية لموقع المصري اليوم](https://www.almasryalyoum.com/section/index/today) — 2 شعبان 1447 بعد الهجرة · اقرأ أهم أخبار اليوم من المصري اليوم والاخبار العاجلة وأخبار مجلس الوزراء وأخبار السياسة والاقتصاد والفن وأخبار الرياضة والتوك شو وغيرها المزيد
 - [أخبار عاجلة - اليوم السابع](https://www.youm7.com/Section/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84%D8%A9/65/1) — منذ 2 من الأيام · أخبار عاجلة يشمل قسم اخبار عاجلة كافة الاخبار المصرية والعالمية والعربية وكل ماهو جديد لحظة بلحظة .
 
+### Egypt(検索日時 / searched at: 2026-10-26)
+
+Tags: `Egypt` `2026-10`
+
+- [أخبار اليوم (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها التوأم مصطفى أمين (21 فبراير 1914-13ابريل1997) وعلي أمين (21 فبراير 1914-3 أبريل 1976) عام 1944.
+- [دار أخبار اليوم](https://ar.wikipedia.org/wiki/%D8%AF%D8%A7%D8%B1_%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85) — دار أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها مصطفى أمين وعلي أمين عام 1944.
+- [الأخبار (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة الأخبار وهي جريدة يومية رسمية تصدر في القاهرة، وتُوزَع في مصر والعالم العربي. أسسها الأخوان مصطفى وعلي أمين سنة 1952 عن مؤسسة أخبار اليوم ورئيس التحرير أسامة السعيد.
+- [رئيس مصر](https://ar.wikipedia.org/wiki/%D8%B1%D8%A6%D9%8A%D8%B3_%D9%85%D8%B5%D8%B1) — رئيس جمهورية مصر العربية، هو رأس الدولة المنتخب. وفقًا لدستور 2014 وتعديلاته فإن رئيس الجمهورية هو القائد الأعلى للقوات المسلحة ورئيس السلطة التنفيذية، وتُحدد فترة الرئاسة بستة سنوات ميلادية، ولا يجوز إعادة انتخاب الرئيس إلا لمرة واحدة.
+- [مصر](https://ar.wikipedia.org/wiki/%D9%85%D8%B5%D8%B1) — مِصرُ (رسميًّا: جُمْهُوْرِيَّةُ مِصْرَ العَرَبيَّةُ) دولةٌ عربية، عابرة للقارات، تمتد على الركن الشَّمالي الشرقي لإفريقيا والركنِ الجَنوبي الغربي من آسيا بجسر بري شكلته شبه جزيرة سَيناء. قُدِّر عدد سكانها بأكثرَ من 120 مليون نسَمة؛ لتكون الثالثةَ عشْرة بين دول العالم سكانًا، والأكثر سكاناً عربيًّا وشرقًا أوسطيًّا.
+- [وفيات 2026](https://ar.wikipedia.org/wiki/%D9%88%D9%81%D9%8A%D8%A7%D8%AA_2026) — 
+- [أخبار الأدب (جريدة)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D8%A3%D8%AF%D8%A8_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9)) — جريدة أخبار الأدب صدرت عام 1993 عن دار أخبار اليوم في القاهرة كدورية ثقافية أسبوعية. تتناول الصحيفة أخبار الأوساط الأدبية والفنية، وتستعرض الإصدارات العربية والعالمية الحديثة، وتغطي الفعاليات الثقافية، والقضايا الفكرية المتداولة.
+- [انتخابات الرئاسة المصرية 2030](https://ar.wikipedia.org/wiki/%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA_%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9_%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9_2030) — انتخابات الرئاسة المصرية 2030 هي الاستحقاق الانتخابي الرئاسي المزمع إجراؤه في جمهورية مصر العربية خلال عام 2030. تأتي هذه الانتخابات كحدث دستوري مفصلي، حيث تمثل نهاية الولاية الرئاسية الثالثة للرئيس عبد الفتاح السيسي وفقاً للنصوص الدستورية السارية منذ عام 2019.
+
+### China (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国、営業秘密保護の特別規定案発表 違反外国企業を処分 · 中国、福田康夫元首相死去に哀悼 日中関係発展へ「積極的な貢献」 · 中国5中全会開幕、習近平氏が規律徹底指示へ ...
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「中国」ニュース一覧 · 中国家電大手がタイに工場建設で起工式 · 中国共産党の重要会議「五中全会」始まる 党内の統治が議題 · 中国『五中全会』軍人事に注目 · 北朝鮮 ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 カテゴリー 中国 共産党5中全会が開幕、厳格な党統治議論へ 反腐敗で透明性向上 6時間前 · 特集 安全保障問題カテゴリー 米国防総省、孔子学院を安全保障上の脅威に指定 ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 【速報】「日本指導者は反省を」と 中国 外務省. 16時44分. 共同通信. 【速報】 中国 が福田氏死去に哀悼の意. 16時27分. 共同通信.
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 10/23: チベットでM7の地震、16人死亡、数十人負傷と 中国 国営メディア; 10/17: 中国 、解任された米大統領報道官に再訪呼び掛け 「まともなトイレがない」発言 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 営業秘密侵害の外国企業に制裁へ 米国に対抗、日本へ波及も ―中国(10月26日 19:54) ; 米軍、嘉手納基地から中国車排除 「隊員や任務にリスク」(10月26日 18:36) ; 訪中団派遣 ...
+- [中国 の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/007c341ed731341e2337/) — 中国 · 台風30号は温帯低気圧に変わるも… 中国 地方知事会議は延期、秋の高校野球 中国 大会も4試合が順延 影響相次ぐ 土砂災害にも注意を · 中国 外務省が福田元首相の死去に哀悼 ...
+- [中国 ・台湾 < 国際 - 産経 ニュース](https://www.sankei.com/world/china/) — 中国・5中総会開幕 軍制服組トップらの汚職処分追認か … · 共産党「中央」の処分 すでに14人資格喪失 過去最多の可能性 党内統治強化へ · 中国、福田康夫元首相に哀悼の意 高 ...
+
+### Brazil (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Brazil (English)` `2026-10`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable network. Owned by CNN Worldwide, the network primarily carries true-crime programming, recently drifting away from limited live news programming.
+

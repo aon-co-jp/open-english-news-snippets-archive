@@ -443,3 +443,29 @@ Tags: `Japan` `2026-10`
 - [主要トピックス一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/topics/top-picks) — トピックス一覧 ; SBが2戦連続の延長戦制す 日本 S · 10/25(日) 21:49 ; 速報 SB川村が10回に勝ち越し弾. 10/25(日) 21:31 ; 事故で脚切断 25歳諦めていた恋愛. 10/25(日) 21:17.
 - [速報・新着ニュース一覧：朝日新聞](https://www.asahi.com/news/) — 1 日前 - ニュース > 日付別一覧 · 速報・新着ニュース一覧 · 2026年7月 · 2026年8月 · 2026年9月 · 2026年10月 · 1日 · 2日 · 3日 · 4日 · 5日 · 6日 · 7日 · 8日 · 9日 · 10日 · 11日 · 12日 · 13日 · 14日 · 15日 · 16日 ·
 
+### Japan(検索日時 / searched at: 2026-10-26)
+
+Tags: `Japan` `2026-10`
+
+- [NHKニュース 速報・最新情報](https://news.web.nhk/newsweb) — 8 時間前 - 平日の「ニュースウオッチ9」から土曜の「サタデーウオッチ9」へ。長年にわたりNHK報道の中心を担ってきた山下毅解説委員と川口由梨香キャスターがタッグを組みます。週末の夜に1週間のニュースのポイントをわかりやすく解説。世界と日本の今をどう読み解き、明日へとつなげていくのか、みなさんとともに考えます。
+- [Google ニュース](https://news.google.com/home?hl=ja&gl=JP&ceid=JP%3Aja) — トップニュース · サイバー攻撃元の無害化措置、高市首相「戦略的に実行」 · 「はまり役」だった官房長官、小泉首相に「王道ではない」「覇道だ」と直言…福田康夫氏死去.
+- [Yahoo!ニュース](https://news.yahoo.co.jp/) — ABCニュース10/26(月)12:00 · 8:36 · 3 · GMO不正アクセス “攻撃側”が27日正午までに1.6億円を要求 「隙を突かれた」社内で指摘も対応遅れ · FNNプライムオンライン（フジテレビ系）10/26(月)17:08 ·
+- [主要トピックス一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/topics/top-picks) — トピックス一覧 ; 露拘束の記者 大使館員が領事面会. 10/26(月) 23:20 ; 楽天トラベル 約260万件が流出か. 10/26(月) 23:08 ; 新幹線予約の個人情報17万件流出. 10/26(月) 23: ...
+- [時事ドットコム：時事通信社が運営するニュースサイト](https://www.jiji.com/) — ニュースＱ＆Ａ · 深層探訪 · 悲願の減税、首相「検討」連発 野党、給付で対抗―与党、公・国取り込みに課題 2026年10月20日 · 深層探訪 · 高市政権１年、揺らぐ「高市１強」 財政・日中、内憂外患―頼みの支持率、...
+- [日本経済新聞 - ニュース・速報 最新情報](https://www.nikkei.com/) — 速報 ニュース ; 23:13 · 高市首相、ブラジル大統領再選に祝意 「力強いリーダーシップ期待」 ; 23:02. アンソロピックIPO、みずほとMUFGが幹事証券団に 日本 でも公募へ ; 23:01.
+- [新着ニュース一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-latest-nationwide) — 新着ニュース一覧 · 福田康夫元首相が死去 90歳 · 中国家電大手がタイに工場建設で起工式 · 電子ギフト会社に不正アクセス 5億5000万円分が不正発行 · 大分市佐賀関の火災 被災 ...
+- [速報・新着ニュース一覧：朝日新聞](https://www.asahi.com/news/) — 11 時間前 - ニュース > 日付別一覧 · 速報・新着ニュース一覧 · 2026年7月 · 2026年8月 · 2026年9月 · 2026年10月 · 1日 · 2日 · 3日 · 4日 · 5日 · 6日 · 7日 · 8日 · 9日 · 10日 · 11日 · 12日 · 13日 · 14日 · 15日 · 16日 ·
+
+### France (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `France (English)` `2026-10`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+

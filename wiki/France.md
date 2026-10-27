@@ -377,3 +377,42 @@ Tags: `Brazil (Japanese)` `2026-10`
 - [「 ブラジル 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/) — 2026. 10/05: ブラジル 大統領選は決選投票へ 犯罪、汚職、そしてトランプ氏が争点に; 07/31: 米国務省が作成のアフリカ地図、6カ国の位置全部間違えた ...
 - [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 朝日新聞の、 ブラジル に関する ニュース や速報記事一覧です。 ブラジル に関する現状や背景を、わかりやすくお伝えします。
 
+### France(検索日時 / searched at: 2026-10-26)
+
+Tags: `France` `2026-10`
+
+- [Île-de-France](https://fr.wikipedia.org/wiki/%C3%8Ele-de-France) — L'Île-de-France est une région historique et administrative française. Il s'agit d'une région très fortement peuplée, qui représente à elle seule 18,8 % de la population de la France métropolitaine sur seulement 2,2 % de sa superficie, ce qui en fait la région la plus peuplée (12,46 millions d'habitants en 2023) et la plus densément peuplée (1 038 hab/km2) de France.
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Extrême gauche en France](https://fr.wikipedia.org/wiki/Extr%C3%AAme_gauche_en_France) — L'extrême gauche en France regroupe les organisations et les sensibilités politiques françaises considérées comme les plus à gauche du spectre politique. Historiquement, l'extrême gauche rassemble la gauche révolutionnaire, par opposition à la gauche réformiste qui pense gagner démocratiquement par les élections.
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+- [Audrey Goutard](https://fr.wikipedia.org/wiki/Audrey_Goutard) — Audrey Goutard est une journaliste française de presse écrite, radio et télévision, aussi réalisatrice et écrivaine.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Iran (Japanese)` `2026-10`
+
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン 情勢の ニュース ・速報. 200件中 1~20件表示. フーシ派の攻撃サウジは外交解決図れ. 10時10分. 中日新聞. サウジアラビア・メッカ近郊でミサイルの破片を調べる ...
+- [最新中東・アフリカ ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/mideast/) — イラン、米政府関係者狙う動き強化 殺害計画「進んだ段階」と米高官 . クレイトン米国家情報長官は、イランが米政府関係者を標的とする動きを強めており、米国民殺害計 ...
+- [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — 「メッカ防衛同盟」高官らイランへ 中東情勢巡り意見交換か · ベンゼンのアジア価格、10月18%高 供給減で4年3カ月ぶり高値 · 米国、中東の要員撤収進める イランの攻撃計画 ...
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 10/25: イラン 戦争、地球上で有数の固有な生態系にも有害な影響; 10/23: 【分析】米中間選挙と イラン 、議会の勢力図は変わって ANALYSIS 【分析】米中間選挙と ...
+- [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — 「 イラン 情勢」 ニュース 一覧 ... 米軍の イラン 核施設への攻撃【国際法の根拠や影響は？】 2025年6月23日 21:35. イラン 大統領 主要 核施設を攻撃したアメリカに報復を示唆.
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — イラン情勢 関連ニュース · サウジ西部でミサイル迎撃 フーシ派は聖地標的を否定 (10月25日 08:29) · 海底ケーブル攻撃計画を策定か イラン、米攻撃再開なら―報道(10月24日 06 ...
+- [米・イスラエルの イラン 攻撃 - 朝日新聞](https://www.asahi.com/topics/AP-e956a437-68cb-474e-8e5d-61a96c3636e6/) — 米国とイスラエルが2026年2月28日、 イラン を先制攻撃し最高指導者ハメネイ師を殺害しました。 イラン は反撃するともにホルムズ海峡を事実上封鎖。
+- [【最新 イラン 情勢】米軍“ イラン のタンカー2隻を ... - YouTube](https://www.youtube.com/watch?v=2YKPVKVQSlg) — イラン 情勢に関する ニュース についてまとめました【ラインアップ】 ・ イラン が米に全戦線での「戦闘終結」盛り込む“包括的計画送付” イラン メディア ...
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+

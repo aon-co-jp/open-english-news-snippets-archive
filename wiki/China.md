@@ -519,3 +519,29 @@ Tags: `China` `2026-10`
 - [头条新闻 - 让新闻离你更近](http://www.baidu.com/link?url=OopBDbYVLSEbbWx-3LTp6EOQqXQ6oFuJ9THVMg7A17JOBIN3dWaITVe2YihwdWaFfinun000H-yyTVYOonDC3_) — 
 - [中国新闻 网_梳理天下新闻](http://www.baidu.com/link?url=VY0Ch28lNCWzgdjLHv2c7DWRcbpzrP_TrzYx8JU7-ou) — 
 
+### China(検索日時 / searched at: 2026-10-26)
+
+Tags: `China` `2026-10`
+
+- [头条新闻_今日中国](http://www.baidu.com/link?url=2YjzJWx3J9Ys0cDmB-Yzeete4RIvXbAZpMaJHkrcbCxJBsqqGN2RMcYdKPC8R2rf_ggdWqPTXBi71ZpjvYrgf_) — 
+- [今日头条](http://www.baidu.com/link?url=d9UHUC4nllyj-UYjtpvNZqGIWC7Q1ywX4bfwsI9qTTXZTLn9XXbkxT2e4ETDm8DO) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=Vn0Y1u5kfihqpXe6SM68S4XFgWYW7bBGWITVoQ-P0dPWDoiojqFg5W7jeT_C0n4uVOi65SF80QjVuahiTYZXqcMtSrWC_hkAeFNOmoKGXCF5RBYmO6ruSsDlyie-TABTDi3CM1MjncB6ItZpgHUDg_) — 
+- [今日中国 _ 新闻 频道_央视网(cctv.com)](http://www.baidu.com/link?url=XMSFssDc3q9QQHjhl37CLC5bhqMTufbW6Yu1s5DogPx8s6FQexaPrkXR8ygZLAPAGS85FY4YRurObPC4q3EDGq) — 
+- [首页 头条 --人民网](http://www.baidu.com/link?url=U7irskomgJbU4UNSPhwZ0p6BLwqe_U1D3xMcP11FcA1K9_LXmK13cvGgDu6hOChc) — 
+- [中国新闻 网_时政](http://www.baidu.com/link?url=d9UHUC4nllyj-UYjtpvNZqGIWC7Q1ywX4bfwsI9qTTYxWT-VzHgrhlSo8V4KSLRFfc0cctYTX6Qaj2HwJ9V8Ha) — 
+- [新闻 频道_央视网(cctv.com)](http://www.baidu.com/link?url=XMSFssDc3q9QQHjhl37CL22sy8yz5zkzbkCzq8QCBEGDJwYh0B7zIyzhpKwuQNZz) — 
+- [头条推荐- 头条新闻 -hao123新闻导航 _hao123上网导航](http://www.baidu.com/link?url=AubNttXSD5gZZDxHl5Mh658caCaOEjKq18zlsDX5BZNGYlmzbY2zEitPxZOnZN9pegrVheYLPiyPXSQyZ2JjrlMjYMkRxT7RodC5WbHPTcmA55Wj1A8yn1g1TdVKnQxEnWlTqb3z8z8pMvddSgHqOK) — 
+
+### South Korea (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Jennie (singer)](https://en.wikipedia.org/wiki/Jennie_(singer)) — Jennie Kim (Korean: 김제니; born January 16, 1996) is a South Korean singer, rapper, songwriter, and actress. Born in South Korea, she moved to New Zealand in 2004 and returned to South Korea to successfully audition for YG Entertainment in 2010.
+- [Lee Choon-jae](https://en.wikipedia.org/wiki/Lee_Choon-jae) — Lee Choon-jae (Korean: 이춘재; born January 31, 1963), also known as the Hwaseong Serial Killer, is a South Korean serial killer known for committing the Hwaseong serial murders (Korean: 화성 연쇄 살인 사건). Between 1986 and 1994, Lee murdered fifteen women and girls in addition to committing numerous sexual assaults, predominantly in Hwaseong, Gyeonggi Province, and the surrounding areas.
+- [Korean Americans](https://en.wikipedia.org/wiki/Korean_Americans) — Korean Americans (Korean: 한국계 미국인) are Americans who have full or partial Korean ethnic ancestry. While the broader term Overseas Korean in America (미주한인/재미교포/재미한인) may refer to all ethnic Koreans residing in the United States, the specific designation of Korean American implies the holding of American citizenship.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+

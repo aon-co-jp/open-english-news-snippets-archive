@@ -633,3 +633,9 @@ Tags: `Cambodia` `2026-10`
 - [កម្ពុជាថ្ងៃនេះ | Sihanoukville (city) | Facebook](https://www.facebook.com/camdaynews/) — ព័ត៌មាន បឋម៖ ករណីអគ្គីយភ័យឆា/បឆេះយ៉ាងសន្ធោសន្ធៅ នៅក្រោយផ្ទះសំណាក់ប៉ៃលិន (កន្លែងចាក់សម...
 - [វីអូអេ - ព័ត៌មាន VOA](https://khmer.voanews.com/) — 17 hours ago · ព័ត៌មាន ពេល ព្រឹក ព័ត៌មាន ពេល រាត្រី Hello VOA សំឡេង ជំនាន់ ថ្មី វេទិកា អាស៊ាន ព័ត៌មាន តាមប្រធានបទ កម្ពុជា អន្តរជាតិ …
 
+### Cambodia(検索日時 / searched at: 2026-10-26)
+
+Tags: `Cambodia` `2026-10`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free fighting'), is a traditional Cambodian combat sport. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+

@@ -624,3 +624,42 @@ Tags: `Italy (Japanese)` `2026-10`
 - [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 最新 ニュース · F1、アントネッリがPP 第18戦の米国GP · 菅原由勢は後半から出場 サッカーの イタリア 1部 · パリでまた警察と衝突 「暴徒500人以上」 大規模デモの ...
 - [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 10/25: フランス各地でデモ、40万人参加 イタリア など他国にも波及; 10/24: 米国人観光客が300メートル滑落して死亡、写真撮ろうと登山道を外れる イタリア ...
 
+### Ukraine(検索日時 / searched at: 2026-10-26)
+
+Tags: `Ukraine` `2026-10`
+
+- [Українські національні новини](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D1%81%D1%8C%D0%BA%D1%96_%D0%BD%D0%B0%D1%86%D1%96%D0%BE%D0%BD%D0%B0%D0%BB%D1%8C%D0%BD%D1%96_%D0%BD%D0%BE%D0%B2%D0%B8%D0%BD%D0%B8) — |співробітників= Українські національні новини (скорочено УНН) — всеукраїнське інформаційне агентство. Основна тематика — політика, соціальні проблеми, економіка.
+- [Сьогодні (газета)](https://uk.wikipedia.org/wiki/%D0%A1%D1%8C%D0%BE%D0%B3%D0%BE%D0%B4%D0%BD%D1%96_(%D0%B3%D0%B0%D0%B7%D0%B5%D1%82%D0%B0)) — «Сегодня» (укр. Сьогодні) — всеукраїнська щоденна суспільно-політична російськомовна газета.
+- [РИА Новости](https://uk.wikipedia.org/wiki/%D0%A0%D0%98%D0%90_%D0%9D%D0%BE%D0%B2%D0%BE%D1%81%D1%82%D0%B8) — Російське агентство міжнародної інформації, «РІА Новини» (рос. РИА Новости) — бренд російського державного пропагандистського медіаконгломерату «РИА Новости» «Росія сьогодні» (рос.
+- [USA Today](https://uk.wikipedia.org/wiki/USA_Today) — «Ю-Ес-Ей Тудей» (англ. USA Today, укр.
+- [Україна (телеканал)](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0_(%D1%82%D0%B5%D0%BB%D0%B5%D0%BA%D0%B0%D0%BD%D0%B0%D0%BB)) — «Україна» — закритий український телеканал, що 13 березня 1993 року почав мовлення як регіональний донецький телеканал. Канал мав статус національного з 2004 року.
+- [Медіа Група Україна](https://uk.wikipedia.org/wiki/%D0%9C%D0%B5%D0%B4%D1%96%D0%B0_%D0%93%D1%80%D1%83%D0%BF%D0%B0_%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0) — «Медіа Група Україна» — колишня компанія, яка з 2010 по 2022 рік об'єднувала телевізійні, видавничі та цифрові-ресурси інвестиційної компанії SCM українського олігарха Ріната Ахметова. Ключовими активами медіахолдингу були: телерадіокомпанія «Україна», через яку медіаконгломерат володів флагманським телеканалом «Україна», телемережею «Футбол», яка включала 3 спортивні телеканали і розважальні телеканали НЛО TV та Індиго TV; інформаційно-аналітичний телеканал «Україна 24»; оператор супутникового мовлення Xtra TV; компанія потокового телебачення Digital Screens, яка керувала OTT-платформою OLL.TV; видавничий дім «Сьогодні Мультимедіа», який займався видавництвом газети «Сьогодні» та журналу Vogue Ukraine і керував їх веб-порталами.
+- [Донецькі новини](https://uk.wikipedia.org/wiki/%D0%94%D0%BE%D0%BD%D0%B5%D1%86%D1%8C%D0%BA%D1%96_%D0%BD%D0%BE%D0%B2%D0%B8%D0%BD%D0%B8) — Донецькі новини — донецьке регіональне видання. Виходить один раз на тиждень.
+- [Україна 24](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0_24) — «Україна 24» — закритий загальноукраїнський інформаційний телеканал, що входив до медіаконгломерату «Медіа Група Україна» Ріната Ахметова.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国・台湾 · 中国、営業秘密保護の特別規定案発表 違反外国企業を処分 · 中国、福田康夫元首相死去に哀悼 日中関係発展へ「積極的な貢献」 · 中国5中全会開幕、習近平氏が ...
+- [台湾 問題の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C.html) — 朝日新聞の、 台湾 問題に関する ニュース や速報記事一覧です。 台湾 問題に関する現状や背景を、わかりやすくお伝えします。
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 情勢 · 米支援の東南アジア新海底ケーブル、供給業者にNECか仏社を選定へ · 台湾 、「越境弾圧」と組織犯罪の関連調査 コメディアン襲撃受け · フィリピン、 台湾 と海底 ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「台湾 山の上の町、地の塩、世の光」と題する演説 · 外交部、中国による「越境弾圧」を強く非難 · GCTF合同委員 ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 外交部の雑誌『 台湾 光華』、創立50周年の写真展開催 · Taiwan Today各言語版、2026年12月31日をもって発行を終了 · TAIWAN TODAY日本語版からのお知らせ · GCTF合同 ...
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 台風30号 台湾で1人死亡 600人以上けが 日本人学校で門倒れる · 台湾で台風30号の被害相次ぐ 日本便はほとんどが欠航 · 三菱電機 自動車部品子会社にホンハイの出資受け入れ ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 体操・唐嘉鴻、世界選手権の鉄棒で金 台湾勢で初 · スターラックス航空、台中─名古屋線就航 11月は毎日運航へ／台湾 · 桃園空港、制限エリアにコンビニ開業へ 価格は ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 台湾鉄道台南駅が「音楽ホール」に 公共ピアノ目当てに多くの人 · 現代ダンスカンパニーの「クラウドゲート」、台北の公園で野外公演 会場満員に／台湾 ...
+
+### Taiwan (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Taiwan (English)` `2026-10`
+
+- [COVID-19 pandemic in Taiwan](https://en.wikipedia.org/wiki/COVID-19_pandemic_in_Taiwan) — The COVID-19 pandemic in Taiwan was a part of the worldwide pandemic of coronavirus disease 2019 (COVID-19) caused by severe acute respiratory syndrome coronavirus 2 (SARS-CoV-2). As of 19 March 2023 in Taiwan, 10,231,343 are confirmed cases, including 18,775 deaths.
+- [Taiwan-related terms](https://en.wikipedia.org/wiki/Taiwan-related_terms) — Taiwan-related terms are officially-sanctioned words and phrases by the Chinese Communist Party (CCP) and the government agencies of the People's Republic of China (PRC) that they and affiliated non-governmental organizations such as news, media, publishing, and education bodies use when speaking about matters related to Taiwan. These terms include English translations and censored terms.
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by Taiwan's Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+

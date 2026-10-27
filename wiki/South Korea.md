@@ -482,3 +482,68 @@ Tags: `South Korea` `2026-10`
 - [9월 8일 한국 주요 뉴스 TOP 10](https://nwforyou.tistory.com/753) — 점은 인정했지만 부정한 청탁은 없었다고 밝혔습니다. 청와대는 제기된 의혹은 국회 인사청문회에서 검증해야 한다는 입장입니다. 출처: MBC·연합 뉴스 오늘 한국 주요 뉴스 는 초대 중수청장 후보자 지명과 한·프랑스 정상회담, 호르무즈 파병 검토가 정치·외교 분야의 핵심입니다. 경제 분야에서는 미국 원전 8기와...
 - [10월 5일- 세계 주요 언론이 본 한국](https://cafe.daum.net/achasansijo/IWBC/31?q=%ED%95%9C%EA%B5%AD%20%EB%89%B4%EC%8A%A4%20%EC%98%A4%EB%8A%98%20%EC%A3%BC%EC%9A%94&re=1) — 로이터와 AP 모두 폐막 소식을 국제 스포츠 주요 기사로 다뤘습니다. Reuters 다만 국내에서는 한국 의 금메달 수가 44년 만에 가장 적었다는 평가가 나오고 있어...일본과의 경기력 격차를 어떻게 줄일지가 과제로 남았습니다. SBS 뉴스 오늘 아침 제가 보는 중요도 1순위는 알래스카 LNG입니다. 미국 대통령이 한국 의...
 
+### South Korea(検索日時 / searched at: 2026-10-26)
+
+Tags: `South Korea` `2026-10`
+
+- [[부동산 뉴스 오늘 ] 한국 공인중개사협회, 40년 역사 넘어 ‘법정단체 시대’ 열었다!](https://blog.naver.com/headn_/224434142541) — 축하했습니다. 주요 행사: 비전 영상 상영, 회원 포상, 비전 선포, 축하 버튼 및 핸드프린팅 퍼포먼스, 공인중개사 윤리강령 낭독 등이 진행되었습니다. ​ 💡 2. "특권이 아닌 책임의 이름"… 협회의 새로운 비전 ​ 김종호 회장은 기념사를 통해 앞으로의 포부와 책임감을 강조했습니다. 2026년 법정단체 원년: "2026...
+- [FOX 오늘 의 이슈](https://www.youtube.com/) — YouTube
+- [IT/테크 주요 뉴스 오늘 의 핵심 흐름과 실무 시사점 분석](https://bstar36.tistory.com/610) — 주요 뉴스 오늘 의 핵심 흐름 아래 내용은 최근 24시간 내 수집된 원문 보도를 바탕으로 정리한 핵심 이슈입니다. 확정되지 않은 사실은 추가하지 않고, 원문에서 확인되는 범위 안에서 의미를 설명합니다. 1. 브랜드 인게이지먼트 네트워크, 카타네오 인수 완료 [지디넷코리아] 이번 인수는 반복 수익을 창출하는 수익성...
+- [2026년 오늘 의 경제 주요 뉴스 브리핑](https://newsbon9.blogspot.com/2026/05/) — 2026년 5월 11일 오늘 의 경제 뉴스 브리핑 "이 포스팅은 쿠팡 파트너스 활동의 일환으로, 이에 따른 일정액의 수수료를 제공받습니다." 안녕하세요. 2026년 5월 11일 오늘 의 경제 이슈를 한눈에 정리해드립니다. 오늘 은 코스피 저평가 논란, 삼성전자 파업 우려, 외국인 투자자 자금 유입, 그리고 정부의 성장률 전망 발표가 핵심 키워드로 떠올랐습니다. 📌 코스피 아직 저평가? 정부 .....
+- [10월 5일- 세계 주요 언론이 본 한국](https://cafe.daum.net/achasansijo/IWBC/31?q=%ED%95%9C%EA%B5%AD%20%EB%89%B4%EC%8A%A4%20%EC%98%A4%EB%8A%98%20%EC%A3%BC%EC%9A%94&re=1) — 로이터와 AP 모두 폐막 소식을 국제 스포츠 주요 기사로 다뤘습니다. Reuters 다만 국내에서는 한국 의 금메달 수가 44년 만에 가장 적었다는 평가가 나오고 있어...일본과의 경기력 격차를 어떻게 줄일지가 과제로 남았습니다. SBS 뉴스 오늘 아침 제가 보는 중요도 1순위는 알래스카 LNG입니다. 미국 대통령이 한국 의...
+- [경제 뉴스 — 오늘 의 날씨와 경제](https://weaco.co.kr/economy/) — 한눈에 보는 오늘의 뉴스
+- [9월 8일 한국 주요 뉴스 TOP 10](https://nwforyou.tistory.com/753) — 점은 인정했지만 부정한 청탁은 없었다고 밝혔습니다. 청와대는 제기된 의혹은 국회 인사청문회에서 검증해야 한다는 입장입니다. 출처: MBC·연합 뉴스 오늘 한국 주요 뉴스 는 초대 중수청장 후보자 지명과 한·프랑스 정상회담, 호르무즈 파병 검토가 정치·외교 분야의 핵심입니다. 경제 분야에서는 미국 원전 8기와...
+- [Google 뉴스](https://news.google.com/) — Google 뉴스 가 전세계 매체로부터 종합한 최신 뉴스
+
+### China (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `China (English)` `2026-10`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [2023 Chinese balloon incident](https://en.wikipedia.org/wiki/2023_Chinese_balloon_incident) — From January 28 to February 4, 2023, a high-altitude balloon originating from China drifted across North American airspace, including Alaska, western Canada, and the contiguous United States. On February 4, the U.S. Air Force shot down the balloon over U.S. territorial waters off the coast of South Carolina near the city of Myrtle Beach.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Thailand (Japanese)` `2026-10`
+
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — 最近の記事 · 9月の タイ 輸出24％増 商務省が通年見通しを19％増に上方修正 表で見る タイ の輸… · タイ 投資委員会への申請、9カ月で8兆バーツ相当 デジタル・電子産業が牽引.
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — タイ 政府、ホアヒンを世界級の観光地へ 王室ゆかりのビーチリゾート、乾季のベストシーズン到来 · タイ の 今日 は何の日？ 10月26日はラーマ9世の王室火葬式が行われた日.
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新 ニュース · ボッチャの練習拠点が浸水被害に 揺るがなかった タイ 代表の精密さ · ナンプラー香るパッタイは愛国の味 タイ 国民食を生んだ大戦の記憶 · 物価上昇率2％「 ...
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【労働】 タイ 大卒若者の失業率は13〜14% AIが雇用を変えた 学び直しが急務に · 2026-10-23. 【経済】 タイ 財務省が洪水支援策 被災工場の機械輸入関税を免除、税申告も ...
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 「AI」の文言、トランプ政権の意向受け使わず IMF会合の議長声明 · タイ副首相「再生エネに移行加速」 IMF・世銀総会が事実上閉幕 · ウォーシュ流「対話」術に早くも試練 FRB ...
+- [「 タイ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000386) — 「タイ」ニュース一覧 · 中国家電大手がタイに工場建設で起工式 · 避難民医療支援のミャンマー人医師が講演 人権尊重訴え · 日銀植田総裁“物価2％超の上昇容認せず” 今後も ...
+- [時事速報：アジア／バンコク版－時事通信社 - JIJI-WEB](https://jijiweb.jiji.com/info/sample/bangkok.html) — 【バンコク時事】 タイ 政府報道官は20日、今年9月末からのバンコクなど66都県での洪水の被災者支援で、2027財政年度（2026年10月〜27年9月）予算から ...
+- [タイ - BBC ニュース](https://www.bbc.com/japanese/topics/cqywjk05k97t) — タイ南部、組織的な放火や爆発が50件以上相次ぐ · タイで元下院議員が地方高官を銃撃 ユーチューブ番組に電話報告、警察署で会見 · タイ首相、銃規制強化を表明 バンコク近郊 ...
+
+### Italy (Japanese)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Italy (Japanese)` `2026-10`
+
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 最新 ニュース · フランス財政への懸念強まる 長期金利は5%超、政治不安との悪循環 · レアルが「クラシコ」制す バルサ初黒星、マンCも · テルマエもプリニウスも 資料660点で ...
+- [イタリア の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/italia_news) — 2020/6/18 - イタリア の 主要 メディアまとめ【 ニュース 編】 · 1．la Repubblica · 2．Corriere Della Sera · 3．Il Fatto Quotidiano · 4．La Stampa · 5．Tiscali.
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 10/25: フランス各地でデモ、40万人参加 イタリア など他国にも波及; 10/24: 米国人観光客が300メートル滑落して死亡、写真撮ろうと登山道を外れる イタリア ...
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア・ミラノでも略奪・破壊 暴徒の若者ら警察と衝突 · マクロン仏大統領、暴動めぐり「代償を」 物価高・教育デモには理解 · 「欧州の病人」を待ち構える財政規律の ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — ローマ教皇、肺腺がんと診断 右肺下葉の切除手術は成功と教皇庁 · トコジラミが機内で発生、運航をキャンセル 豪カンタス航空 · イタリア政府、学校でブルカとニカブ着用禁止 ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — イタリア・ミラノでも激しい衝突、略奪も 200人以上拘束 . Italy. ローマ教皇レオ14世、肺腺がん確認 手術成功 · 動物愛護団体、ミラノファッションウイークで毛皮使用 ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · フランス デモに乗じた暴動で店舗1500以上被害か イタリアでも · ロシア警告の中 NATO核抑止の定例の演習始まる · トランプ大統領がコロンブス再 ...
+- [Notizie Italia: Ultima Ora - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsitaly&hl=ja) — 2026/10/15 - イタリアの最新ニュース ：速報、今日のヘッドライン、ローカルニュース、そして主要新聞の報道レビューを1つのアプリで。 イタリアのニュースをすべて ...
+
+### Thailand (English)(検索日時 / searched at: 2026-10-26)
+
+Tags: `Thailand (English)` `2026-10`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Tawanchai P.K. Saenchaimuaythaigym](https://en.wikipedia.org/wiki/Tawanchai_P.K._Saenchaimuaythaigym) — Narongsak Kaewmala (Thai: ณรงค์ศักดิ์ แก้วมาลา; born April 7, 1999), known professionally as Tawanchai P.K.Saenchai (Thai: ตะวันฉาย พี.เค.แสนชัย) is a professional Muay Thai fighter and kickboxer. He currently competes in the Featherweight division of ONE Championship, where he is the former ONE Featherweight Muay Thai World Champion.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
