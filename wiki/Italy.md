@@ -479,3 +479,16 @@ Tags: `Egypt (English)` `2026-10`
 - [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
 - [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
 
+### Italy(検索日時 / searched at: 2026-10-27)
+
+Tags: `Italy` `2026-10`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Ultime notizie dal mondo in tempo reale | Ansa](https://www.ansa.it/sito/notizie/topnews/index.shtml) — 17 ore fa · Su Ansa.it, la principale agenzia stampa italiana, potete trovare le principali notizie aggiornate in tempo reale da tutto il …
+- [Ultime notizie di Cronaca: news oggi in tempo reale - Tgcom24](https://www.tgcom24.mediaset.it/cronaca/) — Cronaca italiana in tempo reale: ultime notizie di cronaca nera, fatti del giorno e aggiornamenti dall'Italia. Leggi tutte le notizie di …
+- [Today - Ultime notizie dall'Italia e dal Mondo](https://www.today.it/) — Today è il giornale online di Citynews: notizie e approfondimenti di attualità, cronaca, economia, politica, spettacoli e gossip dall'Italia …
+- [Notizie dall'Italia: ultime notizie - StrettoWeb](https://www.strettoweb.com/notizie-italia/) — 17 ore fa · Leggi le ultime notizie dall'Italia su StrettoWeb: aggiornamenti in tempo reale su politica, cronaca, sport e tanto altro.
+- [La Stampa - Ultime notizie di cronaca e news dall'Italia e dal ...](https://www.lastampa.it/) — Segui le ultime notizie de La Stampa e rimani aggiornato su tutti i fatti di cronaca, politica, economia e molto altro in Italia e nel mondo.
+- [Ultime notizie - Today](https://www.today.it/notizie/tutte/) — 17 ore fa · Ultime notizie in tempo reale. Aggiornamenti su news di cronaca, politica, sport, calcio, …
+- [Notizie Oggi - Scopri le ultime news con Canale Italia](https://canaleitalia.it/programmi/notizie-oggi/) — 25 feb 2026 · Notizie Oggi nasce 26 anni fa da un’idea congiunta di Vito Monaco e il Presidente di Canale Italia, Lucio Garbo. Il …
+

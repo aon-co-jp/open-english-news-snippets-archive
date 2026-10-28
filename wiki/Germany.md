@@ -565,3 +565,16 @@ Tags: `Switzerland (English)` `2026-10`
 - [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
 - [Ye Live Concert Tour](https://en.wikipedia.org/wiki/Ye_Live_Concert_Tour) — The Ye Live Concert Tour is the ongoing seventh headlining concert tour by American rapper Kanye West, in support of his twelfth studio album, Bully (2026). It commenced on April 1, 2026, in Inglewood, California at the SoFi Stadium and is his first concert tour in a decade, following the Saint Pablo Tour in 2016.
 
+### Germany(検索日時 / searched at: 2026-10-27)
+
+Tags: `Germany` `2026-10`
+
+- [Deutschland - aktuelle Nachrichten - tagesschau.de](https://www.tagesschau.de/thema/deutschland) — 16. Okt. 2026 · Deutschland - Nachrichten und Information: An 365 Tagen im Jahr, rund um die Uhr aktualisiert, die wichtigsten News …
+- [Aktuelle Nachrichten | DIE ZEIT](https://www.zeit.de/news/nachrichten) — 1. Juli 2026 · Lesen Sie hier aktuelle und wichtige Nachrichten von heute - aus Deutschland und der Welt.
+- [Aktuelle Politik-Nachrichten und News aus Deutschland](https://www.allgemeine-zeitung.de/politik/politik-deutschland/) — Vor 17 Stunden · Aktuelle Nachrichten von heute. Was war heute in Deutschland los? Hintergrundberichte und aktuelle Informationen.
+- [heute-Nachrichten - Aktuelle ZDF-Nachrichten aus aller …](https://www.zdfheute.de/video/heute-nachrichten) — Vor einem Tag · Der relevante Überblick aus der Nachrichtenredaktion des ZDF mit Vertiefung und …
+- [Die neuesten Nachrichten rund um die Uhr. - Deutschlandfunk](https://www.deutschlandfunk.de/nachrichten-100.html) — 4. Dez. 2024 · Nachrichten, News, Eilmeldungen: Hier können Sie die wichtigsten, aktuellen Meldungen aus Politik, Wirtschaft, …
+- [ZDFheute - Aktuelle Nachrichten und Videos auf einen Blick](https://www.zdfheute.de/) — News aus Deutschland sowie aktuelle Nachrichten aus Europa und aller Welt. Videos, Livestreams, Kommentare und Analysen von …
+- [Nachrichten, aktuelle Schlagzeilen und Videos - n-tv.de](https://www.n-tv.de/) — Nachrichten seriös, schnell und kompetent. Artikel und Videos aus Politik, Wirtschaft, Börse, Sport und aller Welt.
+- [tagesschau.de - die erste Adresse für Nachrichten und ...](https://www.tagesschau.de/) — Vor einem Tag · tagesschau.de - die erste Adresse für Nachrichten und Information: An 365 Tagen im Jahr, rund um die Uhr …
+

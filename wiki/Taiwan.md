@@ -568,3 +568,29 @@ Tags: `Taiwan` `2026-10`
 - [新华 台湾 _新华网](http://www.baidu.com/link?url=d9UHUC4nllyj-UYjtpvNZ8T-aUA1tBeEX07D6GZXs4g6lR4aXKYIDD_WZRNeu7FWbQ5tfJpSgMkOb9hnjtsJ5a) — 
 - [台湾新闻 网_台湾时政新闻 - - 海外网 第1页](http://www.baidu.com/link?url=d9UHUC4nllyj-UYjtpvNZ7kGiAOnKH-bwV1zllBqbw5YrGwMu3U71__xtA0H0kHfFHj1OvMASX0uMSVVr_97jK) — 
 
+### Taiwan(検索日時 / searched at: 2026-10-27)
+
+Tags: `Taiwan` `2026-10`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=YAvtzTIztMiHxaiFBInRE8jjDzMZH9ECDCN3JvS9Vla) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=YAvtzTIztMiHxaiFBInREvu0saoKh2dHBHPW0VuzvNu) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際資訊](http://www.baidu.com/link?url=d0HPiVLRmNZk4FFWun6KmkyOuv5WRepD36rVw0LDl4twSRyUydobrrzlQAyNr5m1) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=js9O2AgbI5ZRxVrluYIQ1_hjh-YKJgCkO5Zuz_Y5KeknS7KeVlfY94ZL-MPadJI0nPgL50YdCimgbNoujHcJ9xEL26z982yx-fR4K1sb60E4RMOhGCxZkrOsQ69JPg8jwJ3iM-31Yg8LQg3nUfvdBuYSk_3WhSrnxMJUKwt7niK) — 
+- [台灣 產經 新聞 網|財經要聞、產業觀點、企業動態與 AI 友善內容平台](http://www.baidu.com/link?url=mqcbtKthOS-brumdNGau9vF2xUBKzRCEac85a0YsWOYehWiaYfD236udkTgC1pfp) — 
+- [台湾新闻 滚动--台湾频道--人民网](http://www.baidu.com/link?url=9VHFeCM8WUhvXVkVjUQyK6nNRqrdqCbWHi38OxoFdqe9s9wfNGr5qSg81mlhGFNr) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-闽南网](http://www.baidu.com/link?url=CUn0zDG2aeviJZu2iEHMbUgfzGpukYLdcmLelUYzCRMsYzq5iP9deEFFoLB3ZqDg) — 
+- [台灣TV新聞｜即時新聞、政治、財經、生活娛樂｜最新頭條報導](https://tvn.com.tw/) — 1 天前 · 社會萬象 煙花最快週二變強颱！ 未來恐「大迴轉」對台影響曝光 新颱風「煙花」生成且持續增強，氣象粉專指出其將沿高壓 …
+
+### France (English)(検索日時 / searched at: 2026-10-27)
+
+Tags: `France (English)` `2026-10`
+
+- [France News: Latest & Breaking France News Headlines ...](https://7news.com.au/news/france) — 17 hours ago · Today's French news, live updates & all the latest breaking stories from 7NEWS.
+- [France News Today — Top Headlines | VaaWaa.com](https://vaawaa.com/country/fr/) — 17 hours ago · Today's top news from France: the latest headlines aggregated hourly from trusted France sources — free and ad-free …
+- [France News Today | Newsaly](https://newsaly.com/france) — Latest France news, breaking headlines, politics, business, sports and current events from trusted France publishers — updated …
+- [France news - breaking stories, video, analysis and opinion | CNN](https://www.cnn.com/world/europe/france) — View the latest France news and videos, including business, politics, sport and style headlines.
+- [France - BBC News](https://www.bbc.com/news/topics/c302m85qenyt) — May 11, 2026 · All the latest content about France from the BBC.
+- [France 24 - International breaking news, top stories and headlines](https://www.france24.com/en/) — Breaking news and world news from France 24 on Business, Sports, Culture. Video news. News from the US, Europe, Asia Pacific, …
+- [France News | Latest French News - NewsNow](https://www.newsnow.com/us/World/Europe/Western+Europe/France) — Stay informed about the latest political developments in France, including updates on President Emmanuel Macron's government and …
+- [France News | Latest Headlines & Stories | Reuters](https://www.reuters.com/world/france/) — 17 hours ago · Rivals from the centre-left to the far right have turned on Jean-Luc Melenchon and his France Unbowed party, …
+

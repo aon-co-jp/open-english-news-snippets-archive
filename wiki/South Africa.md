@@ -531,3 +531,16 @@ Tags: `South Africa` `2026-10`
 - [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
 - [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
 
+### South Africa(検索日時 / searched at: 2026-10-27)
+
+Tags: `South Africa` `2026-10`
+
+- [South Africa news today: latest headlines, politics & economy ...](https://www.za24.news/) — Oct 12, 2026 · Get the latest South Africa news and headlines — politics, economy, sport and culture — updated throughout the day. …
+- [South Africa stories, breaking news and comment | The Citizen](https://www.citizen.co.za/news/south-africa/) — More news, your way with the latest breaking news stories and headlines from South Africa and around the world.
+- [South Africa News | Latest Headlines & Stories | Reuters](https://www.reuters.com/world/south-africa/) — 1 day ago · South Africa's President Cyril Ramaphosa said on Monday that the country must prepare for its potential exclusion from …
+- [Top Stories | Latest News in South Africa | eNCA](https://www.enca.com/) — 17 hours ago · News eNCA News Bite | Mashatile on water crisis, 75 contractors barred and Harry Kane's Ballon d'Or | 27 October 2026
+- [News | SouthAfrica | News24](https://www.news24.com/southafrica/news) — Stay informed with the latest news, updates and more from across South Africa.
+- [South Africa Local News · Latest SA Headlines · News.co.za](https://news.co.za/south-africa/) — Local news from across South Africa, aggregated from trusted national and regional sources and updated throughout the day. Latest …
+- [IOL News | Latest South African News](https://www.iol.co.za/news/south-africa/) — Your comprehensive source for the latest and trending South African news, analysis and video content. Stay up-to-date with current …
+- [IOL News | Latest South African News](https://www.iol.co.za/iol/news/south-africa/) — Your comprehensive source for the latest and trending South African news, analysis and video content. Stay up-to-date with current …
+

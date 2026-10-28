@@ -545,3 +545,29 @@ Tags: `South Korea (English)` `2026-10`
 - [Korean Americans](https://en.wikipedia.org/wiki/Korean_Americans) — Korean Americans (Korean: 한국계 미국인) are Americans who have full or partial Korean ethnic ancestry. While the broader term Overseas Korean in America (미주한인/재미교포/재미한인) may refer to all ethnic Koreans residing in the United States, the specific designation of Korean American implies the holding of American citizenship.
 - [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
 
+### China(検索日時 / searched at: 2026-10-27)
+
+Tags: `China` `2026-10`
+
+- [头条新闻_今日中国](http://www.baidu.com/link?url=iufNJ3a9-yqh3y54EQmVxwlnZPeioHwTIXB-SRYUSqrOKXS5Kd9WArc5NukQBcvOfzuGnPybXNqXoA3N3bvXE_) — 
+- [今日头条](https://www.toutiao.com/) — 转发到头条 · 复制链接 · 微信 · 微信扫码分享 · 新浪微博 · QQ空间 · 评论 · 2 · 外交部：中方正常巡逻管控 望印方相向而行 · 看看新闻 · 17小时前 · 长期自己烧水喝和经常买桶装水喝的人，谁更健康？结果让人意外！ · 科学旅行号 · 807评论 · 09月17日 · 中国国旗错放成日本国旗 国乒小将走下领奖台拒绝领奖 ·
+- [今日头条](http://www.baidu.com/link?url=iufNJ3a9-yqh3y54EQmVxzhmq60vsyztnTQDmModQlCrwx_6MNPNLUCwJ9Ubr1iP) — 
+- [今日头条](http://www.baidu.com/link?url=qX73OWCYXjw5l9dtanVQmpTCIUaUgKql7qURYAJhA82F8WrJrTqVhZTHNZfktJ-D) — 
+- [头条新闻 _头条_ 中国 政府网](http://www.baidu.com/link?url=EWAO2XIHx-XTtpptGYrgwfepVqprkMmYzLR8-XVlNJ37PRSbI1GCHMHRT0taB--1) — 
+- [今日中国 _ 新闻 频道_央视网(cctv.com)](http://www.baidu.com/link?url=SDfidqkPC9sTL370TkN4XXegWGpXomedXqMT03EQNdT-4iiw7JvL2-DkBLt0yyo1YBRzqqMhoL3h013UG_JePK) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=-nbZL4RMlThl7ZLKH5tEYcv_wi0R-QFcXGH-qI7bx-82gvpDHOjh8yUjTuLaAOAs6VPdVoJU24xhuanJ4HKzKxZD_gepTqIRpwXxjlHSjLzkLB1rfOGfdv7pbxEc6gP2BwZVTWUpvDfqLhgwZXbxVK) — 
+- [中国新闻网_梳理天下新闻](https://www.chinanews.com.cn/) — 中国新闻网，是知名的中文新闻门户网站，也是全球互联网中文新闻资讯最重要的原创内容供应商之一。 依托中新社遍布全球的采编 …
+
+### Myanmar (English)(検索日時 / searched at: 2026-10-27)
+
+Tags: `Myanmar (English)` `2026-10`
+
+- [Myanmar News Today | Latest Burma & Junta News ...](https://www.newsnow.com/ng/World/Asia/Myanmar?type=ln) — Our NewsNow feed on Myanmar is constantly updated with the most relevant headlines from reliable sources, giving a …
+- [Myanmar news headlines - Asean News Today](https://aseannewstoday.com/myanmar-news-headlines/) — Jul 9, 2026 · Myanmar news headlines are updated every 30 minutes. Click through to find the 30 latest Myanmar news headlines all …
+- [Myanmar News Today | Latest Burma & Junta News - NewsNow](https://www.newsnow.com/us/World/Asia/Myanmar) — Our NewsNow feed on Myanmar is constantly updated with the most relevant headlines from reliable sources, giving a …
+- [Myanmar Breaking News Headlines Today | Ground News](https://ground.news/interest/myanmar-burma) — Apr 10, 2026 · Stay current with all the latest and breaking news about Myanmar (Burma), compare …
+- [Home - Myanmar Now](https://myanmar-now.org/en/) — Oct 20, 2026 · Latest news and insightful features on Myanmar in Burmese and English. Trusted by global media, governments, and …
+- [The Irrawaddy - Covering Burma and Southeast Asia](https://www.irrawaddy.com/) — Oct 16, 2026 · Covering Myanmar and Southeast Asia News, especially politics, ethnic issues and others shaping Myanmar today.
+- [Google News - Myanmar (Burma) - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNRFI0Ymw4U0FuUm9LQUFQAQ) — Read full articles, watch videos, browse thousands of titles and more on the "Myanmar (Burma)" topic with Google News.
+- [News Archives - Myanmar Now](https://myanmar-now.org/en/news/category/news/) — 1 day ago · Myanmar news outlet the Democratic Voice of Burma reported on Thursday that more than 400 ethnic Rakhine residents …
+
