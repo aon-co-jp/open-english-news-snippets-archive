@@ -25,6 +25,7 @@
 - [Italy](wiki/Italy.md)
 - [Japan](wiki/Japan.md)
 - [JICA congratulates Viet Nam on FTSE Russell market upgrade](wiki/JICA congratulates Viet Nam on FTSE Russell market upgrade.md)
+- [JP](wiki/JP.md)
 - [Local news](wiki/Local news.md)
 - [Malaysia](wiki/Malaysia.md)
 - [Meey Global Corp Announces Public Filing of Registration Statement for Proposed Initial Public Offering](wiki/Meey Global Corp Announces Public Filing of Registration Statement for Proposed Initial Public Offering.md)
