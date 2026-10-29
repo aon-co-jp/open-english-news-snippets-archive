@@ -627,3 +627,29 @@ Tags: `Afghanistan` `2026-10`
 - [د افغانستان او نړۍ تازه ترین ورځني خبرونه - آفاق ...](https://afaaq.af/%da%a9%d9%88%d8%b1-%d9%be%d8%a7%da%bc%d9%87/) — 17 اگست 2026 · تمه ده د افغانستان وضعیت د ارزونې په موخه د ملګرو ملتونو د امنیت شورا غونډه تر رالتونکو دوو ورځو پورې ترسره شي. د ملګرو ملتونو د معلوماتو پر بنسټ، …
 - [افغانستان](https://ps.wikipedia.org/wiki/%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86) — افغانستان په رسمي توګه د افغانستان اسلامي امارت په غرونو کې کلابند يو غرنيز او سمسور هېواد دی چې د "۴۳ میلیونه" وګړو او «۶۵۲۸۶۴» کیلومتره مربع ځمکي په درلودلو سره د آسيا په زړه کي پروت دی. په ټولیزه توګه دا هېواد د منځنۍ اسيا يوه ستراتېژیکه سیمه ګڼل کېږي چي په لوېدیځ کي له ایران، په شمال لوېدیځ کي له ترکمنستان، په شمال کي له ازبکستان او تاجکستان او په شمال ختیځ کي له چین سره ګډې پولې لري.
 
+### Afghanistan(検索日時 / searched at: 2026-10-28)
+
+Tags: `Afghanistan` `2026-10`
+
+- [افغانستان خبرونه - AfghanNow.net](https://afghannow.net/%d8%a7%d9%81%d8%ba%d8%a7%d9%86%d8%b3%d8%aa%d8%a7%d9%86/) — د افغانستان د ورځنیو پیښو، سیاسي وضعیت، امنیتي حالاتو او ټولنیزو بدلونونو هراړخیزه پوښښ. د هیواد تازه خبرونه یوازې AfghanNow.net کې ولولئ.
+- [اخبار افغانستان - اطلاعات روز](https://www.etilaatroz.com/category/news/afghanistan/) — تازه‌ترین و موثق‌ترین اخبار و حوادث افغانستان را در این صفحه دنبال کنید. روزنامه اطلاعات روز مرجع تازه‌ترین و موثق‌ترین خبرها در افغانستان.
+- [کورنی | افغانستان انټرنشنل پښتو](https://www.afintl.com/pa) — 1 day ago · د افغانستان انټرنشنل پښتو تازه خبرونه، خبري رپوټونه او شننې په سپوږمکۍ، اینټرنېټ او خواله رسنیو کې زموږ پر پاڼو څارلی شئ.
+- [BBC News, پښتو - کور پاڼه](https://www.bbc.com/pashto) — 29 جول 2026 · د افغانستان، سیمې او نړۍ په اړه تازه خبرونه، رپوټونه، شننې، څېړنې، مرکې، لوبې، ژوندۍ رادیويي خپرونې، ويډیوګانې، ستاسې نظرونه او نور ډېر په زړه پورې مطالب په …
+- [کورپاڼه - افغان اتلان · پښتو](https://ps.afghanatalan.com/) — 15 اکتوبر 2026 · افغان اتلان – د افغانستان تازه خبرونه، پښتو شعرونه او ادبیات، د افغانستان تاریخ، کرکټ ، ژوندۍ تلویزیوني خپرونې او نور په زړه پورې مطالب.
+- [د نن ورځې مهم خبرونه | KDR News - Facebook](https://www.facebook.com/KDRNewsPashto/videos/%D8%AF-%D9%86%D9%86-%D9%88%D8%B1%DA%81%DB%90-%D9%85%D9%87%D9%85-%D8%AE%D8%A8%D8%B1%D9%88%D9%86%D9%87/2273575576707151/) — 29 سپتمبر 2026 · KDR NEWS د بلوچستان په دیره بكتي سیمه كي د وسلوالو سره په نبته كي هلاك ک شویدی . KDR NEWS بلوج بگینه وسلوالو دكراچي پر لويه لاره چیک پاینتونه …
+- [د افغانستان او نړۍ تازه ترین ورځني خبرونه - آفاق ...](https://afaaq.af/%da%a9%d9%88%d8%b1-%d9%be%d8%a7%da%bc%d9%87/) — 17 اگست 2026 · تمه ده د افغانستان وضعیت د ارزونې په موخه د ملګرو ملتونو د امنیت شورا غونډه تر رالتونکو دوو ورځو پورې ترسره شي. د ملګرو ملتونو د معلوماتو پر بنسټ، …
+- [افغانستان - جدیدترین و آخرین اخبار افغانستان ...](https://www.shahrekhabar.com/tag/%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86) — جدیدترین و آخرین اخبار افغانستان : افغانستان خواستار محکومیت تولید و قاچاق مواد مخدر در پاکستان شد قزاقستان با همکاری ازبکستان و امارات، امکان ایجاد مسیر ریلی از افغانستان به بنادر …
+
+### China (English)(検索日時 / searched at: 2026-10-28)
+
+Tags: `China (English)` `2026-10`
+
+- [China News | Today's Breaking Stories | Reuters](https://www.reuters.com/world/china/) — 17 hours ago · Reuters.com is your online source for the latest China news stories and current events, ensuring our readers up to …
+- [China News Headlines, Latest China News and Live Updates ...](https://timesofindia.indiatimes.com/world/china) — 5 days ago · China News: TOI brings the latest China news headlines, breaking China news and Live Updates.
+- [China news - breaking news, video, headlines and opinion | CNN](https://www.cnn.com/world/china) — View the latest China news and videos, including politics, travel and business headlines.
+- [China Breaking News & Headlines | South China Morning Post](https://www.scmp.com/news/china) — Latest China news, opinions and analysis, covering Xi Jinping, Beijing's relations with Taiwan and China's tensions with the US.
+- [China News: Latest & Breaking Chinese News Headlines ...](https://7news.com.au/travel/china) — 17 hours ago · Today's Chinese news, live updates & all the latest breaking stories from 7NEWS.
+- [China News - Headlines, Stories & Videos - Chinadaily.com.cn](https://www.chinadaily.com.cn/china/index.html) — Get the latest China news, breaking China news, China business news, as well as information on China politics, China culture, and …
+- [China News | Latest China Updates - NewsNow](https://www.newsnow.com/us/World/Asia/China) — Our NewsNow feed on China brings together the most important headlines from a wide range of reliable sources, keeping you …
+- [CGTN | Breaking News, China News, World News and …](https://en.cgtn.com/) — Get the news as it breaks and go behind the day's top stories, from politics, business, culture and sports to …
+

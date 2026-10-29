@@ -612,3 +612,29 @@ Tags: `Iran (Japanese)` `2026-10`
 - [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — イランが核施設の防衛強化と国民結集、戦闘再開に向け ... トランプ米大統領が再び攻撃する構えだと確信するイランは、核施設の防衛強化などの準備を抑止力とみなしている。
 - [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — 「 イラン 情勢」 ニュース 一覧 ... 米軍の イラン 核施設への攻撃【国際法の根拠や影響は？】 2025年6月23日 21:35. イラン 大統領 主要 核施設を攻撃したアメリカに報復を示唆.
 
+### United States(検索日時 / searched at: 2026-10-28)
+
+Tags: `United States` `2026-10`
+
+- [U.S. News: Latest news, breaking news, today's news ...](https://www.cbsnews.com/us/) — U.S. breaking news: Today's top stories updated by the CBS News team.
+- [USA News Today | Latest USA & White House News - NewsNow](https://www.newsnow.com/us/US) — Our NewsNow USA feed brings together the latest headlines on US politics, the White House, Congress, the Supreme Court, the …
+- [U.S. News: Latest Breaking Stories and Video on National Issues](https://www.nbcnews.com/us-news) — Sep 14, 2023 · Get the latest news headlines and top stories from NBCNews.com. Find videos and news articles on the latest stories …
+- [Associated Press News: Breaking News | Latest News Today](https://apnews.com/) — Read the latest headlines, breaking news, and videos at APNews.com, the definitive source for independent journalism from every …
+- [Google News - U.S. - Latest](https://news.google.com/topics/CAAqIggKIhxDQkFTRHdvSkwyMHZNRGxqTjNjd0VnSmxiaWdBUAE?hl=en-US&ceid=US:en) — Read full articles, watch videos, browse thousands of titles and more on the "U.S." topic with Google News.
+- [ABC News - Breaking News, Latest News and Videos](https://abcnews.com/) — Your trusted source for breaking news, analysis, exclusive interviews, headlines, and videos at ABCNews.com
+- [Breaking News, Latest News and Videos | CNN](https://www.cnn.com/) — View the latest news and breaking news today for U.S., world, weather, entertainment, politics and health at CNN.com.
+- [NBC News – Breaking Headlines and Video Reports on World ...](https://www.nbcnews.com/) — Sep 24, 2026 · Go to NBCNews.com for breaking news, videos, and the latest top stories in world news, business, politics, health …
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-28)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- [Afghanistan News: Latest Afghanistan News Today | AP News](https://apnews.com/hub/afghanistan) — Stay informed on the latest Afghanistan news and current events. Read AP News for daily updates on news in Afghanistan.
+- [Afghanistan | Today's latest from Al Jazeera](https://www.aljazeera.com/where/afghanistan/) — Oct 16, 2026 · Stay on top of Afghanistan latest developments on the ground with Al Jazeera’s fact-based news, exclusive video …
+- [Afghanistan - BBC News](https://www.bbc.com/news/topics/c8nq32jw5r5t) — Oct 13, 2026 · All the latest content about Afghanistan from the BBC.
+- [Afghanistan Breaking News Headlines Today | Ground …](https://ground.news/interest/afghanistan) — Mar 5, 2026 · Stay current with all the latest and breaking news about Afghanistan, compare headlines and …
+- [Afghanistan news - breaking stories, video, analysis and ...](https://www.cnn.com/world/asia/afghanistan) — View the latest Afghanistan news and videos, including politics and business headlines.
+- [Afghanistan News | Afghanistan Latest Updates 24/7 ...](https://www.newsnow.com/us/World/Asia/Afghanistan?type=ln) — Our NewsNow feed on Afghanistan brings together the latest headlines from trusted sources worldwide, covering politics, security, …
+- [Afghanistan News | Afghanistan Latest Updates 24/7 - NewsNow](https://www.newsnow.com/ca/World/Asia/Afghanistan) — Our NewsNow feed on Afghanistan brings together the latest headlines from trusted sources worldwide, covering politics, security, …
+- [Google News - Afghanistan - Latest](https://news.google.com/topics/CAAqIAgKIhpDQkFTRFFvSEwyMHZNR3BrWkJJQ2MzSW9BQVAB) — Oct 28, 2024 · Read full articles, watch videos, browse thousands of titles and more on the "Afghanistan" topic with Google News.
+
