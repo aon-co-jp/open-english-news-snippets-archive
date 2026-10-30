@@ -573,3 +573,29 @@ Tags: `Switzerland (Japanese)` `2026-10`
 - [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — スイスの氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイスで観光客を乗せたバスが横転 5人死亡 · W杯 決勝トーナメント【全結果 ...
 - [スイス：ニュースまとめ【10/27更新】 - ライブドアニュース](https://news.livedoor.com/topics/keyword/3508/) — 4 日前 · トピックスで扱われた注目ニュースを掲載しています。
 
+### Japan(検索日時 / searched at: 2026-10-29)
+
+Tags: `Japan` `2026-10`
+
+- [Yahoo!ニュース](https://news.yahoo.co.jp/) — J-CASTニュース10/29(木)11:15 · 2 · 槙野監督に特例の2試合ベンチ入り停止＆罰金処分 徳島戦後の発言が審判批判に該当「リスペクト精神に著しく欠けるもの」 · FOOTBALL ZONE10/29(木)17:03 · 3 · 原口一博元議員に賠償命令 コロナワクチンを「生物兵器」と中傷 ·
+- [NHKニュース 速報・最新情報](https://news.web.nhk/newsweb) — 15 時間前 - 平日の「ニュースウオッチ9」から土曜の「サタデーウオッチ9」へ。長年にわたりNHK報道の中心を担ってきた山下毅解説委員と川口由梨香キャスターがタッグを組みます。週末の夜に1週間のニュースのポイントをわかりやすく解説。世界と日本の今をどう読み解き、明日へとつなげていくのか、みなさんとともに考えます。
+- [Google ニュース](https://news.google.com/home?hl=ja&gl=JP&ceid=JP%3Aja) — トップ ニュース · 芥川賞作家のトランスジェンダー暴露 甲府市議に賠償命令 · スペイン列車事故、死者69人に…人為的ミスが重なったことが原因との見方.
+- [主要トピックス一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/topics/top-picks) — 18 時間前 - J-CASTニュース10/29(木)11:15 · 2 · 原口一博元議員に賠償命令 コロナワクチンを「生物兵器」と中傷 · 毎日新聞10/29(木)13:13 · 3 · 新給付、年収119万円以下は年5千円案 · 共同通信10/29(木)16:21 · 4 · 【速報】世界的ピアニスト・反田恭平被告（32）に執行猶予付きの有罪判決 首都高を時速144キロで走行した罪 ·
+- [日本経済新聞 - ニュース・速報 最新情報](https://www.nikkei.com/) — 日本 経済新聞トップ · 日本 車の中国生産、ピークの4割弱ガソリン車市場縮小でホンダ9割減 · 首相、ガソリン「12月から毎月5円上げ」電気・ガス支援は計7000円程度 · 中部電力 ...
+- [速報・新着ニュース一覧：朝日新聞](https://www.asahi.com/news/) — 5 時間前 - ニュース > 日付別一覧 · 速報・新着ニュース一覧 · 2026年7月 · 2026年8月 · 2026年9月 · 2026年10月 · 1日 · 2日 · 3日 · 4日 · 5日 · 6日 · 7日 · 8日 · 9日 · 10日 · 11日 · 12日 · 13日 · 14日 · 15日 · 16日 ·
+- [時事ドットコム：時事通信社が運営するニュースサイト](https://www.jiji.com/) — ニュースＱ＆Ａ · 解説委員室から · 父が首相、２人の接点◆福田康夫元首相と佐藤信二元通産相 2026年10月27日 · 深層探訪 · 中南米左派退潮にくさび ルラ氏「主権を懸けた選挙」―対米関係修復が課題・ブラジル 2026年10月26日 ·
+- [日テレNEWS NNN｜日本テレビ系NNN30局のニュースサイト](https://news.ntv.co.jp/) — 皇室のニュース · ランキング · 1 · 0:56 · “性的暴行”で逮捕のパキスタン国籍の男を再逮捕 「お前を殺せば40万」と…別の少女に薬物のませ“性的暴行”か · 10月28日 14:26 · 2 · 1:02 · GMO“攻撃者”が公開していたウェブサイト、ドメイン停止され閉鎖状態になったことを確認 ·
+
+### Italy (English)(検索日時 / searched at: 2026-10-29)
+
+Tags: `Italy (English)` `2026-10`
+
+- [Italian News in English: Today’s Headlines - Italia Mia](https://www.italiamia.com/italian-news-english/) — 17 hours ago · Follow Italian news in English, with headlines on politics, the economy, society and travel, plus links to original reports …
+- [Italy News Today — Latest Headlines & Breaking News](https://feedpals.com/italy/) — 3 days ago · Get the latest Italy news today — breaking news, headlines and top stories from Italy's trusted sources, updated …
+- [Italy Breaking News Headlines Today | Ground News](https://ground.news/interest/italy) — Mar 20, 2026 · Stay current with all the latest and breaking news about Italy, compare headlines and …
+- [News from Italy: Today's Latest Updates](https://italien.news/en/latest-news/) — Sep 5, 2026 · News from Italy, updated every weekday: politics, business, local news, and sports from all 20 regions—plus weather, …
+- [Italy News Today — Top Headlines | VaaWaa.com](https://vaawaa.com/country/it/) — 17 hours ago · Today's top news from Italy: the latest headlines aggregated hourly from trusted Italy sources — free and ad-free on …
+- [Italy - Euronews](https://www.euronews.com/tag/italy) — 4 days ago · Italy | Stay informed with the latest news from Italy, covering politics, economy, culture, and more. Get updates on key …
+- [Italy News Today in English | Latest Italy News - NewsNow ...](https://www.newsnow.com/us/World/Europe/Southern+Europe/Italy?type=ln) — Latest news on Italy, covering politics, economy, culture, business, travel, Rome, Milan, Turin, Naples, and stories from across the …
+- [Google News - Italy - Latest](https://news.google.com/topics/CAAqIQgKIhtDQkFTRGdvSUwyMHZNRE55YW1vU0FuTnlLQUFQAQ) — Read full articles, watch videos, browse thousands of titles and more on the "Italy" topic with Google News.
+
