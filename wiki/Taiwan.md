@@ -620,3 +620,94 @@ Tags: `Taiwan` `2026-10`
 - [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=dq0g51m_SMBFMEa1gzbC4jH2YG2felFBOPP75QgJRx6NZg53cYbmdTiQZp3d9N9tN2IFMKgCDzUAehwGNbkI0g584Dx51WflqgXUuA5H7lEIv4M_GE1Jb6YtyqRwFxkoM0B6pya8bMI3kECuD0YwHyhYLhmfMLmprS0KCxVSZWC) — 
 - [台灣TV新聞｜即時新聞、政治、財經、生活娛樂｜最新頭條報導](https://tvn.com.tw/) — 17 小時前 · 科技數位 「台灣兒童圖畫書教父」鄭明進離世 享嵩壽95歲 台灣兒童圖畫書教父、金鼎獎得主鄭明進26日於睡夢中辭世， …
 
+### Taiwan(検索日時 / searched at: 2026-10-30)
+
+Tags: `Taiwan` `2026-10`
+
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-闽南网](http://www.baidu.com/link?url=Vz0dLcuimZDRfhKDyc7mGDjI0cSynMJk_wV4JH1hY8Bu9Qz_1gm7K3Jmss58HF0N) — 
+- [台湾 _资讯_凤凰网](http://www.baidu.com/link?url=VTIoN8y6Wu3eKrcPNMqeiPwl4lshjhTFVoxK0lK1Gw2ZNvXe-E6DVgToVdJDqY16) — 
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=cHvHrC__tJfMSe9yGBdnzf3uMyPi0SQFj623OEfVVQC) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際...](http://www.baidu.com/link?url=VuFf9v7pjNPLB49HCv9fZbSX93eeZBGyvEtKDlyGViLpknPM3MWmcEyEJ78rpwQT) — 
+- [海峡两岸首页](http://www.baidu.com/link?url=Xtp826_IUg56Mmh5i2FqUZZ7JzJdr_9n20IDSzStBMRn7ULVmSgTBWtekX0Zf7a_DfB7CIvNVqYnqOoBMtTGJE0YHox3ajrFpxBrfopmaGO) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=4sElXLUeUNNXXNctBlyICkEkYe5jyN7MCmFto38cSka12UbNJkGOrA8x4IEC6rt8) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=cHvHrC__tJfMSe9yGBdnzke5qQc-oOMSq8aM5uB9CMS) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=Xtp826_IUg56Mmh5i2FqULpmQDK2fi6QclNbmLD89dx_iVX_nfupl7MPy9wi5Ej9) — 
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-30)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — 台湾、違法薬物運転の法定刑を厳罰化 10年以内の再犯での死亡事故に最高で死刑適用 · パキスタン、台湾機の領空通過禁止措置を撤回 米国務省報道官「歓迎する」 · 日本発の ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 台湾、違法薬物運転の法定刑を厳罰化 10年以内の再犯での死亡事故に最高で死刑適用 · パキスタン、台湾機の領空通過禁止措置を撤回 米国務省報道官「歓迎する」 ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や台湾の最新ニュース・特集 をまとめました。中国の習近平国家主席の動向や中国経済、台湾を巡る情勢、TSMCや鴻海のニュースなどをお伝えします。
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 外交部の雑誌『 台湾 光華』、創立50周年の写真展開催 · Taiwan Today各言語版、2026年12月31日をもって発行を終了 · TAIWAN TODAY日本語版からのお知らせ · GCTF合同 ...
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 山梨で刺され死亡の女性 “日本渡航前に身の危険感じていた” · 山梨の女性死亡事件 台湾 で夫を拘束 高額保険か · 台湾 統一地方選挙に向け 台北などで激しい争い · 台風30号 ...
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 情勢 · 11時間前. 中国軍、スカボロー礁で戦闘即応パトロール フィリピンに対抗 · 19時間前. 中国船50隻超が広域展開、日台比への脅威「明白」と 台湾 高官 · 2026年10月28 ...
+- [最新 | フォーカス 台湾 - 中央社日本語版 - Focus Taiwan](https://japan.focustaiwan.tw/news) — 最新 · 台湾、違法薬物運転の法定刑を厳罰化 10年以内の再犯での死亡事故に最高で死刑適用 · パキスタン、台湾機の領空通過禁止措置を撤回 米国務省報道官「歓迎する」 · 31日 ...
+- [「 台湾 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/taiwan/) — 2026. 09/25: 電車の優先席めぐり乗客が乱闘、動画拡散で議論噴出 東アジア · 習氏、トランプ氏に「 台湾 独立反対」を要請 中国国営メディア; 08/29: 台湾 沖で確認され ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-10-30)
+
+Tags: `Ukraine (English)` `2026-10`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Disinformation in the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Disinformation_in_the_Russo-Ukrainian_war) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Ukraine bioweapons conspiracy theory](https://en.wikipedia.org/wiki/Ukraine_bioweapons_conspiracy_theory) — In March 2022, during the Russian invasion of Ukraine, Russian officials falsely claimed that public health facilities in Ukraine were "secret U.S.-funded biolabs" purportedly developing biological weapons, which was debunked by multiple media outlets, scientific groups, and international bodies. The claim was amplified by China's Ministry of Foreign Affairs and Chinese state media, and was also promoted by followers of the QAnon conspiracy theory and subsequently supported by other far-right groups in the United States.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+
+### Afghanistan (English)(検索日時 / searched at: 2026-10-30)
+
+Tags: `Afghanistan (English)` `2026-10`
+
+- [Elections in Afghanistan](https://en.wikipedia.org/wiki/Elections_in_Afghanistan) — Though Afghanistan has had democratic elections throughout the 20th century, the electoral institutions have varied as changes in the political regime have disrupted political continuity. Elections were last held under the Islamic Republic of Afghanistan, which was deposed by the Taliban in August 2021.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [PBS News Hour](https://en.wikipedia.org/wiki/PBS_News_Hour) — PBS News Hour (previously stylized as PBS NewsHour) is an American daily evening television news program broadcast on more than 350 PBS member stations since October 20, 1975. The nightly broadcast is known for its in-depth coverage of important issues and current events.
+- [The News Agents](https://en.wikipedia.org/wiki/The_News_Agents) — The News Agents is a British daily podcast produced by Global Media & Entertainment. It is presented by Emily Maitlis, Jon Sopel, and Lewis Goodall.
+- [Erin Burnett](https://en.wikipedia.org/wiki/Erin_Burnett) — Erin Isabelle Burnett (born July 2, 1976) is an American news anchor, currently the anchor of Erin Burnett OutFront on CNN. She previously worked for CNBC as co-anchor of Squawk on the Street and the host of Street Signs. Burnett has also appeared on NBC's Meet the Press, Today, MSNBC's Morning Joe, and NBC Nightly News as well as making occasional appearances on The Celebrity Apprentice.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-10-30)
+
+Tags: `Brazil (Japanese)` `2026-10`
+
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル大統領選敗北のボルソナロ氏が出国 米国がビザ発給方針 · ルラ大統領再選でブラジル「トリプル安」 放漫財政懸念に冷静な見方も · トランプ氏「ブラジル大統領選挙は ...
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — ブラジル . 最新 ニュース . 【社説】 ブラジル 大統領選 ルラ氏は逆転勝利を国民融和への一歩に · ブラジル ・サンパウロで2026年10月25日、大統領選決選投票 · 【社説】 ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「ブラジル」ニュース一覧 · 米到着のボルソナロ氏“政治的迫害逃れるため国離れた”と主張 · フラビオ・ボルソナロ氏 ブラジル出国し米到着か 複数メディア · ブラジル大統領選 ...
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — 《 ブラジル 》デジタルゲリラ戦が政権交代を導く＝左派の逆転劇、欧米にも拡散＝「ルーラ軍」が変えたSNS選挙運動. 10/29(木) 7:29. 《 ブラジル 》商議所＝「日本企業 ...
+- [ブラジル - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/cs_america/br/) — 中東情勢悪化を受け、 ブラジル 政府は対話による解決の重要性を強調、経済への影響に懸念も(米国、 ブラジル 、イスラエル、イラン、南アフリカ共和国). 2026年3月12日.
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — 大統領選直後、敗北を喫した右派候補の国外逃亡疑惑という激震が走っている。ルーラ大統領の再選確定直後、最高裁（STF）が迅速な司法介入に踏み切ったことで、 ブラジル の ...
+- [「 ブラジル 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/) — 2026. 10/29: ブラジル 大統領選で敗れ出国、なぜ米国はボロソナーロ派の政治拠点になったのか？ 10/28: ブラジル 大統領選敗北のボルソナーロ氏、逮捕を恐れ米国に入国 ...
+- [ブラジル - BBC ニュース](https://www.bbc.com/japanese/topics/c5qvpx7pjwzt) — ブラジル大統領選で敗れたボルソナロ氏、国外逃亡を否定 米マイアミ到着後. 2026年 ... BBCニュースを他言語で読む; Do not share or sell my info. © 2026 BBC. BBC ...
+
+### France (Japanese)(検索日時 / searched at: 2026-10-30)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス全土で再び大規模な抗議デモ、1300人以上逮捕 参加者と警官らが衝突 · パリ近郊で銃撃、「人種差別的なテロ攻撃」と仏大統領 1人死亡し5人負傷 · シャモンダウイルス ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — French. 週末の抗議デモで1314人逮捕、警官53人が負傷 フランス · 仏極右ルペン氏、大統領選へ始動 「法の支配の回復」誓う · 仏各地でデモ隊と警察が衝突、1000人近く ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/25: フランス 各地でデモ、40万人参加 イタリアなど他国にも波及; 10/23: 危機の瀬戸際に立つ フランス 、次は米国か; 10/21: フランス 暴動の略奪品をフリマ ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · ユーロ圏GDP 7月から9月期 伸び率プラス0.4% 2期ぶり縮小 · 混迷のフランスはどこへ～市民デモと大統領選挙～ · サッカー エムバペ選手が謝罪声明 ...
+- [ニュース ・社会問題 Archives - OVNI| オヴニー・パリの新聞](https://ovninavi.com/category/mieux-connaitre-la-france/actualites/) — 今 フランス で起きていることをわかりやすく解説。 ニュース · フランス の出来事 · 三面記事 · 経済 · 抵抗する人 · 社会ラボ.
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 習近平氏「中国・EU貿易は相互補完」 ドイツ大統領に歩み寄り訴え · ユーロ圏GDP年率1.7%増 7〜9月、フランスはマイナス成長 · 日本ロレアル社長、アルシャンボー氏が就任 5 ...
+- [今日 の フランス | フランス 情報メディアのET TOI（エトワ）](https://www.parisettoi.fr/news/) — 2026.10.27. シャンパーニュ指定のぶどう畑、見直し申請が取り下げに · 2026.10.27. ルコルニュ首相、学生向け措置を提示：学生側は納得せず · 2026.10.27 ...
+
+### Japan (English)(検索日時 / searched at: 2026-10-30)
+
+Tags: `Japan (English)` `2026-10`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+

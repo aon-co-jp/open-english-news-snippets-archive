@@ -743,3 +743,9 @@ Tags: `Tajikistan (English)` `2026-10`
 - [Tajikistan | The Times Of Central Asia | News Coverage Online](https://timesca.com/tajikistan/) — Aug 11, 2026 · Times of Central Asia cover Tajikistan politics, economics, culture, social issues, justice and foreign affairs. Click here …
 - [Tajikistan News | Tajikistan Latest News - NewsNow](https://www.newsnow.com/us/World/Asia/Tajikistan) — Latest news and updates on Tajikistan, a landlocked country located in Centra Asia that is bordered by Afghanistan, Uzbekistan, …
 
+### Cambodia(検索日時 / searched at: 2026-10-30)
+
+Tags: `Cambodia` `2026-10`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
