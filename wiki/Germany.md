@@ -630,3 +630,68 @@ Tags: `Italy (English)` `2026-10`
 - [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 
+### Germany(検索日時 / searched at: 2026-10-31)
+
+Tags: `Germany` `2026-10`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Deutschland](https://de.wikipedia.org/wiki/Deutschland) — Deutschland (; Vollform des Staatsnamens: Bundesrepublik Deutschland) ist ein Bundesstaat in Mitteleuropa. Es besteht aus 16 Ländern und ist als freiheitlich-demokratischer und sozialer Rechtsstaat verfasst.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Heute-show](https://de.wikipedia.org/wiki/Heute-show) — Die heute-show (Eigenschreibweise auch heute show und heute SHOW) ist eine deutsche Comedy- und Satiresendung im ZDF mit Stilelementen einer Nachrichtensendung. Ihr Name wurde in Anlehnung an die ZDF-Nachrichtenformate heute und heute-journal sowie die ARD-Sendung Tagesschau gewählt.
+- [RTL aktuell](https://de.wikipedia.org/wiki/RTL_aktuell) — RTL aktuell (Eigenschreibweise RTL AKTUELL) ist die Nachrichtensendung bei RTL. Die Hauptausgabe mit einer Dauer von 20 Minuten wird täglich um 18:45 Uhr live aus Köln ausgestrahlt. Bei wichtigen Ereignissen kann als Programmergänzung ein RTL aktuell Spezial zum Einsatz kommen – je nach Anlass meistens um 20:15 Uhr und mit einem Umfang von etwa 15 Minuten.
+- [Bundespräsident (Deutschland)](https://de.wikipedia.org/wiki/Bundespr%C3%A4sident_(Deutschland)) — Der Bundespräsident (Abkürzung BPr, auch BPräs) ist das Staatsoberhaupt (Art. 54–61 GG) der Bundesrepublik Deutschland und protokollarisch ihr höchstes Verfassungsorgan.
+- [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
+- [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Thailand (Japanese)` `2026-10`
+
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 災害激甚化、タイ製造業の「新常態」に トヨタなど自動車生産停止 · バンコク、豪雨で主要道路の冠水相次ぐ 都知事「東部で洪水」 · 東京ガス系、タイで再エネ電力を供給 ...
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [タイ の ニュース ｜グローバル ニュース アジア - Global News Asia](https://globalnewsasia.com/country.php?country=2) — タイの新着ニュース · 水没バンコクでトヨタ工場停止・タイ国際航空330便混乱 東南アジア経済を直撃 · 水没したアジア経済の心臓部―バンコクが非常事態宣言、都市機能崩壊と ...
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新 ニュース · ネパールで急増した「ガチ中華」 災害は中印との三角関係を変えるか · ボッチャの練習拠点が浸水被害に 揺るがなかった タイ 代表の精密さ · ナンプラー香る ...
+- [「 タイ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000386) — 「タイ」ニュース一覧 · 中国家電大手がタイに工場建設で起工式 · 避難民医療支援のミャンマー人医師が講演 人権尊重訴え · 日銀植田総裁“物価2％超の上昇容認せず” 今後も ...
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — タイ政府、観光収益で年間19兆円達成を目標 に · タイ農相、ロシアとの農業協力強化呼びかけ 食料安全保障や農産物貿易拡大で一致 · タイ国鉄、ダムの上を走る「水上列車」の ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — 2026-10-31. パタヤで外国人女性が全裸で8階から飛び降り！ · 2026-10-31. 鶏肉を揚げたまま爆睡！ · 2026-10-31. チェンライ県の中国系学校校長が銃撃され死亡！ · 2026-10- ...
+- [タイニュース 速報ポータルサイトータイランド通信](http://thai.news-agency.jp/articles/topics) — タイニュース速報ポータルサイトタイランド通信 タイ株 タイ経済情報 · タイ下院、賛成338票で2027年度予算を承認 [2026-09-11 16:51 ] · アヌティン首相、岸田元首相と会談 ...
+
+### Brazil (English)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Brazil (English)` `2026-10`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable network. Owned by CNN Worldwide, the network primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Iran (Japanese)` `2026-10`
+
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 10/29: ヘグセス米国防長官、国防総省の戦略立案部門トップを解任 イラン 攻撃再開を検討する中; 10/28: 米国、 イラン での戦争で「富を得ている」 トランプ氏が ...
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン 情勢の ニュース ・速報. 200件中 1~20件表示. 【速報】 イラン 南部で米軍無人機が漁船攻撃と報道. 19時35分. 共同通信. 米南部で開幕した20カ国・地域（G20）外相 ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — イランは報復としてイスラエルや中東の米関連施設を攻撃 。殺害されたハメネイ師の後継に次男モジタバ・ハメネイ師（56）を選出した。 ... 原油価格の高騰など世界経済への ...
+- [イラン 大統領の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%83%A9%E3%83%B3%E5%A4%A7%E7%B5%B1%E9%A0%98.html) — 最新ニュース · イラン「我々こそテロ被害者」 米との交渉再開にも含み 大統領演説 · 国連で「我々はテロ被害者」 イラン大統領演説、米代表は退席 · 「我々はテロの被害者」 ...
+- [「 イラン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10110) — イラン大統領、プーチン氏に軍事協力拡大要請か モスクワで会談 · 「敵追い詰められている」 イラン最高指導者モジタバ師、米念頭か · 「メッカ防衛同盟」高官らイラン ...
+- [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — 「 イラン 情勢」 ニュース 一覧 ... 米軍の イラン 核施設への攻撃【国際法の根拠や影響は？】 2025年6月23日 21:35. イラン 大統領 主要 核施設を攻撃したアメリカに報復を示唆.
+- [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — ... イラン短期猛攻撃を湾岸諸国に通告 · 米国は複数の湾岸アラブ諸国に対し、米中間選挙後に短期間かつ激しい軍事作戦が行われる可能性に備えるよう伝えた。
+- [イラン の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/06fd6249c78927c72400/) — 米中間選挙前イランと交渉再開協議 仲介国カタールがIAEA査察受け入れ説得か . テレビ朝日系（ANN） - -105796秒前. 報告 · 米イラン戦闘終結巡り、仲介国で協議と報道.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Taiwan (Japanese)` `2026-10`
+
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 速報（国際） · 30日 18:25. 台湾 GDP、7~9月14.36%増 AI向け半導体好調で上振れ · 30日 18:17. フィリピン、バンサモロ自治政府が正式発足 首相にマカクア氏選出 · 30日 18:00.
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 山梨で刺され死亡の女性 “日本渡航前に身の危険感じていた” · 山梨の女性死亡事件 台湾 で夫を拘束 高額保険か · 台湾 統一地方選挙に向け 台北などで激しい争い · 台風30号 ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 頼清徳総統、セントルシアのピエール首相と首脳会談 · 外交部の呉志中政務次長、チェコのオンライン ニュース メディアのインタビュー受ける · 頼清徳総統、欧州「 ...
+- [「 台湾 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/taiwan/) — 2026. 09/25: 電車の優先席めぐり乗客が乱闘、動画拡散で議論噴出 東アジア · 習氏、トランプ氏に「 台湾 独立反対」を要請 中国国営メディア; 08/29: 台湾 沖で確認され ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 富邦、元オリ後藤光尊氏が監督続投へ 台湾プロ野球 · 台北でLGBT+パレード 蕭副総統「多様性に富んだ台湾をつくりたい」 · 台北市長選 民進党と国民党の候補が ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 富邦、元オリ後藤光尊氏が監督続投へ 台湾プロ野球 · 台北でLGBT+パレード 蕭副総統「多様性に富んだ台湾をつくりたい」 · 統一地方選/台北市長選 民進党と国民党の ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「台湾 山の上の町、地の塩、世の光」と題する演説 · 外交部×欧州「フォルモサ・クラブ」、AIとドローン分野の ...
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 情勢 · 12時間前. 中国軍、スカボロー礁で戦闘即応パトロール フィリピンに対抗 · 2026年10月28日. 中国船50隻超が広域展開、日台比への脅威「明白」と 台湾 高官 · 2026年 ...
+

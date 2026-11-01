@@ -760,3 +760,29 @@ Tags: `United Kingdom` `2026-10`
 - [The Sun (United Kingdom)](https://en.wikipedia.org/wiki/The_Sun_(United_Kingdom)) — The Sun is a British tabloid newspaper, published by the News Group Newspapers division of News UK, itself a wholly owned subsidiary of News Corp. It was founded as a broadsheet in 1964 as a successor to the Daily Herald, and became a tabloid in 1969 after it was purchased by its current owner.
 - [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
 
+### United Kingdom(検索日時 / searched at: 2026-10-31)
+
+Tags: `United Kingdom` `2026-10`
+
+- [Royal standard of the United Kingdom](https://en.wikipedia.org/wiki/Royal_standard_of_the_United_Kingdom) — The royal standard of the United Kingdom is the banner of arms of the monarch of the United Kingdom, currently Charles III. It consists of the shield of the monarch's coat of arms in flag form, and is made up of four quarters containing the arms of the former kingdoms of England, Ireland, and Scotland. There are two versions of the banner, one used in Scotland in which the Scottish quarters take precedence, and one used elsewhere in which the English quarters take precedence.
+- [2026 in the United Kingdom](https://en.wikipedia.org/wiki/2026_in_the_United_Kingdom) — Events from the year 2026 in the United Kingdom.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [Headlines!](https://en.wikipedia.org/wiki/Headlines!) — Headlines! is the debut extended play (EP) by British-Irish girl group The Saturdays.
+- [The Canary (website)](https://en.wikipedia.org/wiki/The_Canary_(website)) — The Canary was a left-wing news website based in the United Kingdom. While focusing on UK political affairs, it also covered global, science, environment and health news, and included a satirical section.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [The Sun (United Kingdom)](https://en.wikipedia.org/wiki/The_Sun_(United_Kingdom)) — The Sun is a British tabloid newspaper, published by the News Group Newspapers division of News UK, itself a wholly owned subsidiary of News Corp. It was founded as a broadsheet in 1964 as a successor to the Daily Herald, and became a tabloid in 1969 after it was purchased by its current owner.
+- [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
+
+### France (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `France (Japanese)` `2026-10`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス全土で再び大規模な抗議デモ、1300人以上逮捕 参加者と警官らが衝突 · パリ近郊で銃撃、「人種差別的なテロ攻撃」と仏大統領 1人死亡し5人負傷 · シャモンダウイルス ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 10/25: フランス 各地でデモ、40万人参加 イタリアなど他国にも波及; 10/23: 危機の瀬戸際に立つ フランス 、次は米国か; 10/21: フランス 暴動の略奪品をフリマ ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランス国債、格下げ回避も解けぬ警戒 市場は財政再建なお不 信 · フランス長期金利、24年ぶり5%台 予算難航と暴動で国債売り · フランス今や「欧州の病人」 金利 ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · ユーロ圏GDP 7月から9月期 伸び率プラス0.4% 2期ぶり縮小 · 混迷のフランスはどこへ～市民デモと大統領選挙～ · サッカー エムバペ選手が謝罪声明 ...
+- [ニュース ・社会問題 Archives - OVNI| オヴニー・パリの新聞](https://ovninavi.com/category/mieux-connaitre-la-france/actualites/) — 今 フランス で起きていることをわかりやすく解説。 ニュース · フランス の出来事 · 三面記事 · 経済 · 抵抗する人 · 社会ラボ.
+- [今日 の フランス | フランス 情報メディアのET TOI（エトワ）](https://www.parisettoi.fr/news/) — 2026.10.27. シャンパーニュ指定のぶどう畑、見直し申請が取り下げに · 2026.10.27. ルコルニュ首相、学生向け措置を提示：学生側は納得せず · 2026.10.27 ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — French. エアバスCEO、日英伊の戦闘機共同開発への参加に言及 · 仏環境政党トップ、エムバペ選手を擁護「毛沢東を独裁者と呼んだのは完全に正しい」 ...
+

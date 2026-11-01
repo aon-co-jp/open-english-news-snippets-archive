@@ -1152,3 +1152,120 @@ Tags: `Iran` `2026-10`
 - [متولد آوریل (مجموعه تلویزیونی)](https://fa.wikipedia.org/wiki/%D9%85%D8%AA%D9%88%D9%84%D8%AF_%D8%A2%D9%88%D8%B1%DB%8C%D9%84_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D8%AA%D9%84%D9%88%DB%8C%D8%B2%DB%8C%D9%88%D9%86%DB%8C)) — متولد آوریل یک مجموعه تلویزیونی ایرانی به کارگردانی حسین قاسمی جامی، نویسندگی فهیمه سلیمانی و تهیه کنندگی احمد زالی است که از شبکه یک سیما پخش شد.
 - [بازنده (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B2%D9%86%D8%AF%D9%87_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — بازنده یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به کارگردانی و نویسندگی امین حسین‌پور و به تهیه‌کنندگی احسان ظلی‌پور است. این مجموعه اقتباسی از رمان زوج همسایه اثری از شاری لاپنا است.
 
+### Iran(検索日時 / searched at: 2026-10-31)
+
+Tags: `Iran` `2026-10`
+
+- [واکنش‌ها به جنگ دوازده‌روزه](https://fa.wikipedia.org/wiki/%D9%88%D8%A7%DA%A9%D9%86%D8%B4%E2%80%8C%D9%87%D8%A7_%D8%A8%D9%87_%D8%AC%D9%86%DA%AF_%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%E2%80%8C%D8%B1%D9%88%D8%B2%D9%87) — پس از آغاز جنگ دوازده‌روزه، واکنش‌ها به حملات اولیه و ضدحملات ادامه‌دار بین دولت‌ها و نهادهای غیردولتی بین‌الملل متنوع بود. دولت ایران، مردم داخل کشور و ایرانیان خارج از کشور به این رویداد واکنش نشان دادند.
+- [تحریف در صدا و سیمای جمهوری اسلامی ایران](https://fa.wikipedia.org/wiki/%D8%AA%D8%AD%D8%B1%DB%8C%D9%81_%D8%AF%D8%B1_%D8%B5%D8%AF%D8%A7_%D9%88_%D8%B3%DB%8C%D9%85%D8%A7%DB%8C_%D8%AC%D9%85%D9%87%D9%88%D8%B1%DB%8C_%D8%A7%D8%B3%D9%84%D8%A7%D9%85%DB%8C_%D8%A7%DB%8C%D8%B1%D8%A7%D9%86) — تحریف در صدا و سیمای جمهوری اسلامی ایران بیش از چهار دهه سابقه دارد. به عقیدهٔ برخی از تحلیل‌گران، سازمان صدا و سیمای جمهوری اسلامی ایران به صورت سیستماتیک دروغ می‌گوید و اخبار و گزارش‌های جعلی، تحریف شده و نامعتبر را منتشر می‌کند.
+- [یل](https://fa.wikipedia.org/wiki/%DB%8C%D9%84) — یَل مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به نویسندگی و کارگردانی جمشید محمودی و تهیه‌کنندگی نوید محمودی است که برای شبکهٔ اینترنتی فیلم‌نت ساخته شده است. نوید محمدزاده، میلاد کی‌مرام، حسین یاری، سید جواد رضویان، پردیس احمدیه، ندا جبرائیلی، محسن قصابیان و بابک حمیدیان از بازیگران این مجموعه هستند.
+- [امیر جدیدی](https://fa.wikipedia.org/wiki/%D8%A7%D9%85%DB%8C%D8%B1_%D8%AC%D8%AF%DB%8C%D8%AF%DB%8C) — امیر جدیدی (زادهٔ ۳۱ خرداد ۱۳۶۳) بازیگر اهل ایران است. او در سال ۱۳۹۶ برای نقش‌آفرینی در فیلم‌های عرق سرد و تنگه ابوقریب، برندهٔ سیمرغ بلورین بهترین بازیگر مرد شد.
+- [کلینیک رویا (مجموعه تلویزیونی)](https://fa.wikipedia.org/wiki/%DA%A9%D9%84%DB%8C%D9%86%DB%8C%DA%A9_%D8%B1%D9%88%DB%8C%D8%A7_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D8%AA%D9%84%D9%88%DB%8C%D8%B2%DB%8C%D9%88%D9%86%DB%8C)) — کلینیک رویا یک مجموعه تلویزیونی ایرانی به کارگردانی سجاد مهرگان و تهیه‌کنندگی علی‌اکبر تحویلیان است که از ۳ اردیبهشت ۱۴۰۵ از شبکه سه پخش شد.
+- [کارآگاه علوی ۳](https://fa.wikipedia.org/wiki/%DA%A9%D8%A7%D8%B1%D8%A2%DA%AF%D8%A7%D9%87_%D8%B9%D9%84%D9%88%DB%8C_%DB%B3) — کاراگاه علوی ۳ یک مجموعه تلویزیونی ایرانی به کارگردانی سیدجمال سیدحاتمی، نویسندگی حسن هدایت و تهیه‌کنندگی پرویز امیری محصول سال‌های ۱۴۰۴–۱۴۰۵ است، این مجموعه دنباله‌ای بر مجموعه‌های کارآگاه (۱۳۷۵) و کارگاه علوی ۲ (۱۳۸۷) است.
+- [متولد آوریل (مجموعه تلویزیونی)](https://fa.wikipedia.org/wiki/%D9%85%D8%AA%D9%88%D9%84%D8%AF_%D8%A2%D9%88%D8%B1%DB%8C%D9%84_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D8%AA%D9%84%D9%88%DB%8C%D8%B2%DB%8C%D9%88%D9%86%DB%8C)) — متولد آوریل یک مجموعه تلویزیونی ایرانی به کارگردانی حسین قاسمی جامی، نویسندگی فهیمه سلیمانی و تهیه کنندگی احمد زالی است که از شبکه یک سیما پخش شد.
+- [بازنده (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B2%D9%86%D8%AF%D9%87_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — بازنده یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به کارگردانی و نویسندگی امین حسین‌پور و به تهیه‌کنندگی احسان ظلی‌پور است. این مجموعه اقتباسی از رمان زوج همسایه اثری از شاری لاپنا است.
+
+### Switzerland (English)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Switzerland (English)` `2026-10`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Die Weltwoche](https://en.wikipedia.org/wiki/Die_Weltwoche) — Die Weltwoche (German pronunciation: [diː ˈvɛltˌvɔxə], "The World Week", formerly known as the "Schumacher Press", after it's founder) is a Swiss weekly magazine based in Zollikon, Canton of Zurich. Since 2006, it has been privately owned by Roger Köppel, a publicist, journalist and politician from the right-wing populist and conservative Swiss People's Party.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
+- [Corfu International Airport](https://en.wikipedia.org/wiki/Corfu_International_Airport) — Corfu International Airport "Ioannis Kapodistrias" (Greek: Κρατικός Αερολιμένας Κέρκυρας "Ιωάννης Καποδίστριας") or Ioannis Kapodistrias (Capodistrias) International Airport (IATA: CFU, ICAO: LGKR) is a government-owned airport on the Greek island of Corfu at Kerkyra, serving both scheduled and charter flights from European cities. Air traffic peaks during the summer season, between April and October.
+
+### South Korea (English)(検索日時 / searched at: 2026-10-31)
+
+Tags: `South Korea (English)` `2026-10`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Babymonster](https://en.wikipedia.org/wiki/Babymonster) — Babymonster (Korean: 베이비몬스터; stylized in all caps), also referred to as Baemon ( BAY-mon; 베몬), is a South Korean girl group formed by YG Entertainment. The group is composed of seven members: Ruka, Pharita, Asa, Ahyeon, Rami, Rora, and Chiquita.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Brazil (Japanese)` `2026-10`
+
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 最新ニュース · フラビオ氏のブラジル脱出、トランプ氏協力 おとり、深夜に国境越え · （社説）ブラジル大統領選 辛勝を融和への一歩に · ブラジル代表にビニシウスら ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル・ルラ大統領再選、財政懸念で株・通貨が急落 取引一時中断 · 「親トランプ」拒んだブラジル ルラ氏4期目、多国間主義を重視 · ルラ大統領、貧困家庭から「ブラジル ...
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — 【29日の市況・速報】Ibovespa前日比1.06％安の169,186.42ポイント／米国、フラヴィオ氏の「選出大統領」表現に修正要求 外交摩擦を警戒／アマパー沖で石油を追加発見.
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「ブラジル」ニュース一覧 · 米到着のボルソナロ氏“政治的迫害逃れるため国離れた”と主張 · フラビオ・ボルソナロ氏 ブラジル出国し米到着か 複数メディア · ブラジル大統領選 ...
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — 《 ブラジル 》日系俳句の魅力を日本へ発信 オンライン対話に石井かず枝さん 大高翔さん聞き役に第4回開催 · 回転寿司の一皿、その源流で＝チリ産サーモン、英紙が現場告発＝ ...
+- [ブラジル - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/cs_america/br/) — 中東情勢悪化を受け、 ブラジル 政府は対話による解決の重要性を強調、経済への影響に懸念も(米国、 ブラジル 、イスラエル、イラン、南アフリカ共和国). 2026年3月12日.
+- [ブラジル - BBC ニュース](https://www.bbc.com/japanese/topics/c5qvpx7pjwzt) — ブラジル大統領選で敗れたボルソナロ氏、国外逃亡を否定 米マイアミ到着後. 2026年 ... BBCニュースを他言語で読む; Do not share or sell my info. © 2026 BBC. BBC ...
+- [「 ブラジル 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/) — 2026. 10/29: ブラジル 大統領選で敗れ出国、なぜ米国はボロソナーロ派の政治拠点になったのか？ 10/28: ブラジル 大統領選敗北のボルソナーロ氏、逮捕を恐れ米国に入国 ...
+
+### China (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `China (Japanese)` `2026-10`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国 や台湾の最新 ニュース ・特集をまとめました。 中国 の習近平国家主席の動向や 中国 経済、台湾を巡る情勢、TSMCや鴻海の ニュース などをお伝えします。
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 台北でLGBT+パレード 蕭副総統「多様性に富んだ台湾をつくりたい」. 中央社フォーカス台湾; 10月31日 19時44分. テレビ討論会に出席した台北市長選の 主要 候補、国民党 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 ・習近平政権 関連 ニュース · エヌビディアに 中国 女性スパイか CEOと親密な関係―米報道(10月30日 07:03) · 「反腐敗闘争」継続表明 幹部33人を党籍剥奪処分、来年 ...
+- [中華人民共和国の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD.html) — 最新 ニュース . （惜別）董建華さん 香港の初代行政長官 · 香港政府を去る際 ... 岩屋氏、 中国 2高官と会談 外相・副首相 関係改善見通せず · 北京で28日、 中国 の ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 中国共産党第20期中央委員会第5回全体会議が北京で開催 · 中国「ブルーベイ行動」が国連「世界回復フラッグシッププロジェクト」に認定 · 日米共同統合演習、社会の領域に ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 営業停止中の 中国 浙江省杭州の接待用カラオケ店＝9月. 中国 「不正の温床」にメス 接待用カラオケ摘発続々. 09時38分. 共同通信.
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「中国」ニュース一覧 · 中国 製造業の景況感指数PMI 「50」下回る 内需の弱さを反映 · 日米韓外相“3か国の結束は地域の要” 協力のすそ野拡大へ · G20外相会合が開幕 茂木外相 ...
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Tajikistan (Japanese)` `2026-10`
+
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新ニュース · ロシアが「人身取引」で29カ国の外国人を動員 国連独立委が認定 · タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 偽りの輸出先、国産 ...
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 · Video.
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 新着一覧 · 中国版「秩序」広がり欠く 米に対抗「世界の擁護者」演出… · 国産牛肉 不正輸出の疑い · プーチン氏、新START「延長」提案…制裁強化に傾くトランプ氏を対話に ...
+- [ニュース 及びイベント | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/information/news-and-events-ja?page=8) — タジキスタン 、アフガニスタン、中央アジアのためのEUプログラムとプロジェクトの採択を歓迎した。 安全保障問題に関する議論では、中央アジアの安全を確保し、 ...
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 中国首相、タジキスタンとの安全保障協力深化呼びかけ · 「屈辱的記録を次々更新」中国代表、 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+
+### Thailand (English)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Thailand (English)` `2026-10`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable network. Owned by CNN Worldwide, the network primarily carries true-crime programming, recently drifting away from limited live news programming.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Ukraine (Japanese)` `2026-10`
+
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — ウクライナ情勢 · 42分前. 茂木外相、邦人記者の即時解放要求 ラブロフ外相と米で会談 · 3時間前. 米、ウクライナに「パトリオット」500発の売却承認 推定21億ドル · 4時間前.
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — NATO加盟全32カ国代表が ウクライナ 訪問 連携強化をアピール. 6/4(木) 17:45 JST. NATO域内にロシアのドローン墜落で初の負傷者、欧州で相次ぐ非難. 5/31(日) 8:00 JST.
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — 2026. 10/31: 米国務省、 ウクライナ へのパトリオット迎撃ミサイルの売却承認 今月に入って「枯渇」; 10/30: ロシア、 ウクライナ 中部ドニプロの鉄道駅を攻撃 14人死亡 ...
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — 最新ニュース · ウクライナ南部オレシュキから数百人避難、異例の局地的停戦 · アメリカ、ウクライナへパトリオットミサイル500発の売却承認 · ウクライナ中部の鉄道駅に ...
+- [新着 ニュース - ウクルインフォルム通信](https://www.ukrinform.jp/block-lastnews) — ウクライナ への全面侵略を続けるロシア軍は29日、同国北部チェルニヒウの中心部を自爆型無人機で攻撃した。これにより15歳の女児2名が死亡し、他23名が負傷した。
+- [「 ウクライナ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10124) — 局地停戦のウクライナ南部、ロシア・ウクライナの人道支援代表団到着 · ウクライナ、ロシア製油所への攻撃停止と米紙報道 · 局地停戦のウクライナ南部、物資搬入ルートの地雷 ...
+- [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ウクライナ、孤立都市から住民避難 ロシアとの局地停戦「違反なし」(10月31日 17:17 ) · ロシア・ウクライナ、停戦都市に到着 住民避難、支援物資搬入始まる(10月30日 20:11).
+- [ウクライナ 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000296) — ウクライナ外相が来日へ 復興支援や無人機など意見交わす考え · チョルノービリ原発周辺自治体 復興で福島県双葉町と協定締結 · ウクライナ 世界遺産の“危機”.
+
+### Germany (Japanese)(検索日時 / searched at: 2026-10-31)
+
+Tags: `Germany (Japanese)` `2026-10`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — 2022/11/28 - （ベルリン 10月27日 時事） ドイツ のメルツ首相は28日、昨年5月の就任後初めて日本を訪れ、高市早苗首相と会談する。ロシアの侵攻を受けるウクライナ情勢 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ノルド・ストリーム爆破、ウクライナ人被告の裁判がドイツで始まる · ロボットが少女にわいせつ行為……少年らが操作した疑い、ロボットは押収 ドイツ · ドイツ元情報機関 ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 10/30: 動物園で8歳女児がオオカミに襲われ重傷 ドイツ ; 10/27: クルーズ船がコンテナ船2隻と衝突、ぶつかる瞬間が映像に ドイツ ; 10/15: ロボットが16歳少女に ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — ドイツ メルツ首相 EV優遇措置巡る懸念 EU首脳会談で検討へ · 習主席「EUは中国と経済グローバル化推進を」貿易摩擦を念頭に · ユーロ圏GDP 7月から9月期 伸び率プラス0.4% 2 ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ヒトラーの山荘で火災、不審者を拘束 ドイツ警察 · ノルドストリーム爆破で初公判、弁護側「ロシアが圧力の手段に利用」 · 独極右AfDと極左政党がウクライナ支援停止で協力、 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 習近平氏「中国・EU貿易は相互補完」 ドイツ大統領に歩み寄り訴え · ユーロ圏GDP年率1.7%増 7〜9月、フランスはマイナス成長 · ドイツのメルツ首相、EV優遇策をEUで協議へ ...
+

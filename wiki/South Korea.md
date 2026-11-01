@@ -664,3 +664,16 @@ Tags: `Iran (English)` `2026-10`
 - [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
 - [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
 
+### South Korea(検索日時 / searched at: 2026-10-31)
+
+Tags: `South Korea` `2026-10`
+
+- [주요뉴스 | 연합뉴스](https://www.yna.co.kr/theme/headlines-history) — 트렌드 뉴스 핫 뉴스 주요 뉴스 긴급 뉴스 많이 본 뉴스 오 래 머문 뉴스 공감 많은 뉴스 2026.10.31 (토) Today 주요 뉴스 가 현재 없습니다. 1 2 3 4 5 6 7 8 9 10 11 12 13 14 15 16 17 18 19 20 21 22 23 24 25 26 27 28 29 30 31 최신 뉴스 정치 정치전체 청와대/총리실 국회/정당 외교 국방 북한 북한전체 학술/연구 북한 알아보기 인물 비주얼 NK NOW 경제 경제전체 경제/정책 금융 부동산...
+- [[ 한국뉴스 TV] 26년 10월 30일 (금) 오늘 의 주요 뉴스](https://www.24news.kr/news/articleView.html?idxno=311899) — 2일 전
+- [오늘 의 뉴스 요약 - 한국 주요 뉴스 3줄 정리 | Easy Brief](https://ez-brief.com/) — 오늘 한국 주요 뉴스 를 3줄 요약과 쉬운 설명으로 1분 만에 파악하세요. 정치, 경제, IT/과학, 국제 뉴스 매일 업데이트.
+- [IT/테크 주요 뉴스 오늘 의 핵심 흐름과 실무 시사점 분석](https://bstar36.tistory.com/610) — 주요 뉴스 오늘 의 핵심 흐름 아래 내용은 최근 24시간 내 수집된 원문 보도를 바탕으로 정리한 핵심 이슈입니다. 확정되지 않은 사실은 추가하지 않고, 원문에서 확인되는 범위 안에서 의미를 설명합니다. 1. 브랜드 인게이지먼트 네트워크, 카타네오 인수 완료 [지디넷코리아] 이번 인수는 반복 수익을 창출하는 수익성...
+- [가장빠른 주식 뉴스 국내주식 뉴스 오늘](https://overseasstockevents.com/%ea%b0%80%ec%9e%a5%eb%b9%a0%eb%a5%b8-%ec%a3%bc%ec%8b%9d%eb%89%b4%ec%8a%a4-%ea%b5%ad%eb%82%b4%ec%a3%bc%ec%8b%9d-%eb%89%b4%ec%8a%a4-%ec%98%a4%eb%8a%98/) — 가장빠른 주식 뉴스 ’는 신속하고 정확한 정보를 제공하여 투자자들이 시장에서 빠르게 대응할 수 있도록 돕습니다. ‘국내주식 뉴스 ’는 한국 주식 시장의 주요 뉴스 와 동향을 다루며, ‘ 오늘 주식 뉴스 ’는 하루 동안의 중요한 사건들을 정리하여 제공합니다. 이 정보를 통해 투자자들은 더 나은 결정을 내릴 수...
+- [9월 8일 한국 주요 뉴스 TOP 10](https://nwforyou.tistory.com/753) — 점은 인정했지만 부정한 청탁은 없었다고 밝혔습니다. 청와대는 제기된 의혹은 국회 인사청문회에서 검증해야 한다는 입장입니다. 출처: MBC·연합 뉴스 오늘 한국 주요 뉴스 는 초대 중수청장 후보자 지명과 한·프랑스 정상회담, 호르무즈 파병 검토가 정치·외교 분야의 핵심입니다. 경제 분야에서는 미국 원전 8기와...
+- [10월 5일- 세계 주요 언론이 본 한국](https://cafe.daum.net/achasansijo/IWBC/31?q=%ED%95%9C%EA%B5%AD%20%EB%89%B4%EC%8A%A4%20%EC%98%A4%EB%8A%98%20%EC%A3%BC%EC%9A%94&re=1) — 로이터와 AP 모두 폐막 소식을 국제 스포츠 주요 기사로 다뤘습니다. Reuters 다만 국내에서는 한국 의 금메달 수가 44년 만에 가장 적었다는 평가가 나오고 있어...일본과의 경기력 격차를 어떻게 줄일지가 과제로 남았습니다. SBS 뉴스 오늘 아침 제가 보는 중요도 1순위는 알래스카 LNG입니다. 미국 대통령이 한국 의...
+- [전체 뉴스 - 한국 경제](https://www.hankyung.com/all-news) — [ 오늘 의 운세] 오늘 뭐 먹지?…11월 1일 띠별 추천 점심메뉴 ; [ 오늘 의 운세] 2026년 11월 1일 오행별 행운의 컬러 ; [ 오늘 의 운세] 11월 1일 띠별 운세
+

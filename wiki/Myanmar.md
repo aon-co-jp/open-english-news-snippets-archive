@@ -752,3 +752,9 @@ Tags: `Egypt (English)` `2026-10`
 - [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
 - [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
 
+### Myanmar(検索日時 / searched at: 2026-10-31)
+
+Tags: `Myanmar` `2026-10`
+
+- (no items / 記事なし)
+
