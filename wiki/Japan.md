@@ -677,3 +677,16 @@ Tags: `Germany (English)` `2026-10`
 - [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
 - [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
 
+### Japan(検索日時 / searched at: 2026-10-31)
+
+Tags: `Japan` `2026-10`
+
+- [日本経済新聞 - ニュース・速報 最新情報](https://www.nikkei.com/) — 速報 ニュース ; 1日 0:16. 局地停戦のウクライナ南部、住民退避完了 「町破壊され悲しい」 ; 22:53 · 日米豪印、首脳会議実現へ擦り合わせ 今年3回目の外相会合 ; 22:34.
+- [NHKニュース 速報・最新情報](https://news.web.nhk/newsweb) — 16 時間前 - 平日の「ニュースウオッチ9」から土曜の「サタデーウオッチ9」へ。長年にわたりNHK報道の中心を担ってきた山下毅解説委員と川口由梨香キャスターがタッグを組みます。週末の夜に1週間のニュースのポイントをわかりやすく解説。世界と日本の今をどう読み解き、明日へとつなげていくのか、みなさんとともに考えます。
+- [Yahoo!ニュース - Yahoo! JAPAN](https://news.yahoo.co.jp/) — HBCニュース北海道10/31(土)11:25 · 0:48 · 2 · 桜島が爆発…噴煙3000メートル 大きな噴石8合目付近まで飛ぶ 鹿児島 · 日テレNEWS NNN10/31(土)12:09 · 1:00 · 3 · 阿蘇市でバイク2台と乗用車1台が関係する事故 ツーリング仲間の2人死傷 ·
+- [毎日新聞デジタル | 毎日新聞のニュースサイト](https://mainichi.jp/) — これまでの 主要ニュース . 福岡県警本部. 工藤会トップ交代か、6代目会長にナンバー2 前会長の勾留続き. 10/31 20:05 · 【トヨタ自動車－SUBARU】六回表トヨタ自動車2死一塁 ...
+- [新着ニュース一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-latest-nationwide) — 新着ニュース一覧 · クラブツーリズム 不正アクセスで約432万件の個人情報漏えいか · フェンシング全日本選手権 男子サーブル 津森志道が初優勝 · 学生横綱 日体大の ...
+- [Google ニュース](https://news.google.com/home?hl=ja&gl=JP&ceid=JP%3Aja) — 16 時間前 - 韓国の車についてる「ナゾのスポンジ」の正体……日本じゃちょっと考えられない？カーライフ文化比較「まだまだ知らないことも多いな」（乗りものニュース） | 自動車情報・ニュース
+- [時事ドットコム：時事通信社が運営するニュースサイト](https://www.jiji.com/) — ニュースＱ＆Ａ · 解説委員室から · 父が首相、２人の接点◆福田康夫元首相と佐藤信二元通産相 2026年10月27日 · 深層探訪 · 中南米左派退潮にくさび ルラ氏「主権を懸けた選挙」―対米関係修復が課題・ブラジル 2026年10月26日 ·
+- [速報・新着ニュース一覧：朝日新聞](https://www.asahi.com/news/) — 16 時間前 - ニュース > 日付別一覧 · 速報・新着ニュース一覧 · 2026年7月 · 2026年8月 · 2026年9月 · 2026年10月 · 1日 · 2日 · 3日 · 4日 · 5日 · 6日 · 7日 · 8日 · 9日 · 10日 · 11日 · 12日 · 13日 · 14日 · 15日 · 16日 ·
+
