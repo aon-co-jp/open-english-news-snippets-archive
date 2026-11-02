@@ -703,3 +703,16 @@ Tags: `United States` `2026-10`
 - [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
 - [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
 
+### United States(検索日時 / searched at: 2026-11-01)
+
+Tags: `United States` `2026-11`
+
+- [US News - The latest headlines from the US | Sky News](https://news.sky.com/us) — 3 days ago - It's a total solar eclipse today - here is where it will be visible · Grid operator issues plea for more power - as COBRA meeting on heatwave called · A wave of soon-to-be retirees are 'staring down the barrel' of homelessness - here's why | Money · Rod Stewart cancels gigs after heart surgery · Stop PC Harper's killers being released, 50 policing chiefs tell PM · Wednesday's newspaper front pages ·
+- [U.S. News: Latest news, breaking news, today's news stories updated daily from CBS News](https://www.cbsnews.com/us/) — 19 hours ago - A federal judge ordered the federal government to stop demanding that state and local election officials separate out ballots and threatening criminal prosecution for noncompliance .
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [U.S. News: Top U.S. News Today | AP News](https://apnews.com/us-news) — 3 hours ago - Your guide to the biggest stories in politics, policy and U.S. elections. See All Newsletters ... No. 2 Ohio State set to fall in AP Top 25 after losing at USC, bottom of rankings due for a shakeup
+- [USA TODAY - Breaking News and Latest News Today](https://www.usatoday.com/) — Need a break? USA TODAY's PLAY has what you need. Want to solve the crossword faster? Read your horoscope for November 1, 2026.LeBron James is still in the NBA.
+- [Fox News - Breaking News Updates | Latest News Headlines | Photos & News Videos](https://www.foxnews.com/) — Fox News · Terms of Use · New Privacy Policy · Your Privacy Choices · Closed Caption Policy · Help · Contact Us · Accessibility Statement · News Sitemap · Video Sitemap · QUESTIONS SWIRL · 9 min read · Omar lawyers up in immigration fraud probe with longtime anti-Trump counsel · Published: 2 hours ago
+- [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
+- [The Washington Post - Breaking news and latest headlines, U.S. news, world news, and video](https://www.washingtonpost.com/) — Both parties expect most African Americans to support Democrat Abdul El-Sayed, but persuading enough to stay home or switch parties could tip the state toward Republicans.
+

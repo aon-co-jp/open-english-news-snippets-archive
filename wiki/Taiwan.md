@@ -750,3 +750,29 @@ Tags: `Japan (English)` `2026-10`
 - [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
 - [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
 
+### Taiwan(検索日時 / searched at: 2026-11-01)
+
+Tags: `Taiwan` `2026-11`
+
+- [今日 台灣頭條新聞 - 豆瓣](http://www.baidu.com/link?url=D62gp7V9btSDKkO1sUzrbVEdX0qBbT-xEbucW6yvUqYnjFlRrgwbS4FKdjwpfWtfTV5WGV5NpFD7D0KJmbhPs_) — 
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=tsQh2K4jVOh_eh5bnRQtwhqTfzyRt9yW-KnSheaqqX_) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際...](http://www.baidu.com/link?url=cI1CC-5UCxq7fECOZYRV0c7iL3WQ3FtvAdzP6S1ZjyAEcF0zJr5oDMd8oyQdkeDr) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=tsQh2K4jVOh_eh5bnRQtwiyhBHHy1A89NxZK1xWEPsW) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-闽南网](http://www.baidu.com/link?url=tFVSmk40vJ4VYorHDUUUYN8N_N14xcjGBeaHOfI7T2z1SNkz0XIK_F-osx_8W1aL) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=2vQGCufjNKnQXqVJM__5NmZcHpn2KRD4knoyTyoXFM7rU7GO5GEhEOc6mjeFFOAMf0pfCrlOImOI_o7FKXKlDq) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=HNeBZ93CuD9W728iqIxvRc794V2md6Bwuw89U-D4W7AsYQLXME_Qvo2NcD2ozGGH) — 
+- [台湾新闻 网_台湾时政新闻 - - 海外网 第1页](http://www.baidu.com/link?url=PVNfNSqO5aux1zn3Xc4TyhhTpCr1khg0cDsFfVw88EL_xoci5yyIo8KCoBsOGQAv4NYUqHkAqwl18IuYu1iFnK) — 
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-01)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア ・ミラノでも略奪・破壊 暴徒の若者ら警察と衝突 · マクロン仏大統領、暴動めぐり「代償を」 物価高・教育デモには理解 · 「欧州の病人」を待ち構える財政規律の ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「 イタリア 」 ニュース 一覧 · ユーロ圏GDP 7月から9月期 伸び率プラス0.4% 2期ぶり縮小 · イタリア 産生ハム輸入は「リスク低い」農水省が輸入再開協議へ · フランス デモに乗じ ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 11/01: ロシアの富豪の豪華ヨット、巨額の維持費を負担するのは イタリア の納税者; 10/29: 氷河の融解で次々に現れた第1次大戦の不発弾、軍が数百発を撤去 伊北部 ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — イタリア・ミラノでも激しい衝突、略奪も 200人以上拘束 . Italy. ローマ教皇レオ14世、肺腺がん確認 手術成功 · 動物愛護団体、ミラノファッションウイークで毛皮使用 ...
+- [イタリア 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/6a23dcecdbb44001d0f00f92fade3287eef9989efa2f4b2782f701dceb20e638) — イタリア で歴史的な逆転現象！ サッカー大国でテニスの競技登録者数が初めて上回る……代表チームの不振とシナーらの活躍が対照的に · ヤニック・シナー · ATPファイナルズ ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · ローマ教皇、肺腺がんと診断 右肺下葉の切除手術は成功と教皇庁 · トコジラミが機内で発生、運航をキャンセル 豪カンタス航空 · イタリア 政府、学校でブルカと ...
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【新型戦闘機開発へ独が参加 プロジェクト全体の足枷となるか？ · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤 ...
+

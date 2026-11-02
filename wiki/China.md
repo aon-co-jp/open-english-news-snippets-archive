@@ -649,3 +649,29 @@ Tags: `China` `2026-10`
 - [中国新闻 网 - 河南新闻](http://www.baidu.com/link?url=1EMwgYoH24UoZJQvbbd4oiyq7qkPSM_ele0re7UcDpEPWo8J3wcJ4RH2Kd39VuMi) — 
 - [中国新闻 _央视网(cctv.com)](http://www.baidu.com/link?url=b4UMKqAO3QfegPOZ-ld_MYJ8by3VD9lm9Fa87z4l6a4Q7zRZa-zN1DsoGwT6UGMX) — 
 
+### China(検索日時 / searched at: 2026-11-01)
+
+Tags: `China` `2026-11`
+
+- [今日头条](http://www.baidu.com/link?url=I77r6-ZGYR2n-ltBBESg4n6fhjaYrBt6QMlfoC81tbtetjDZrReNzj9OsOo4kQZE) — 
+- [首页 头条 --人民网](http://www.baidu.com/link?url=I77r6-ZGYR2n-ltBBESg4jfrSBzrIEoHsB5pjxcYfU2I2oWP1hwiFM0vKTmSNjGjo45Z7LK2UwK2-ZMLQ8b--olbiLJpzfKB4KO3abbXnAe) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=L7awUjxbApjFFHRPCI457-d-aAoilavfFKxO0RVrMqJ7zmCQudXBot85bGvDgrXcFkjeq29OSrhw2Pn1SwyMWyT7deDU-ToWAwXdw5mLnrcbTpe95Rq_0CIPooLTcdooDA4LXZ5FCqSdA53ixWyVQa) — 
+- [今日中国 _ 新闻 频道_央视网(cctv.com)](http://www.baidu.com/link?url=bWE_yJmXNdx082Fwk0ApDv0IseGjoz_Ye3Ms0hGuYPGO-gfubYKPaozdAtCvt9TmFLit058XTSTwqFsahd9Z9zY2Ef5fgiv4Fb-B2oPJwKC) — 
+- [头条推荐- 头条新闻 -hao123新闻导航 _hao123上网导航](http://www.baidu.com/link?url=bwM_5A-r2JRLx5ON5lVXUIhOvZbJiK_-Da1pGVE1lc5J-2_Qk6mjjckcIY2PftfEHuyEWs2YqqBCEJHa3uLNsWUH4IKtnzCi30l9xWCvD_n86krq621a7MD1PHSAkSAU) — 
+- [时事 新闻 _最新时事要闻_澎湃新闻](http://www.baidu.com/link?url=L7awUjxbApjFFHRPCI457vTIXK2kNEdKlPsUQMXhtAFSE8BhzxHwLh7KSq6t4CjMFdOLftqRmRHG69IQoVjMnoRZEVyrbXHlTfksnG5EBki) — 
+- [中国新闻 网 - 河南新闻](http://www.baidu.com/link?url=L7awUjxbApjFFHRPCI457u-qPXLM9DVv4rmRL_4kVWoEbnq-bLd4eEiYrbvXxKoM) — 
+- [中国新闻 _央视网(cctv.com)](http://www.baidu.com/link?url=qZDz1hi8o2azlWP6I06v0txG17XzLNwzaW-qbM1jADsd1B5efgEFksf72bACE5gA) — 
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-01)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Disinformation in the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Disinformation_in_the_Russo-Ukrainian_war) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Ukraine bioweapons conspiracy theory](https://en.wikipedia.org/wiki/Ukraine_bioweapons_conspiracy_theory) — In March 2022, during the Russian invasion of Ukraine, Russian officials falsely claimed that public health facilities in Ukraine were "secret U.S.-funded biolabs" purportedly developing biological weapons, which was debunked by multiple media outlets, scientific groups, and international bodies. The claim was amplified by China's Ministry of Foreign Affairs and Chinese state media, and was also promoted by followers of the QAnon conspiracy theory and subsequently supported by other far-right groups in the United States.
+- [2025 Trump–Zelenskyy Oval Office meeting](https://en.wikipedia.org/wiki/2025_Trump%E2%80%93Zelenskyy_Oval_Office_meeting) — On February 28, 2025, U.S. president Donald Trump and U.S. vice president JD Vance held a highly contentious bilateral meeting with Ukrainian president Volodymyr Zelenskyy inside the Oval Office at the White House in Washington, D.C. Televised live and arranged with the intention to discuss continued U.S. support for Ukraine in repelling the ongoing Russo-Ukrainian war, it was expected to conclude with the signing of the Ukraine–United States Mineral Resources Agreement; however, the meeting ended abruptly and without a clear resolution. During its last ten minutes, Trump and Vance repeatedly criticized Zelenskyy, at times drowning out his voice.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+
