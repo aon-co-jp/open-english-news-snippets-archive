@@ -716,3 +716,16 @@ Tags: `United States` `2026-11`
 - [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
 - [The Washington Post - Breaking news and latest headlines, U.S. news, world news, and video](https://www.washingtonpost.com/) — Both parties expect most African Americans to support Democrat Abdul El-Sayed, but persuading enough to stay home or switch parties could tip the state toward Republicans.
 
+### United States(検索日時 / searched at: 2026-11-03)
+
+Tags: `United States` `2026-11`
+
+- [USA TODAY - Breaking News and Latest News Today](https://www.usatoday.com/) — USA TODAY delivers current national and local news, sports, entertainment, finance, technology, and more through award-winning journalism, photos, and videos.
+- [US news from the Guardian | The Guardian](https://www.theguardian.com/us-news) — 1 hour ago - Latest US news, breaking news and current affairs coverage from theguardian.com
+- [U.S. News: Latest Breaking Stories and Video on National Issues | NBC News](https://www.nbcnews.com/us-news) — 13 hours ago - Get the latest news headlines and top stories from NBCNews.com. Find videos and news articles on the latest stories in the US.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [The Washington Post - Breaking news and latest headlines, U.S. news, world news, and video](https://www.washingtonpost.com/) — Start each day with The Post’s flagship political newsletter, where Dan Merica explains why what happens in the nation’s capital matters to you.
+- [U.S. News: Latest news, breaking news, today's news stories updated daily from CBS News](https://www.cbsnews.com/us/) — 3 days ago - Voters in Alaska are going to the polls to cast their ballots in key races, and the state's unique ranked choice voting system is back in the spotlight.
+- [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+
