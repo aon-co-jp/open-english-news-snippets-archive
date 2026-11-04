@@ -572,3 +572,68 @@ Tags: `France` `2026-11`
 - [Sophia Chikirou](https://fr.wikipedia.org/wiki/Sophia_Chikirou) — Sophia Chikirou, née le 3 juin 1979 à Bonneville (Haute-Savoie), est une femme politique française et communicante. Militante socialiste de 1997 à 2006, Sophia Chikirou rejoint en 2007 La Gauche moderne, fondée par Jean-Marie Bockel qui rejoignait Nicolas Sarkozy, mais quitte le mouvement en 2008 faute d'avoir pu être tête de la liste soutenue par l'UMP lors des élections municipales de 2008 dans le 20e arrondissement de Paris.
 - [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
 
+### France(検索日時 / searched at: 2026-11-03)
+
+Tags: `France` `2026-11`
+
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [Génération.s](https://fr.wikipedia.org/wiki/G%C3%A9n%C3%A9ration.s) — Génération·s ou Génération.s (abrégé et stylisé en G·s) est un parti politique français classé à gauche, fondé le 1er juillet 2017 par Benoît Hamon, issu du Parti socialiste (PS). Il s'inscrit dans les combats de la gauche et de l'écologie politique.
+- [France Football](https://fr.wikipedia.org/wiki/France_Football) — France Football est un magazine mensuel de football français créé en 1946.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+- [Fabrice Arfi](https://fr.wikipedia.org/wiki/Fabrice_Arfi) — Fabrice Arfi, né le 4 septembre 1981 à Lyon, est un journaliste français. Il est connu pour ses enquêtes à l'origine de nombreuses révélations sur l'affaire Woerth-Bettencourt, l'affaire Karachi, l'affaire Sarkozy-Kadhafi, l'affaire des quotas de carbone et l'affaire Cahuzac.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+
+### France (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — 人気記事 · トランプ氏、エヌビディアCEO標的の中国スパイ疑惑を「詳しく調査」 · イラン、ホルムズ海峡「2日以内に再開可能」 米に要求受け入れ迫る · 米がパトリオット供与 ...
+- [フランス の ニュース ・最新記事 - 読売新聞](https://www.yomiuri.co.jp/keyword/99916/) — フランス · 渡米見送ったICC赤根所長、国際秩序守るため「今こそ行動を」… · ベルギーなど欧州各国で冷蔵庫の温度急上昇、カルフールやイケア被害… · 佐賀バルーンフェスタ ...
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · 欧州諸国の軍関係者数千人、ウクライナ停戦後の部隊派遣に向け軍事演習へ 英仏が主導 · 欧州7カ国のスーパー冷蔵・冷凍庫にサイバー攻撃 大量の食品が廃棄に.
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランス、デモ後の衝突で検察が捜査開始 警官隊に火炎瓶3人負 傷 · フランス3週連続デモ、32万人参加 一部衝突で500人超拘束 · フランス国債、仏生保は買い姿勢 高止まり金利 ...
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — フランス. 最新ニュース. 皇居で文化勲章親授式 ノーベル賞の硤合さんら7人に陛下が授与 · 文化勲章の親授式で、天皇陛下から勲章を受ける硤合憲三. 皇居で文化勲章親授式 ...
+- [ET TOI（エトワ）| フランス 情報メディア](https://www.parisettoi.fr/) — France today 今日 の フランス · 政府、リブレAの預入限度額の引き上げを検討：高校建物改修の資金に · 欧州中銀、金利据え置きを決める：ラガルド総裁は退任を予告 · ST ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — ベルギーやスウェーデン スーパーにサイバー攻撃か 食品に被害 · フランス 市民デモと大統領選挙 · ドイツ全土のデモ 暴徒化した集団が店襲撃 当局が会見 · フランスで再び大 ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/01: ハロウィーンに合わせドイツへデモ拡大 フランス でも数十万人が参加 · エムバペとハローキティに思わぬ共通点、相次ぎ中国の怒り買う事態に ...
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア・ミラノでも略奪・破壊 暴徒の若者ら警察と衝突 · マクロン仏大統領、暴動めぐり「代償を」 物価高・教育デモには理解 · 「欧州の病人」を待ち構える財政規律の ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 11/01: ロシアの富豪の豪華ヨット、巨額の維持費を負担するのは イタリア の納税者; 10/29: 氷河の融解で次々に現れた第1次大戦の不発弾、軍が数百発を撤去 伊北部 ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — イタリア・ミラノでも激しい衝突、略奪も 200人以上拘束 . Italy. ローマ教皇レオ14世、肺腺がん確認 手術成功 · 動物愛護団体、ミラノファッションウイークで毛皮使用 ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — ローマ教皇、肺腺がんと診断 右肺下葉の切除手術は成功と教皇庁 · トコジラミが機内で発生、運航をキャンセル 豪カンタス航空 · イタリア政府、学校でブルカとニカブ着用禁止 ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — ユーロ圏GDP 7月から9月期 伸び率プラス0.4% 2期ぶり縮小 · イタリア 産生ハム輸入は「リスク低い」農水省が輸入再開協議へ · フランス デモに乗じた暴動で店舗1500以上被害か ...
+- [Notizie Italia: Ultima Ora - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsitaly&hl=ja) — イタリアの最新ニュース ：速報、今日のヘッドライン、ローカルニュース、そして主要新聞の報道レビューを1つのアプリで。 イタリアのニュースをすべて1つのアプリで ...
+- [イタリア 新聞 (@ciao_journal) · Milan - Instagram](https://www.instagram.com/ciao_journal/) — わくわくする イタリア 新聞『チャオジャーナル』公式アカウント ミラノを中心に配布しております Periodico italo giapponese pubblicato da Geienneffe ...
+
+### Austria (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+- [Santorini International Airport](https://en.wikipedia.org/wiki/Santorini_International_Airport) — Santorini International Airport (Greek: Διεθνής Αερολιμένας Σαντορίνης) (IATA: JTR, ICAO: LGSR) is an airport in Santorini, Greece, located north of the village of Kamari. The airport serves as both a military and a civil airport.
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Disinformation in the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Disinformation_in_the_Russo-Ukrainian_war) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Media portrayal of the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Media_portrayal_of_the_Russo-Ukrainian_war) — Media portrayals of the Russo-Ukrainian war have differed widely between Ukrainian, Western and Russian media. Russian, Ukrainian, and Western media have all, to various degrees, been accused of propagandizing, spreading disinformation, and of waging an information war.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+

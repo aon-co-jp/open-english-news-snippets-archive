@@ -688,3 +688,29 @@ Tags: `Russia (Japanese)` `2026-11`
 - [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · 「独裁者たちは互いに協力し、民主国家を悪用中」ナワリヌイ氏の妻が警告、今や世界人口の76％が権威主義体制下に · わずか38日の間に中国と ロシア に2つの橋が開通 ...
 - [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — 10月31日 · 茂木外相が ロシア 外相と5年ぶり会談 日本人記者の即時解放は見通せず · ロシア 拘束の米国人と面会 トランプ氏、解放働きかけの成果誇示 · ラブロフ氏、ルビオ氏と ...
 
+### Israel(検索日時 / searched at: 2026-11-03)
+
+Tags: `Israel` `2026-11`
+
+- [Gaza war](https://en.wikipedia.org/wiki/Gaza_war) — The Gaza war is an armed conflict in the Gaza Strip and Israel, fought as part of the unresolved Israeli–Palestinian and Gaza–Israel conflicts. The war began on 7 October 2023, when Palestinian militant group Hamas led an attack on Israel, in which 1,195 Israelis and foreign nationals were killed and 251 were taken hostage.
+- [Israeli occupation of the Gaza Strip](https://en.wikipedia.org/wiki/Israeli_occupation_of_the_Gaza_Strip) — In 1956, the Gaza Strip was captured by Israel from Egypt for a period of four months during the Suez Crisis. Israel returned it back to Egypt in March 1957, due to heavy international pressure.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Israeli government response to the October 7 attacks](https://en.wikipedia.org/wiki/Israeli_government_response_to_the_October_7_attacks) — The Israeli government's response to the October 7 attacks has multiple aspects, including a military response leading to the Israeli invasion of the Gaza Strip. In October, the Knesset approved a war cabinet in Israel, adding National Unity ministers and altering the government; Benjamin Netanyahu and Benny Gantz froze non-war legislation, establishing a war cabinet with military authority.
+- [Casualties of the Gaza war](https://en.wikipedia.org/wiki/Casualties_of_the_Gaza_war) — As of 9 October 2026, at least 77,632 people (75,586+ Palestinians and 2,046+ Israelis) have been reported killed in the Gaza war (in all of Israel-Palestine) according to the Gaza Health Ministry (GHM) and Israeli Ministry of Foreign Affairs, including 270 journalists and media workers, 120 academics, and over 560 humanitarian aid workers, a number that includes 393 employees of UNRWA. A study by OHCHR found that 70% of the Palestinians killed in residential buildings or similar housing were women and children. A February 2025 analysis of deaths in Gaza between October 2023 and 30 June 2024 concluded that trauma-related deaths were undercounted by the GHM by 41% during this period.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Israeli casualties of war](https://en.wikipedia.org/wiki/Israeli_casualties_of_war) — Israeli casualties of war, in addition to those of Israel's nine major wars, include soldiers and security forces personnel killed in "miscellaneous engagements and terrorist attacks", which includes security forces members killed during military operations, by fighting crime, natural disasters, diseases, traffic or labor accidents and disabled veterans whose disabilities contributed to their deaths. Between 1948 and 1997, 20,093 Israeli soldiers were killed in combat, 75,000 Israelis were wounded, and nearly 100,000 Israelis were considered disabled army veterans.
+- [Israel Amoo](https://en.wikipedia.org/wiki/Israel_Amoo) — Israel Amoo is an Anglican bishop in Nigeria: he is Bishop of the New Bussa diocese, one of seven in the Anglican Province of Kwara, itself one of 14 within the Church of Nigeria. He is the current Archbishop of the Anglican Province of Kwara.
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — 朝日新聞の、 エジプト に関する ニュース や速報記事一覧です。 エジプト に関する現状や背景を、わかりやすくお伝えします。
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — エジプト大統領、サウジアラビア防衛意向「要請あればあらゆる措置」 · フーシ、イエメン暫定政権の主要施設を攻撃 サウジ攻撃も再警告 · フーシとサウジアラビアの報復連鎖 ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代 エジプト 人、王の死に際し召使いを生け贄に 法医学的調査で判明 ...
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [エジプト の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/39753/) — 新着一覧 · ガザ戦闘3年 中東混乱 戦火さらに…イラン · ガザ侵攻3年 住民の苦境から目をそらすな · 癒えぬ傷 それでも前へ… · TOTOのCO2排出削減の取り組み、海外技術 ...
+- [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425?page=3) — 「エジプト」ニュース一覧 · フランス ルーブル美術館 入館料に「二重価格」導入 · イスラエル 遺体返還でエジプトに代表団 ハマスはトルコと協議 · ハマス 人質1人の遺体返還 ...
+- [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — エジプト · 2026年10月30日. 地域情勢の緊張下で エジプト ・ポンド安が進行、対ドル為替レートが56ポンド台を記録(サウジアラビア、 エジプト ) · 2026年10月29日 · 2026年10月29 ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+

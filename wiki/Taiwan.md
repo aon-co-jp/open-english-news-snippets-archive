@@ -776,3 +776,29 @@ Tags: `Italy (Japanese)` `2026-11`
 - [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · ローマ教皇、肺腺がんと診断 右肺下葉の切除手術は成功と教皇庁 · トコジラミが機内で発生、運航をキャンセル 豪カンタス航空 · イタリア 政府、学校でブルカと ...
 - [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【新型戦闘機開発へ独が参加 プロジェクト全体の足枷となるか？ · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤 ...
 
+### Taiwan(検索日時 / searched at: 2026-11-03)
+
+Tags: `Taiwan` `2026-11`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=qqDGazPjgi9lnyn4GYo2ATjGebC0Ar49kUWaygKneQO) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際資訊](http://www.baidu.com/link?url=ywWNnnlD23Ko-FGZgdDG9buVd_CtkQFsqbtJnNdELsVu_HYXy5rbIhrdIoNex0-H) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-闽南网](http://www.baidu.com/link?url=asTLHjzuzG5YOKal8MtpnZH4GqIDmIGD5S-26MRczpV0zIgtmBDe6Fc3VP6kVkvM) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=qqDGazPjgi9lnyn4GYo2AUI_-xcOJowC4aHIfAm-3ZF2ss-kODgnBqygkM2wyzmB) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=qU4R9mKuJ5h1EYIOZsddCRiWa2JOVRTm39e3tnKl6cH6jrVW_oBeiDat9p4_DqxZg-f83cx7S9UxQett-narpa) — 
+- [首页_中国 台湾 网](http://www.baidu.com/link?url=fkizM06HLlF1M22ANUdZdQEf2spHUd1gAvJl2LZkC0LW8u-8G70pt0IU2UCyxbzG) — 
+- [線上 新聞 報 | 即時新聞權威,掌握商業、金融、科技與財經脈動](http://www.baidu.com/link?url=asTLHjzuzG5YOKal8MtpnVh3rOBRDf7-H2huqkHTuDIABhhsFpLAAUH-fw5zv7wY) — 
+- [海峡两岸首页](http://www.baidu.com/link?url=0UQDNhrckbNfBBz5A6tKNPDOxe6seDiuE8_iU4SvOGK_E2zfaeQ9nOuGQp2GrjunrXg5ueHueIt9gSdRIPRsP0eBQ9TEw0VYbfhJOW_uUOW) — 
+
+### Myanmar (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Myanmar (English)` `2026-11`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+

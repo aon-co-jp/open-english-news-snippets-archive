@@ -663,3 +663,16 @@ Tags: `China (English)` `2026-11`
 - [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
 - [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
 
+### Philippines(検索日時 / searched at: 2026-11-03)
+
+Tags: `Philippines` `2026-11`
+
+- [Pinakamuling Balita sa Pilipinas Ngayon (Tagalog News Headlines)](https://www.randall-travel-award.missouri.edu/latest-news-in-the-philippines-today-tagalog-1326637427.html) — June 24, 2026 - Balita sa buong bansa, kabilang ang mga pangunahing pangyayari sa politika, ekonomiya, at lipunan , ay patuloy na iniiwasan ng mga mamamayan ang pagsusuri sa mga detalye. Sa tuwing may nangyayari sa Pilipinas, mahalaga ang agwat na mabilis at tumpak sa pagsasalin sa wikang Filipino.
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — October 2, 2026 - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — Balita Ngayon · October 28, 2026 - 12:00am · Managsama silang Bise Presidente Sara Duterte ug Philip Lustre Jr. nga nalutsan og arrest warrant sa adlawng Biyernes. Si Sara gikiha og grave threats sa Department of Justice (DOJ).
+- [Balita Pilipinas Ngayon - Wikipedia](https://en.wikipedia.org/wiki/Balita_Pilipinas_Ngayon) — May 27, 2026 - Balita Pilipinas Ngayon (transl. news Philippines now) is a Philippine television news broadcasting show broadcast by GMA News TV. Anchored by Maki Pulido and Mark Salazar, it premiered on July 11, 2011.
+- [Balita Sa Tagalog Ngayong Araw | Balitambayan](https://www.gmanetwork.com/news/balitambayan/) — 2 weeks ago - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Mababasa at mapapanood ang maiinit at mahahalagang ulat pambansa, politikal, krimen at iba pa sa seksyon na 'Balita'. The 'BALITA' section offers national news, political developments and crime stories.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 5 days ago - Nagpahatid ng pagbati si Pangulong Ferdinand “Bongbong” Marcos Jr. para sa Executive Minister ng Iglesia Ni Cristo (INC) na si Eduardo Manalo para sa kaniyang ika-71 kaarawan ngayong Sabado, Oktubre 31.
+- [List of Philippine television shows](https://en.wikipedia.org/wiki/List_of_Philippine_television_shows) — Here is the list of Philippine television shows categorised into its respective genres.
+

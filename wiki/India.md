@@ -896,3 +896,42 @@ Tags: `Egypt (English)` `2026-11`
 - [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
 - [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
 
+### India(検索日時 / searched at: 2026-11-03)
+
+Tags: `India` `2026-11`
+
+- [How to make two column in a batch file?](https://stackoverflow.com/questions/13654471) — (5) = Times Now +5 echo (6) = Saharah AP +6 echo (7) = News X +7 echo (8) = Punjabi +8 echo (9) = Al Jazeera Sport + &hellip; 9 echo (10) = Al Jazeera Sport +10 pause echo (11) = Aaj Tak +11 echo (12) = Headlines Today +12 echo (13) = UTV Bindaas +13 echo &hellip;
+- [Load CSV file in single variant column in snowflake table](https://stackoverflow.com/questions/72475744) — Get today’s news headlines from Business", "col_003": " ", "col_004": "Technology", "col_005": " Sports", "col_006": " Movies", "col_007": " videos", "col_008": " photos", "col_009": " live news coverage &hellip; and exclusive breaking news from India.} &hellip;
+- [India Today (TV channel)](https://en.wikipedia.org/wiki/India_Today_(TV_channel)) — India Today is a 24-hour English language television news channel based in Noida, Uttar Pradesh that carries news, current affairs and business programming in India. The channel is owned by TV Today Network Ltd, which is a part of Living Media.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — ", "name": "The Times of India" }, "author": null, "title": "Hardik Pandya introduces his new 'Bentley' on 25th birthday", "description": &hellip; "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social media platform, Twitter", "url": "https: &hellip;
+- [String regular expression java](https://stackoverflow.com/questions/27226847) — for example string is : Input: It provides @p1 latest news, videos @p2 from India and @p3 the world. Get today's news headlines from @p5 Business, @p5 Replace all the parameters with @pn@. &hellip; The above string will become : Output: It provides @p1@ latest news, videos @p2@ from India and @p3@ the world. Get today's news headlines from @p4@ Business, @p5@ Any quick help appreciated. &hellip;
+- [Aaj Tak](https://en.wikipedia.org/wiki/Aaj_Tak) — Aaj Tak (transl. Until Today) is an Indian Hindi-language right-wing television news channel owned by the TV Today Network, a part of the New Delhi-based media conglomerate India Today Group.
+- [List of terrorist incidents in India](https://en.wikipedia.org/wiki/List_of_terrorist_incidents_in_India) — This is a list of terrorist incidents in India. In July 2016, the Government of India released data saying that since 2005, terrorist attacks in India had killed 707 people and left over 3,200 injured.
+- [Rahul Shivshankar](https://en.wikipedia.org/wiki/Rahul_Shivshankar) — Rahul Shivshankar (Hindi: राहुल शिवशंकर) (born 22 January 1975) is an Indian journalist and an Indian TV anchor who worked as the editor-in-chief at Times Now. Before joining Times Now, Shivshankar worked in print and TV journalism.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Taiwan (Japanese)` `2026-11`
+
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 「 台湾 無人機国際フォーラム＆無人機国際学院開幕式」、台北市内で開催 · 米日韓外相会合、 台湾 海峡の平和と安定維持の重要性を改めて確認 · 頼清徳総統、 ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や台湾の最新ニュース・特集 をまとめました。中国の習近平国家主席の動向や中国経済、台湾を巡る情勢、TSMCや鴻海のニュースなどをお伝えします。
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 山梨で刺され死亡の女性 “日本渡航前に身の危険感じていた” · 山梨の女性死亡事件 台湾 で夫を拘束 高額保険か · 台風30号 台湾 で1人死亡 600人以上けが 日本人学校で門倒れる.
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 台日交流サミット 名古屋市長、台湾との交流推進を約束 出席巡り中国から圧力 · 台湾プロ、年間MVPに味全・ガント＝元日ハム 統一・高塩は2年連続で最優秀中継ぎ.
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — 陸軍、中国に近い離島・金門で演習 海上や空中の目標に実弾射撃／ 台湾 · TSMC、時価総額世界7位に ナスダック執行副社長「国家の成果」／ 台湾 · APEC首脳会議開催の中国、 ...
+- [「 台湾 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/taiwan/) — 2026. 09/25: 電車の優先席めぐり乗客が乱闘、動画拡散で議論噴出 東アジア · 習氏、トランプ氏に「 台湾 独立反対」を要請 中国国営メディア; 08/29: 台湾 沖で確認され ...
+- [台湾ニュース - 台北駐日経済文化代表処 Taipei Economic and ...](https://www.roc-taiwan.org/jp_ja/cat/14.html) — 台湾ニュース · 中華民国115年双十国慶祝賀大会、頼清徳総統が「台湾 山の上の町、地の塩、世の光」と題する演説 · 外交部×欧州「フォルモサ・クラブ」、AIとドローン分野の ...
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 情勢 · 2026年10月26日. 台湾 国防部長「認知戦」と反発、中国の光復節記念活動に · 中国船50隻超が広域展開、日台比への脅威「 · 2026年10月22日. TSMC、工場設備 ...
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [聯合 ニュース](https://jp.yna.co.kr/) — 今日の歴史（11月1日） · 今日の歴史（10月31日） · 韓国 きょうのニュース（10月30日） · 北朝鮮 ハッカー組織のAI悪用が加速 韓国向け偽文書大量作成 · 芸能・スポーツ ...
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — 韓国、ドイツと戦略的関係を強化 AIなど先端技術・防衛産業で協力 · 韓国中部で日本人女性殺害の疑い、30代男拘束 「死ぬの怖く」と供述 · 金正恩氏の訪中、米朝対話見据え ...
+- [「 韓国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「韓国」ニュース一覧 · 旧統一教会 ハン・ハクチャ総裁 指定の病院離れ保釈取り消し · 韓国大統領や高官の個人情報流出 イ大統領パスポート再発行へ · 韓国 イ大統領 ...
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 きょうの ニュース （11月3日）. 11/3(火) 18:00 · HYBEの7～9月期営業益 四半期ベースで過去最高＝BTSツアーがけん引. 11/3(火) 17:34 · 李大統領夫妻ら個人情報流出 ...
+- [最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 · 北朝鮮、米韓防空演習を非難 朝鮮半島の緊張高めると主張 · 北朝鮮、米韓防空演習を非難 朝鮮半島の緊張高めると主張 · 金正恩氏、ドローン技術の「絶対的優位」確保 ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 米国の中間選挙に神経とがらせる日本… · 韓国 、最新鋭駆逐艦に続き… · 米、中間選挙前にイランのゲシュム島を攻撃…「 · 「シャイトランプ」vs「アングリートランプ」…
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [韓国 の ニュース ・速報 - 47NEWS](https://www.47news.jp/world/south-korea) — 韓国 、13日に佐渡金山追悼式典 独自開催、駐日大使ら出席 · 韓国 大統領らの個人情報流出 専用機搭乗の168人分 · 韓国 、佐渡市で11月13日に独自の追悼式典 3年連続の単独開催.
+

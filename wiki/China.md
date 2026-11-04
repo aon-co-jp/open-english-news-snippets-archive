@@ -675,3 +675,68 @@ Tags: `Ukraine (English)` `2026-11`
 - [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
 - [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
 
+### China(検索日時 / searched at: 2026-11-03)
+
+Tags: `China` `2026-11`
+
+- [中国新闻 网- 今日头条](http://www.baidu.com/link?url=S-_KxIYKyR2aZ6XwGa80WzHH_JI8fpPA99tTtqYg56XmOnmlI3Sr2sh5Puwl8aMOfpBwCjUUQUo2FuDg6g_OFq) — 
+- [今日头条](http://www.baidu.com/link?url=rT6AAHWBW204HaU6GovrC7sb5XuBbfWrZu4b7NtTnWt4Yt6qKLy21z0wFx6nY5c2) — 
+- [头条新闻_今日中国](http://www.baidu.com/link?url=Z-oayzjDxi-q1-D9HYNp8PgVV-S1urk3ecjXUkXgSShN-LJhCHh5NGQx4TLS_NakjpILdoRNkOivpnAVpW4Qaq) — 
+- [头条新闻](http://www.baidu.com/link?url=vDM5eVjk9LuDlGrfMSqFfWS4x9N63G_uqOdXcgkZH_yb-dq7e11CSL87d6-Z76X-) — 
+- [首页 头条 --人民网](http://www.baidu.com/link?url=vDM5eVjk9LuDlGrfMSqFfX2akIGNyd43-jSycysOY0P89pfltxFEQckN149o0Me1z4geA3rNCWlakJx5xY7gfz6yRlGpH4p5vY1CNrfyAGO) — 
+- [央视网的头条主页 - 今日头条](http://www.baidu.com/link?url=vUenmJOD2AK9Mh6X1wOJSPmwIB9ZiOkBUlOoEN3FIdLN1MiNBSdMmjvyzlgA2d74uO2M0kI8VkXLKEzsc5_Y9gqYSc10b-C4PT6w2zb3TXmS58yEaLusCKKic_Blagwg-izgqxNRIMrpltI4-NC23a) — 
+- [央广聚焦 新闻头条 _央广网](http://www.baidu.com/link?url=BeswqX4spSisAHl4AkXKyzO2c0saYLaB6vhHX9xZok1JJ6IgoSO52kdSTTFY-M4B) — 
+- [中国新闻 _央视网(cctv.com)](http://www.baidu.com/link?url=31-xu0646w7apyT35kk1Ate8y3zAyr9q1xSXvhchlGtOuTMc_02slKAqS_AdU6ne) — 
+
+### South Korea (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `South Korea (English)` `2026-11`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [Mass media in South Korea](https://en.wikipedia.org/wiki/Mass_media_in_South_Korea) — The South Korean mass media consist of several different types of public communication of news: television, radio, cinema, newspapers, magazines, and Internet-based websites. Modern Korean journalism began after the opening of Korea in the late 19th century.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [BigBang (South Korean band)](https://en.wikipedia.org/wiki/BigBang_(South_Korean_band)) — BigBang (Korean: 빅뱅; stylized in all caps) is a South Korean boy band formed by YG Entertainment. The group consists of three members: G-Dragon, Taeyang, and Daesung.
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月27日 時事） ドイツ のメルツ首相は28日、昨年5月の就任後初めて日本を訪れ、高市早苗首相と会談する。ロシアの侵攻を受けるウクライナ情勢や、覇権主義的な ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — ドイツ全土のデモ 暴徒化した集団が店襲撃 当局が会見 · ドイツ メルツ首相 EV優遇措置巡る懸念 EU首脳会談で検討へ · 習主席「EUは中国と経済グローバル化推進を」貿易摩擦 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 習近平氏「中国・EU貿易は相互補完」 ドイツ大統領に歩み寄り訴え · ユーロ圏GDP年率1.7%増 7〜9月、フランスはマイナス成長 · ドイツのメルツ首相、EV優遇策をEUで協議へ ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany. 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に拘禁12年 他に44人にも犯行か ドイツ ...
+
+### Thailand (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Thailand (English)` `2026-11`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Crime in Thailand](https://en.wikipedia.org/wiki/Crime_in_Thailand) — Crime in Thailand has been a defining issue in the country for decades, inspiring years of policy and international criticism. Drug use and corruption make up the majority of the crime in Thailand and due to this, many Thai administrations attempted to curtail the drug trade, most notably Thaksin Shinawatra with the 2003 War on Drugs.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [BBC News](https://en.wikipedia.org/wiki/BBC_News) — BBC News is an operational business division of the British Broadcasting Corporation (BBC) responsible for the gathering and broadcasting of news and current affairs in the UK and around the world. The department is the world's largest broadcast news organisation and generates about 120 hours of radio and television output each day, as well as online news coverage.
+
+### Brazil (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+

@@ -768,3 +768,63 @@ Tags: `Myanmar (English)` `2026-11`
 - [Meitei people in Assam](https://en.wikipedia.org/wiki/Meitei_people_in_Assam) — The Meitei people, also called Manipuri people, is one of the minority ethnic groups in Assam. They are referred to as Mekhlee, Mekhelee, Meckley, Monipuri, Monipuriya, Magalu, Mogolu, Moglie, Moglai, among many other names dedicated to them by the other people of Assam.
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 
+### Afghanistan(検索日時 / searched at: 2026-11-03)
+
+Tags: `Afghanistan` `2026-11`
+
+- [افغانستان](https://ps.wikipedia.org/wiki/%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86) — افغانستان په رسمي توګه د افغانستان اسلامي امارت په غرونو کې کلابند يو غرنيز او سمسور هېواد دی چې د "۴۳ میلیونه" وګړو او «۶۵۲۸۶۴» کیلومتره مربع ځمکي په درلودلو سره د آسيا په زړه کي پروت دی. په ټولیزه توګه دا هېواد د منځنۍ اسيا يوه ستراتېژیکه سیمه ګڼل کېږي چي په لوېدیځ کي له ایران، په شمال لوېدیځ کي له ترکمنستان، په شمال کي له ازبکستان او تاجکستان او په شمال ختیځ کي له چین سره ګډې پولې لري.
+- [د لنډې کيسې تاريخچه](https://ps.wikipedia.org/wiki/%D8%AF_%D9%84%D9%86%DA%89%DB%90_%DA%A9%D9%8A%D8%B3%DB%90_%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%DA%86%D9%87) — 
+- [انځور خبريالي](https://ps.wikipedia.org/wiki/%D8%A7%D9%86%DA%81%D9%88%D8%B1_%D8%AE%D8%A8%D8%B1%D9%8A%D8%A7%D9%84%D9%8A) — د ليكلو توكيو ترڅنگ د انځورونو خپراوى د انځوريزې خبريالۍ په نوم ياديږي. په اوسني پرمختللي پېر كې انځورخبريالي دډله یيزو رسنيو يوه بايده برخه گرځېدلې او له انځور پرته د ورځپاڼو خپراوى ناشونى او بيخونده برېښي.
+
+### Italy (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Italy (English)` `2026-11`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Switzerland (Japanese)` `2026-11`
+
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — 中立国 スイス 、武器輸出の緩和巡り29日国民投票 ... このコンテンツが公開されたのは、 2026/11/03 11月29日の国民投票で、 スイス の有権者は軍事物資の輸出・再輸出を緩和 ...
+- [スイス - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_switzerland/) — 本日の最新ニュースをお読みください。 スイス: 米大統領が初日の米中貿易協議を評価「大きな進展」 , IAEAの追加監視 露中などが福島原発で処理水採取へ.
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 朝日新聞の、 スイス に関する ニュース や速報記事一覧です。 スイス に関する現状や背景を、わかりやすくお伝えします。
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — スイス外相、23年ぶり北朝鮮訪問 「政治対話」へ外交事務所 · スイスの中国輸出品、99.8%無関税に FTA改定で時計など恩恵 · UBSエルモッティCEO「スイスの銀行では不十分」 ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [スイス 20 先物 ニュース - Investing.com](https://jp.investing.com/indices/switzerland-20-futures-news) — UBSが スイス 経済に楽観的、ユーロ圏と米国関税にリスクを警戒. UBSのアナリストらは、堅調な消費需要と失業率の緩やかな低下を背景に、来年の スイス 経済の回復を予測し ...
+- [「 スイス について」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%B9%E3%82%A4%E3%82%B9%E3%81%AB%E3%81%A4%E3%81%84%E3%81%A6) — スイスと関係強化 正恩氏留学先、外交多極化 北朝鮮 · スイス・ライン川で切断遺体見つかった事件、バングラデシュ人男を逮捕 難民申請者収容施設で生活 · 中国・スイス首脳 ...
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by the Taiwanese Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Taiwanese Mandarin](https://en.wikipedia.org/wiki/Taiwanese_Mandarin) — Taiwanese Mandarin, natively referred to as Guoyu (Chinese: 國語; pinyin: Guóyǔ; Zhuyin Fuhao: ㄍㄨㄛˊ ㄩˇ; lit. 'national language') or Huayu (Chinese: 華語; pinyin: Huáyǔ; Zhuyin Fuhao: ㄏㄨㄚˊ ㄩˇ; lit.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月27日 時事） ドイツ のメルツ首相は28日、昨年5月の就任後初めて日本を訪れ、高市早苗首相と会談する。ロシアの侵攻を受けるウクライナ情勢や、覇権主義的な ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — ドイツ全土のデモ 暴徒化した集団が店襲撃 当局が会見 · ドイツ メルツ首相 EV優遇措置巡る懸念 EU首脳会談で検討へ · 習主席「EUは中国と経済グローバル化推進を」貿易摩擦 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 習近平氏「中国・EU貿易は相互補完」 ドイツ大統領に歩み寄り訴え · ユーロ圏GDP年率1.7%増 7〜9月、フランスはマイナス成長 · ドイツのメルツ首相、EV優遇策をEUで協議へ ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany. 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に拘禁12年 他に44人にも犯行か ドイツ ...
+

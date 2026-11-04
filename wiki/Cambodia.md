@@ -801,3 +801,35 @@ Tags: `Cambodia` `2026-11`
 - [ព័ត៌មានកម្ពុជា - YouTube](https://www.youtube.com/playlist?list=PL1ie9jay6H_CQZROxOD2XmLhjZDdgi3Cw) — AboutPressCopyrightContact usCreatorsAdvertiseDevelopersTermsPrivacyPolicy & SafetyHow YouTube worksTest new features · © 2026 Google LLC · ព័ត៌មានកម្ពុជា - YouTube
 - [អ្នកស្រុក Oleshky ខ្លះ ស៊ីស្មៅ ដើម្បីរស់ អាចវិលចូលអ៊ុយក្រែនវិញក្រោមបទឈប់បាញ់ដ៏កម្រ](https://www.kampucheathmey.com/global-news/1207832) — 9 hours ago - ព័ត៌មានអន្ដរជាតិ៤ ថ្ងៃ ago · The Diplomat៖ ថៃ ប្រើអាវុធធុនធ្ងន់ និងវាយប្រហារចូលជ្រៅដល់ទៅ ១០០ គីឡូម៉ែត្រក្នុងទឹកដីកម្ពុជា...
 
+### Cambodia(検索日時 / searched at: 2026-11-03)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people, aged between 10 and 87, and injured forty others, including two police officers.
+- [Reactions to the 2014 Peshawar school massacre](https://en.wikipedia.org/wiki/Reactions_to_the_2014_Peshawar_school_massacre) — The response to the 2014 Peshawar school massacre, that occurred on 16 December 2014 was widespread. The attack occurred at the Army Public School in the Pakistani city of Peshawar, killed a total of 145 people which included 132 school children and ten school staff members.
+- [2026 Summer Youth Olympics](https://en.wikipedia.org/wiki/2026_Summer_Youth_Olympics) — The 2026 Summer Youth Olympics (French: Jeux Olympiques de la jeunesse d'été de 2026), officially known as the IV Summer Youth Olympic Games and commonly known as Dakar 2026 (Wolof: Ndakaaru 2026), is the fourth edition of the Summer Youth Olympics, an international sports, education and cultural festival for teenagers, in a city designated by the International Olympic Committee (IOC). Originally scheduled to be held for 18 days in Dakar, Senegal, from 22 October to 9 November 2022, it is now scheduled to be held there for 14 days—from 31 October to 13 November 2026, becoming the first IOC event to be held in Africa and the first Youth Olympic Games under the IOC presidency of Kirsty Coventry.
+- [2026](https://en.wikipedia.org/wiki/2026) — 2026 (MMXXVI) is the current year, and is a common year starting on Thursday of the Gregorian calendar, the 2026th year of the Common Era (CE) and Anno Domini (AD) designations, the 26th year of the 3rd millennium and the 21st century, and the 7th year of the 2020s decade. The early part of the year saw escalating armed conflicts in the Americas and Middle East.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer who has served since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Afghanistan (Japanese)` `2026-11`
+
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン情勢 関連ニュース · アフガン隣国でケシ栽培急増 タリバンが禁止、越境作付けか (11月02日 16:11) · タリバンが子供の徴集強化 国連、爆発物被害多発も指摘― ...
+- [「 アフガニスタン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10105) — アフガニスタン、中国国境への道路開通 交易路の確立目指す · ICC、タリバン暫定政権の教育相らに逮捕状 女性抑圧政策で · パキスタンがアフガニスタン空爆 22人死亡か、 ...
+- [アフガニスタン ・イスラム共和国の関連情報 - フォロー](https://follow.yahoo.co.jp/themes/009cdd0d709727a72400/) — 米のアフガン人強制送還計画、タリバンが「深刻な懸念」表明 . AFP＝時事 - -11598秒前. 報告 · 【図解】アフガン隣国でケシ栽培急増＝タリバンが禁止、越境作付けか.
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン戦争、過去の戦争と比べてどのくらい不 ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — イラン目指したアフガン人14人、灼熱の砂漠で遺体で発見 · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定 ...
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 主要ニュース · 中野ブロードウェイで盗まれた高級腕時計、宅配便で店に戻る… · 首相官邸など襲撃した被告、法廷で日の丸のようなもの掲げ「国旗・国歌法に基づき作った ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — BBCのFMラジオ放送、アフガニスタンで停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米 ...
+- [「 アフガニスタン 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000226) — パキスタンがアフガニスタン攻撃 対立の激化懸念 · UNDP＝国連開発計画“アフガニスタンの女性への支援継続を” · アフガニスタン東部地震から1年 継続支援を求める声.
+

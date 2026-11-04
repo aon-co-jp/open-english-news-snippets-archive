@@ -858,3 +858,42 @@ Tags: `Taiwan (English)` `2026-11`
 - [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
 - [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
 
+### Ukraine(検索日時 / searched at: 2026-11-03)
+
+Tags: `Ukraine` `2026-11`
+
+- [Українські національні новини](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D1%81%D1%8C%D0%BA%D1%96_%D0%BD%D0%B0%D1%86%D1%96%D0%BE%D0%BD%D0%B0%D0%BB%D1%8C%D0%BD%D1%96_%D0%BD%D0%BE%D0%B2%D0%B8%D0%BD%D0%B8) — |співробітників= Українські національні новини (скорочено УНН) — всеукраїнське інформаційне агентство. Основна тематика — політика, соціальні проблеми, економіка.
+- [Сьогодні (газета)](https://uk.wikipedia.org/wiki/%D0%A1%D1%8C%D0%BE%D0%B3%D0%BE%D0%B4%D0%BD%D1%96_(%D0%B3%D0%B0%D0%B7%D0%B5%D1%82%D0%B0)) — «Сегодня» (укр. Сьогодні) — всеукраїнська щоденна суспільно-політична російськомовна газета.
+- [РИА Новости](https://uk.wikipedia.org/wiki/%D0%A0%D0%98%D0%90_%D0%9D%D0%BE%D0%B2%D0%BE%D1%81%D1%82%D0%B8) — Російське агентство міжнародної інформації, «РІА Новини» (рос. РИА Новости) — бренд російського державного пропагандистського медіаконгломерату «РИА Новости» «Росія сьогодні» (рос.
+- [USA Today](https://uk.wikipedia.org/wiki/USA_Today) — «Ю-Ес-Ей Тудей» (англ. USA Today, укр.
+- [Україна (телеканал)](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0_(%D1%82%D0%B5%D0%BB%D0%B5%D0%BA%D0%B0%D0%BD%D0%B0%D0%BB)) — «Україна» — закритий український телеканал, що 13 березня 1993 року почав мовлення як регіональний донецький телеканал. Канал мав статус національного з 2004 року.
+- [Медіа Група Україна](https://uk.wikipedia.org/wiki/%D0%9C%D0%B5%D0%B4%D1%96%D0%B0_%D0%93%D1%80%D1%83%D0%BF%D0%B0_%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0) — «Медіа Група Україна» — колишня компанія, яка з 2010 по 2022 рік об'єднувала телевізійні, видавничі та цифрові-ресурси інвестиційної компанії SCM українського олігарха Ріната Ахметова. Ключовими активами медіахолдингу були: телерадіокомпанія «Україна», через яку медіаконгломерат володів флагманським телеканалом «Україна», телемережею «Футбол», яка включала 3 спортивні телеканали і розважальні телеканали НЛО TV та Індиго TV; інформаційно-аналітичний телеканал «Україна 24»; оператор супутникового мовлення Xtra TV; компанія потокового телебачення Digital Screens, яка керувала OTT-платформою OLL.TV; видавничий дім «Сьогодні Мультимедіа», який займався видавництвом газети «Сьогодні» та журналу Vogue Ukraine і керував їх веб-порталами.
+- [Донецькі новини](https://uk.wikipedia.org/wiki/%D0%94%D0%BE%D0%BD%D0%B5%D1%86%D1%8C%D0%BA%D1%96_%D0%BD%D0%BE%D0%B2%D0%B8%D0%BD%D0%B8) — Донецькі новини — донецьке регіональне видання. Виходить один раз на тиждень.
+- [Україна 24](https://uk.wikipedia.org/wiki/%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D0%B0_24) — «Україна 24» — закритий загальноукраїнський інформаційний телеканал, що входив до медіаконгломерату «Медіа Група Україна» Ріната Ахметова.
+
+### Egypt (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Egypt (English)` `2026-11`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Al-Masry Al-Youm](https://en.wikipedia.org/wiki/Al-Masry_Al-Youm) — Al-Masry Al-Youm (Arabic: المصري اليوم, romanized: al-Maṣrī l-Yawm, IPA: [elˈmɑsˤɾi lˈjoːm], meaning The Egyptian Today) is an Egyptian privately owned daily newspaper that was first published in June 2004. It is published in Arabic as is its website, almasryalyoum.com.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [Economy of Egypt](https://en.wikipedia.org/wiki/Economy_of_Egypt) — Egypt has a developing mixed economy, combining private business with government regulation. It is the 2nd largest economy in Africa, and 41st in worldwide ranking as of 2026.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+
+### China (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `China (English)` `2026-11`
+
+- [China Today (TV program)](https://en.wikipedia.org/wiki/China_Today_(TV_program)) — China Today is a news program that focuses on news issues and current affairs around China. China Today 30 minute's episodes are broadcast on CCTV-9 at 22:00 China Standard Time (UTC+8), or 14:00 UTC every day, and rebroadcasts twice at 01:00 and 07:00 UTC+8 the next morning, or 17:00 and 23:00 UTC. The Sunday edition of China Today is called China This Week, which takes a look back at major issues happen around the country within the previous 6 days.
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+

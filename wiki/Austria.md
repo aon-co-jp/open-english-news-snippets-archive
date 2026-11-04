@@ -771,3 +771,42 @@ Tags: `Austria` `2026-11`
 - [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
 - [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
 
+### Austria(検索日時 / searched at: 2026-11-03)
+
+Tags: `Austria` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Deutschland](https://de.wikipedia.org/wiki/Deutschland) — Deutschland (; Vollform des Staatsnamens: Bundesrepublik Deutschland) ist ein Bundesstaat in Mitteleuropa. Es besteht aus 16 Ländern und ist als freiheitlich-demokratischer und sozialer Rechtsstaat verfasst.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Heute-show](https://de.wikipedia.org/wiki/Heute-show) — Die heute-show (Eigenschreibweise auch heute show und heute SHOW) ist eine deutsche Comedy- und Satiresendung im ZDF mit Stilelementen einer Nachrichtensendung. Ihr Name wurde in Anlehnung an die ZDF-Nachrichtenformate heute und heute-journal sowie die ARD-Sendung Tagesschau gewählt.
+- [RTL aktuell](https://de.wikipedia.org/wiki/RTL_aktuell) — RTL aktuell (Eigenschreibweise RTL AKTUELL) ist die Nachrichtensendung bei RTL. Die Hauptausgabe mit einer Dauer von 20 Minuten wird täglich um 18:45 Uhr live aus Köln ausgestrahlt. Bei wichtigen Ereignissen kann als Programmergänzung ein RTL aktuell Spezial zum Einsatz kommen – je nach Anlass meistens um 20:15 Uhr und mit einem Umfang von etwa 15 Minuten.
+- [Bundespräsident (Deutschland)](https://de.wikipedia.org/wiki/Bundespr%C3%A4sident_(Deutschland)) — Der Bundespräsident (Abkürzung BPr, auch BPräs) ist das Staatsoberhaupt (Art. 54–61 GG) der Bundesrepublik Deutschland und protokollarisch ihr höchstes Verfassungsorgan.
+- [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
+- [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — ロシア · 1時間前. ウクライナ南東部の学校爆撃、26人死亡 支援物資の配布拠点 · 8時間前. イラン安保トップがプーチン氏と電話会談、中東情勢巡り協議＝報道 · 7時間前. 緊急 ...
+- [ロシア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/russia/) — ロシア · 【露人権代表、アリョーシュキに到着 人道支援ミッション】 · 【プーチン大統領「露企業は植民地主義的なやり方で資源を吸い上げない」 ロシア・アフリカ首脳会議】.
+- [「 ロシア 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — ウクライナ南部で31人死亡 東部で70人余けが ロシアの攻撃で · 米・ウクライナ・ロシアの実務者協議 10日からUAEで開催へ · ウクライナで局地停戦が終了 住民避難もほかの ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 11/03: 黒海で相次ぐ ロシア の商船攻撃、空と海からドローンで襲撃 「世界で最も危険な海域」に · ロシア とウクライナの緊急警報アプリにハッキング、核攻撃や ...
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — Russia. ロシア、モスクワ襲撃計画めぐり少年逮捕 米から情報提供 · ロシア非常事態省、警報アプリに「大規模サイバー攻撃」 ウクライナでも被害 ...
+- [ロシア の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/russia/) — ロシア · 「シャヘド型ドローン」が現代の戦争を変えている … · プーチンが直面する「食品インフレ」が戦争継続の要所になる · ウクライナのドローンがロシアの兵器庫に侵入…
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — 欧州諸国の軍関係者数千人、ウクライナ停戦後の部隊派遣に向け軍事演習へ 英仏が主導 · ロシア 軍が人道支援施設を攻撃し26人殺害、ウクライナ発表 · ウクライナで数十万世帯 ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — 米国、ロシアとウクライナがUAEで3者協議へ 10〜11日 に · ロシア国防相、中国軍事委副主席と会談 首脳会談控え緊密関係示す · 米中ロ「現代版ヤルタ」が揺らすアジア ロシア ...
+
+### Germany (English)(検索日時 / searched at: 2026-11-03)
+
+Tags: `Germany (English)` `2026-11`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state news agency RIA Novosti.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
