@@ -25,6 +25,7 @@
 - [Italy](wiki/Italy.md)
 - [Japan](wiki/Japan.md)
 - [JICA congratulates Viet Nam on FTSE Russell market upgrade](wiki/JICA congratulates Viet Nam on FTSE Russell market upgrade.md)
+- [jp](wiki/jp.md)
 - [JP](wiki/JP.md)
 - [Local news](wiki/Local news.md)
 - [Malaysia](wiki/Malaysia.md)
