@@ -681,3 +681,29 @@ Tags: `Switzerland` `2026-11`
 - [Schweizer Radio DRS](https://de.wikipedia.org/wiki/Schweizer_Radio_DRS) — Das Schweizer Radio DRS (Radio der deutschen und rätoromanischen Schweiz (SR DRS)) war zusammen mit dem Schweizer Fernsehen (SF) eines der beiden ehemaligen Schweizer Medienunternehmen, die am 1. Januar 2011 in der Unternehmung Schweizer Radio und Fernsehen (SRF) vereint wurden.
 - [Verband Schweizer Medien](https://de.wikipedia.org/wiki/Verband_Schweizer_Medien) — Der Verband Schweizer Medien (VSM) ist die Branchenorganisation der privaten Schweizer Medienunternehmen mit Schwerpunkt Print und Digital. Er vereinigt über 70 Unternehmen und branchennahe assoziierte Mitglieder, die zusammen rund 300 Zeitungen und Zeitschriften herausgeben sowie verschiedene Newsplattformen und elektronische Medien anbieten.
 
+### Switzerland(検索日時 / searched at: 2026-11-05)
+
+Tags: `Switzerland` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Schweiz](https://de.wikipedia.org/wiki/Schweiz) — Die Schweiz (schweizerdeutsch Schwiz, französisch [sɥis(ə)], italienisch [ˈzvitːsera], rätoromanisch [ˈʒviːtsrɐ] oder [ˈʒviːtsʁɐ], lateinisch Helvetia), amtlich Schweizerische Eidgenossenschaft (schweizerdeutsch Schwizerischi Eidgnosseschaft, französisch Confédération suisse, italienisch Confederazione Svizzera, rätoromanisch , lateinisch Confoederatio Helvetica), ist ein föderalistischer, demokratischer Staat in Mitteleuropa. Er grenzt im Norden an Deutschland, im Osten an Österreich und Liechtenstein, im Süden an Italien und im Westen an Frankreich.
+- [Freiburger Nachrichten](https://de.wikipedia.org/wiki/Freiburger_Nachrichten) — Die Freiburger Nachrichten sind eine regionale Schweizer Tageszeitung in Freiburg im Üechtland.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Nachrichten](https://de.wikipedia.org/wiki/Nachrichten) — Unter Nachrichten als Plural von Nachricht (oft auch synonym für Nachrichtensendung) ist die regelmäßige Berichterstattung in Form von mehreren journalistischen Nachrichten über aktuelle politische, wirtschaftliche, soziale, kulturelle, sportliche und sonstige Ereignisse in komprimierter Form zu verstehen.
+- [Basler Zeitung](https://de.wikipedia.org/wiki/Basler_Zeitung) — Die Basler Zeitung (kurz BaZ) ist eine Schweizer Tageszeitung mit Sitz in Basel. Sie ging im Januar 1977 aus der Fusion der linksliberalen National-Zeitung mit den bürgerlich-konservativen Basler Nachrichten hervor und wird von den Basler Zeitung Medien herausgegeben.
+- [Schweizer Radio DRS](https://de.wikipedia.org/wiki/Schweizer_Radio_DRS) — Das Schweizer Radio DRS (Radio der deutschen und rätoromanischen Schweiz (SR DRS)) war zusammen mit dem Schweizer Fernsehen (SF) eines der beiden ehemaligen Schweizer Medienunternehmen, die am 1. Januar 2011 in der Unternehmung Schweizer Radio und Fernsehen (SRF) vereint wurden.
+- [Verband Schweizer Medien](https://de.wikipedia.org/wiki/Verband_Schweizer_Medien) — Der Verband Schweizer Medien (VSM) ist die Branchenorganisation der privaten Schweizer Medienunternehmen mit Schwerpunkt Print und Digital. Er vereinigt über 70 Unternehmen und branchennahe assoziierte Mitglieder, die zusammen rund 300 Zeitungen und Zeitschriften herausgeben sowie verschiedene Newsplattformen und elektronische Medien anbieten.
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 朝日新聞の、ミャンマーに関するニュースや速報記事一覧 です。ミャンマーに関する現状や背景を、わかりやすくお伝えします。
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー · ニュースヘッドライン · 米政府が対ミャンマー政策を転換、国益重視へ · 25年の労働者解雇、65％に正当な理由なし · エネ省、CNG車の期限切れボンベ交換義務化.
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー、ASEAN議長国のスーチー氏解放要求に抗議 外務省声明 · スーチー氏、赤十字ミャンマー代表と面会 軟禁移行後で初の公表 · ミャンマー、国内和平にらみ恩赦 ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — 「ミャンマー」ニュース一覧 · 国連 ミャンマーの民主派大使が軍への武器供給停止訴え · 拘束中のスー・チー氏と電話 次男“生存確認できてよかった” · 拘束続くスー・チー氏に ...
+- [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — 4:19 · ミャンマーのブラックリスト除外の働きかけ、日本財務省が報道を否定 · チャンパン、アジア系アメリカ人からなるオルタナ・ポップ・トリオが初来日公演を開催 · 【 ...
+

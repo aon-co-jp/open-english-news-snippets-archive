@@ -635,3 +635,68 @@ Tags: `South Africa` `2026-11`
 - [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
 - [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
 
+### South Africa(検索日時 / searched at: 2026-11-05)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana (lit.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Lara Logan](https://en.wikipedia.org/wiki/Lara_Logan) — Lara Logan (born 29 March 1971) is a South African television and radio journalist, war correspondent, and conspiracy theorist. Her career began with various South African news organizations in the 1990s.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+
+### France (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 最新ニュース · 高市首相、マクロン大統領と電話協議 EUの産業優遇策に懸念伝達 · フランスの銀行にサイバー攻撃、約178億円流出か 血液バンクにも · N響音楽監督にソヒエフ ...
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · 欧州諸国の軍関係者数千人、ウクライナ停戦後の部隊派遣に向け軍事演習へ 英仏が主導 · 欧州7カ国のスーパー冷蔵・冷凍庫にサイバー攻撃 大量の食品が廃棄に.
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 日仏首脳電話会談 高市首相"EV優遇措置検討で強い懸念伝達 " · フランスの銀行にサイバー攻撃 資金流出の可能性 · ユーロ圏 10月の消費者物価指数は4％上昇に 約3年ぶり高水準.
+- [ET TOI（エトワ）| フランス 情報メディア](https://www.parisettoi.fr/) — France today 今日のフランス · 海軍装備見本市ユーロナバルが開幕 · 外国居住者の銀行口座、諮問機関が権利の強化を勧告 · 英国政府、永住権の取得条件を厳格化.
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランス暴動、かすむ学生の訴え 教育改善へ「声上げ続ける」 · フランスデモ、各国との共通点・大統領選への影響は 識者に聞く · フランス3週連続デモ、32万人参加 一部衝突 ...
+- [フランス の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/france/) — 究極のエネルギー源「核融合」施設に行ってみた。 · アルコール消費の減少を受け… · 大手マスコミ記者を辞めて“主夫”に。 · フランス 政府、靴を修理した人に補助金を支給.
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/01: ハロウィーンに合わせドイツへデモ拡大 フランス でも数十万人が参加 · エムバペとハローキティに思わぬ共通点、相次ぎ中国の怒り買う事態に ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — 仏銀行にサイバー攻撃、約177億円流出 顧客に損失なし . French. 欧州の天然ガス備蓄、2013年以来の低水準 IEA · 仏で3週連続の物価高抗議デモ 一部過激化、火炎瓶 ...
+
+### Egypt (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Egypt (English)` `2026-11`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Al-Masry Al-Youm](https://en.wikipedia.org/wiki/Al-Masry_Al-Youm) — Al-Masry Al-Youm (Arabic: المصري اليوم, romanized: al-Maṣrī l-Yawm, IPA: [elˈmɑsˤɾi lˈjoːm], meaning The Egyptian Today) is an Egyptian privately owned daily newspaper that was first published in June 2004. It is published in Arabic as is its website, almasryalyoum.com.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Economy of Egypt](https://en.wikipedia.org/wiki/Economy_of_Egypt) — Egypt has a developing mixed economy, combining private business with government regulation. It is the 2nd largest economy in Africa, and 41st in worldwide ranking as of 2026.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Gods of Egypt (film)](https://en.wikipedia.org/wiki/Gods_of_Egypt_(film)) — Gods of Egypt is a 2016 American fantasy action film directed by Alex Proyas based on ancient Egyptian deities. It stars Nikolaj Coster-Waldau, Brenton Thwaites, Chadwick Boseman, Élodie Yung, Courtney Eaton, Rufus Sewell, Gerard Butler, and Geoffrey Rush.
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Ukraine (Japanese)` `2026-11`
+
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — ウクライナ 情勢 · 6時間前. ロシア、西側衛星攻撃を予行演習か 別の接近も確認＝専門家 · 1時間前. ウクライナ 、米大統領夫人に国家勲章 人道支援に「多大な貢献」 · 35分前.
+- [新着 ニュース - ウクルインフォルム通信](https://www.ukrinform.jp/block-lastnews) — ウクライナの汚職対策機関、摘発した犯罪組織の活動詳細を公表 · ウクライナ国家非常事態庁、市民に停電時の料理の作り方をアドバイス · キーウで給水が完全復旧 · ロシアは ...
+- [ウクライナ にロシアが侵略 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/22012404) — ウクライナ農相「作付面積が25%減」 黒海封鎖で食料危機の懸念 · ウクライナ・米国・ロシア、エネルギー施設攻撃停止を協議へ UAEで · 防衛ドローン競争加速、スタートアップ ...
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — 最新ニュース · ウクライナの支援センター、ホスピス、病院へのロシア攻撃 死者数増える · ロシア軍が人道支援施設を攻撃し26人殺害、ウクライナ発表 · 欧州諸国の軍関係者数 ...
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — 2026年11月3日. 「学校と避難所が標的に」 ロシア軍の攻撃で31人死亡 ウクライナ · 2026年11月2日. ウクライナ 南部オレシュキの停戦終了 最長の6日間、避難も「成功」 · 2026 ...
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — 2026. 11/05: メラニア氏、ロシアと ウクライナ の代表をホワイトハウスに招待へ; 11/04: ロシアが校舎に爆弾9発を投下、少なくとも33人死亡 国連監視団は人道法違反指摘 ...
+- [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ロシアはウクライナの非軍事化などを要求して全面攻撃を仕掛けたが、首都キーウの短期制圧に失敗 。欧米の支援を受けたウクライナが徹底抗戦し、戦闘は長期化した。25年1 ...
+- [ウクルインフォルム通信](https://www.ukrinform.jp/) — トップ ニュース · 欧州委員会、 ウクライナ のEU加盟に向けた改革の進展を報告 · コミシュヴァハへの空爆 死者数42名に増加 捜索作業が継続 · ウクライナ の汚職対策機関、 ...
+
+### Iran (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Iran (English)` `2026-11`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests were a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
+- [List of wars involving Iran](https://en.wikipedia.org/wiki/List_of_wars_involving_Iran) — This is a list of wars involving the Islamic Republic of Iran, excluding its predecessor states. It is an unfinished historical conspectus.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+

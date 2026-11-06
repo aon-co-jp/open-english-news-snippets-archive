@@ -988,3 +988,76 @@ Tags: `Tajikistan` `2026-11`
 - [Бозор](https://tg.wikipedia.org/wiki/%D0%91%D0%BE%D0%B7%D0%BE%D1%80) — Бозор (форсӣ: بازار‎ — bâzâr ← порсии миёна: wāzār ← порсии бостон: vāčar ← эронии бостон: *wahā-čarana аз *wahā- «додуситад кардан» + *čārana- «гаштугузор кардан») — ҷойи додуситад ва хариду фурӯши коло, маҳаллм иҷтимоъ ва додуситади фурӯшандагону харидорон.
 - [Кӯлоб](https://tg.wikipedia.org/wiki/%D0%9A%D3%AF%D0%BB%D0%BE%D0%B1) — Кӯлоб (форсӣ: کولاب‎) — шаҳр дар вилояти Хатлон. Аз ҷумлаи қадимтарин шаҳрҳои Осиёи Марказӣ маҳсуб мешавад.
 
+### Tajikistan(検索日時 / searched at: 2026-11-05)
+
+Tags: `Tajikistan` `2026-11`
+
+- [Рӯзнома](https://tg.wikipedia.org/wiki/%D0%A0%D3%AF%D0%B7%D0%BD%D0%BE%D0%BC%D0%B0) — Рӯзнома (форсӣ: روزنامه‎), газета, — нашрияе аст, ки ба таври мураттаб ва муназзам таҳия, чоп ва пахш мешавад ва бе ҳеч қайду шарте дар дастраси мардум қарор мегирад. Рӯзнома на баёния аст ва на иттилоъия ва барои равшан сохтани афкори мардум, балки ба нашри ахбору иттилоот дар заминаҳои гуногун ва интиқоду салоҳандешӣ дар умурӣ умумӣ мепардозад.
+- [Бозор](https://tg.wikipedia.org/wiki/%D0%91%D0%BE%D0%B7%D0%BE%D1%80) — Бозор (форсӣ: بازار‎ — bâzâr ← порсии миёна: wāzār ← порсии бостон: vāčar ← эронии бостон: *wahā-čarana аз *wahā- «додуситад кардан» + *čārana- «гаштугузор кардан») — ҷойи додуситад ва хариду фурӯши коло, маҳаллм иҷтимоъ ва додуситади фурӯшандагону харидорон.
+- [Кӯлоб](https://tg.wikipedia.org/wiki/%D0%9A%D3%AF%D0%BB%D0%BE%D0%B1) — Кӯлоб (форсӣ: کولاب‎) — шаҳр дар вилояти Хатлон. Аз ҷумлаи қадимтарин шаҳрҳои Осиёи Марказӣ маҳсуб мешавад.
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — 朝日新聞の、 エジプト に関する ニュース や速報記事一覧です。 エジプト に関する現状や背景を、わかりやすくお伝えします。
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — エジプト下院、サウジ軍事支援策を承認 派兵実施か · サウジ国防相ら、イラン大統領と会談 「緊張緩和へ対話」 · フーシ、サウジアラビア首都の空港を再び攻撃 運用再開日に ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代 エジプト 人、王の死に際し召使いを生け贄に 法医学的調査で判明 ...
+- [エジプト の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/egypt/page2) — エジプトのニュース・速報 . 200件中 21~40件表示. エチオピア軍の無人機攻撃で窓ガラスが破壊された北部ティグレ州. エチオピア軍、反政府勢力拠点へ 市街戦懸念 ...
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425?page=3) — 「エジプト」ニュース一覧 · フランス ルーブル美術館 入館料に「二重価格」導入 · イスラエル 遺体返還でエジプトに代表団 ハマスはトルコと協議 · ハマス 人質1人の遺体返還 ...
+- [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — エジプト · 2026年10月30日. 地域情勢の緊張下で エジプト ・ポンド安が進行、対ドル為替レートが56ポンド台を記録(サウジアラビア、 エジプト ) · 2026年10月29日 · 2026年10月29 ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · 秋の叙勲 3960人が受章 · ロシアが「人身取引」で29カ国の外国人を動員 国連独立委が認定 · タジキスタン からの国費留学生受け入れで合意 日本語学校経営 ...
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 中国首相、タジキスタンとの安全保障協力深化呼びかけ · 「屈辱的記録を次々更新」中国代表、 ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — タジキスタン · アジアパラ大会 卓球舟山が戦略通りの金… · 大森 女王破り初V…世界柔道 女子57キロ · 増地遼汰朗、自国開催で父子2代アジア「金」・母は五輪銅メダリスト…
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people, aged between 10 and 87, and injured forty others, including two police officers.
+- [Reactions to the 2014 Peshawar school massacre](https://en.wikipedia.org/wiki/Reactions_to_the_2014_Peshawar_school_massacre) — The response to the 2014 Peshawar school massacre, that occurred on 16 December 2014 was widespread. The attack occurred at the Army Public School in the Pakistani city of Peshawar, killed a total of 145 people which included 132 school children and ten school staff members.
+- [2026](https://en.wikipedia.org/wiki/2026) — 2026 (MMXXVI) is the current year, and is a common year starting on Thursday of the Gregorian calendar, the 2026th year of the Common Era (CE) and Anno Domini (AD) designations, the 26th year of the 3rd millennium and the 21st century, and the 7th year of the 2020s decade. The early part of the year saw escalating armed conflicts in the Americas and Middle East.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer who has served since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+- [Eurasian Economic Union](https://en.wikipedia.org/wiki/Eurasian_Economic_Union) — The Eurasian Economic Union (EAEU or EEU) is an economic union of five post-Soviet states located in Eurasia. The EAEU has an integrated single market.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Brazil (Japanese)` `2026-11`
+
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 朝日新聞の、 ブラジル に関する ニュース や速報記事一覧です。 ブラジル に関する現状や背景を、わかりやすくお伝えします。
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ブラジル 在住の日本人コミュニティに向けた最新 ニュース を提供する日系メディアです。政治、経済、文化、社会、スポーツなど幅広い話題をカバーし、現地の情報をわかり ...
+- [ブラジル 日報 Jornal Brasil Nippou - YouTube](https://www.youtube.com/@BrasilNippou/playlists) — ブラジル 日報 今日 の ニュース ランキング · 相川七瀬 in ブラジル · ブラジル アマゾン · 県連日本祭り2025 · 佳子さま来伯2025年6月 サンパウロマリンガブラジリア ...
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ブラジル 日報 · 太平洋を越える15年の執念＝コロンビア日本EPA署名へ＝トヨタ・マツダも動くか · 「 ブラジル で活躍する日系企業の今」第3回＝KPMG ブラジル · 《 ブラジル 》JICA ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「ブラジル」ニュース一覧 · サッカー日本代表 強化試合のメンバー28人発表 南野拓実が復帰 · 米到着のボルソナロ氏“政治的迫害逃れるため国離れた”と主張 · フラビオ・ ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル大統領選敗北のボルソナロ氏が出国 米国がビザ発給方針 · トランプ氏「ブラジル大統領選挙は不正」と主張 根拠は示さず · 「親トランプ」拒んだブラジル ルラ氏4期目 ...
+- [Notícias do Brasil de Hoje - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsbrazil&hl=ja) — 新聞のヘッドラインと一面を無料で閲覧できます。 このアプリは、 ブラジル の 主要 メディアを1か所に集約します。1日の出来事を分刻みで追跡し、各 ニュース ルームのヘッド ...
+- [ブラジル - BBC ニュース](https://www.bbc.com/japanese/topics/c5qvpx7pjwzt) — ブラジル大統領選で敗れたボルソナロ氏、国外逃亡を否定 米マイアミ到着後. 2026年 ... BBCニュースを他言語で読む; Do not share or sell my info. © 2026 BBC. BBC ...
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- [COVID-19 pandemic in Taiwan](https://en.wikipedia.org/wiki/COVID-19_pandemic_in_Taiwan) — The COVID-19 pandemic in Taiwan was a part of the worldwide pandemic of coronavirus disease 2019 (COVID-19) caused by severe acute respiratory syndrome coronavirus 2 (SARS-CoV-2). As of 19 March 2023 in Taiwan, 10,231,343 are confirmed cases, including 18,775 deaths.
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by the Taiwanese Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+

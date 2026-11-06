@@ -693,3 +693,94 @@ Tags: `Italy` `2026-11`
 - [ANSA](https://it.wikipedia.org/wiki/ANSA) — L'Agenzia nazionale della stampa associata, comunemente nota con l'acronimo ANSA, è la maggiore agenzia d'informazione italiana e tra le prime nel mondo. Fu fondata a Roma nel 1945 in forma cooperativa dai primi sei quotidiani dell'Italia liberata, per succedere alla disciolta Agenzia Stefani e garantire al Paese un'informazione di base indipendente.
 - [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
 
+### Italy(検索日時 / searched at: 2026-11-05)
+
+Tags: `Italy` `2026-11`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Pagina principale](https://it.wikipedia.org/wiki/Pagina_principale) — 
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
+- [ANSA](https://it.wikipedia.org/wiki/ANSA) — L'Agenzia nazionale della stampa associata, comunemente nota con l'acronimo ANSA, è la maggiore agenzia d'informazione italiana e tra le prime nel mondo. Fu fondata a Roma nel 1945 in forma cooperativa dai primi sei quotidiani dell'Italia liberata, per succedere alla disciolta Agenzia Stefani e garantire al Paese un'informazione di base indipendente.
+
+### Brazil (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [Luiz Inácio Lula da Silva](https://en.wikipedia.org/wiki/Luiz_In%C3%A1cio_Lula_da_Silva) — Luiz Inácio Lula da Silva (born Luiz Inácio da Silva, 27 October 1945), known mononymously as Lula, is a Brazilian politician, trade unionist, and former metalworker who has served as the 39th president of Brazil since 2023. A member of the Workers' Party, he served as the 35th president from 2003 to 2011.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 災害激甚化、タイ製造業の「新常態」に トヨタなど自動車生産停止 · バンコク、豪雨で主要道路の冠水相次ぐ 都知事「東部で洪水」 · 東京ガス系、タイで再エネ電力を供給 ...
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【IT】 タイ がデータセンター規制案、冷却水80%再利用を義務化 既存施設も対象 · 【不動産】プーケット不動産、利回り10%超も 大手3社が戸建てから高級別荘まで攻勢 · 【商業】 ...
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — 無許可のペットフード6000万円相当を押収 バンコク西郊サムット・サーコーン市で… · 化学物質流出の東部プラーチーンブリー県 住民4人から基準値超のヒ素・スチレン.
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — 物が転がりPCもガタガタ、 タイ 人の間で話題に · タイ の 今日 は何の日？ 11月4日は台風ゲイがチュムポーンを直撃した日 · タイ のミシュラン「ビブグルマン」2027年版、151店 ...
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — 首都空港、著名人向けプレミアムサービス導入へ · タイ . 11月3日. 日阪製作所、 タイ 法人を完全子会社化 · タイ . 11月3日. 中国EC淘宝が タイ 市場で急成長、中小に打撃.
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新ニュース · Jの風レイソル ACLEのタイ遠征、ピッチの外でも支える裏方た ち · ネパールで急増した「ガチ中華」 災害は中印との三角関係を変えるか · ボッチャの練習拠点が ...
+- [時事速報：アジア／バンコク版－時事通信社 - JIJI-WEB](https://jijiweb.jiji.com/info/sample/bangkok.html) — 【バンコク時事】 タイ 観光・スポーツ省が2日発表した10月の訪 タイ 外国人旅行者数（速報値）は、前年同月比12．0％減の226万5000人となり、5カ月連続の ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — バンコク都庁で人事汚職「昇進と引き換えに条件提示」職員が告発 。一向に改… · チェンマイで33歳女性が謎の失踪！ · トヨタ、新型「イノーバ・ゼニックス」タイで発売！
+
+### Germany (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Germany (English)` `2026-11`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — イタリア・ミラノでも略奪・破壊 暴徒の若者ら警察と衝突 · マクロン仏大統領、暴動めぐり「代償を」 物価高・教育デモには理解 · 「欧州の病人」を待ち構える財政規律の ...
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 最新ニュース · ボブ・ディランがローマ教皇と面会 黒いフード姿で自伝をプレゼント · イタリアの映画監督ティント・ブラスさん死去 「カリギュラ」 · 壁なくし、人々と歩む ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 11/01: ロシアの富豪の豪華ヨット、巨額の維持費を負担するのは イタリア の納税者; 10/29: 氷河の融解で次々に現れた第1次大戦の不発弾、軍が数百発を撤去 伊北部 ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — イタリア・ミラノでも激しい衝突、略奪も 200人以上拘束 . Italy. ローマ教皇レオ14世、肺腺がん確認 手術成功 · 動物愛護団体、ミラノファッションウイークで毛皮使用 ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — ローマ教皇、肺腺がんと診断 右肺下葉の切除手術は成功と教皇庁 · トコジラミが機内で発生、運航をキャンセル 豪カンタス航空 · イタリア政府、学校でブルカとニカブ着用禁止 ...
+- [Notizie Italia: Ultima Ora - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsitaly&hl=ja) — 2026/10/29 - イタリアの最新ニュース ：速報、今日のヘッドライン、ローカルニュース、そして主要新聞の報道レビューを1つのアプリで。 イタリアのニュースをすべて ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「 イタリア 」 ニュース 一覧 ; ユーロ圏 10月の消費者物価指数は4％上昇に 約3年ぶり高水準. 11月4日 22:29 ; ユーロ圏GDP 7月から9月期 伸び率プラス0.4% 2期ぶり縮小. 10月30 ...
+- [イタリア 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/6a23dcecdbb44001d0f00f92fade3287eef9989efa2f4b2782f701dceb20e638) — ナポリ、負傷者続出で緊急事態 CLポルト戦で10人欠場 、アッレグリ監督が悲痛の訴え「13人しかいない」「練習すらできない」.
+
+### China (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 吉林省琿春の中ロ国境、今年の出入境旅客が80万人超す 過去最多. 新華社通信; 11月5日 20時46分. 中国 西北部で野鳥観察が人気 希少な鳥も飛来. 新華社通信
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国輸入博開幕、副首相「貿易均衡を促進」 4100社が参加 · 官房長官、香港活動家への実刑判決に「一国二制度への信頼損なう」 · クラボウ、中国で自動車内装材から撤退 ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 第140回広交会、海外バイヤー数が過去最高に 広東省 · 世界インターネット大会青書「中国のスマート経済、新たな形態が急速に台頭」 · 中国、2030年までに鉄道約1万5000キロ ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 訪中を前に 中国 の王亜軍駐北朝鮮大使（左）. 北朝鮮の党代表団が訪中 金成男書記、関係強化か. 11月03日. 共同通信. 【速報】北朝鮮の党高官代表団が 中国 訪問. 11月03日.
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 資源の節約徹底へ、政府が行動計 画 · 経済 · マクロ経済 ; 貿易不均衡の是正アピール、中国輸入博が開幕 · 経済 · マクロ経済 ; 大型ガスタービンの開発加速、5年で実用化へ.
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 国際輸入博が開幕 日本企業含む4100社超参加―上海(11月05日 15:59) · 元指導部メンバー、収賄罪で起訴 前新疆ウイグル自治区共産党委書記の馬氏― 中国 (11月05日 15: ...
+- [中国 の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/007c341ed731341e2337/) — 中国 · 米中間選「 中国 には好機か」作家の門田隆将氏が講演 名古屋「正論」懇話会 · 1:08 · 中国 ・香港株式市場・大引け＝香港3.7％高で21カ月ぶり大幅上昇、 中国 は小幅高.
+
+### South Korea (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `South Korea (English)` `2026-11`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+- [Korean Americans](https://en.wikipedia.org/wiki/Korean_Americans) — Korean Americans (Korean: 한국계 미국인) are Americans who have full or partial Korean ethnic ancestry. While the broader term Overseas Korean in America (미주한인/재미교포/재미한인) may refer to all ethnic Koreans residing in the United States, the specific designation of Korean American implies the holding of American citizenship.
+

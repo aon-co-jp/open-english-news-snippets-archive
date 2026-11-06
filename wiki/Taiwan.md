@@ -802,3 +802,16 @@ Tags: `Myanmar (English)` `2026-11`
 - [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 
+### Taiwan(検索日時 / searched at: 2026-11-05)
+
+Tags: `Taiwan` `2026-11`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](http://www.baidu.com/link?url=WV8zuIRNfl4rdV0E-IGX20M4bYSq4P6iP61bw8r8krO) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](http://www.baidu.com/link?url=WV8zuIRNfl4rdV0E-IGX2BS6AMcro50hhgFzUA0RV-i) — 
+- [台灣週報 - 提供台灣及全球即時 頭條新聞 , 財經 信息,社會新聞,國際資訊](http://www.baidu.com/link?url=Yw8z0K8-qd_ZThqcydRrJlPSZA-x-LwXat9Z-d-i_ZDoyup6NQF4nAuQqzABB6qn) — 
+- [台海新闻网_ 今日台湾新闻 _最新,最近中国台湾新闻报道-手机闽南网](http://www.baidu.com/link?url=Yw8z0K8-qd_ZThqcydRrJmRT6C8hX6rssOqyqL0WmMxwViP2S664WiZdlrgnzuWV) — 
+- [即时 新闻 _新华 台湾 _新华网](http://www.baidu.com/link?url=iH6MPXZqhGuuDBRbEJ3-M-99keyFRgkfC1cM_FsMv4oao5L3Hm1kVCcDjLRgysrg) — 
+- [台海新闻网_ 今日台湾新闻 _最新,最近中国台湾新闻报道-台海网](http://www.baidu.com/link?url=MA3e1NImSBJRB_ldQ1w8p_vgpNto1umKYs4jL13QhY-h5MpZfMaHQ3kyIkHxQcPA-CNN7Mna0vClXWQSjmbfi_) — 
+- [中国 台湾 网](http://www.baidu.com/link?url=03cyGlic0nq4Imb474-KkmJHymrDIxTyHP_6dizd-kPcrjtwPixQEM6O7oU1Rafy) — 
+- [新华 台湾 _新华网](http://www.baidu.com/link?url=VGevUlo56nTUtPMq60zhcM8fzh2_W9NwYGJ5I4W7IHCOwpJH5BlaV5wA3z8wsKco) — 
+

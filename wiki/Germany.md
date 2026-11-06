@@ -747,3 +747,42 @@ Tags: `Germany` `2026-11`
 - [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
 - [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
 
+### Germany(検索日時 / searched at: 2026-11-05)
+
+Tags: `Germany` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Deutschland](https://de.wikipedia.org/wiki/Deutschland) — Deutschland (; Vollform des Staatsnamens: Bundesrepublik Deutschland) ist ein Bundesstaat in Mitteleuropa. Es besteht aus 16 Ländern und ist als freiheitlich-demokratischer und sozialer Rechtsstaat verfasst.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Heute-show](https://de.wikipedia.org/wiki/Heute-show) — Die heute-show (Eigenschreibweise auch heute show und heute SHOW) ist eine deutsche Comedy- und Satiresendung im ZDF mit Stilelementen einer Nachrichtensendung. Ihr Name wurde in Anlehnung an die ZDF-Nachrichtenformate heute und heute-journal sowie die ARD-Sendung Tagesschau gewählt.
+- [Nachrichten](https://de.wikipedia.org/wiki/Nachrichten) — Unter Nachrichten als Plural von Nachricht (oft auch synonym für Nachrichtensendung) ist die regelmäßige Berichterstattung in Form von mehreren journalistischen Nachrichten über aktuelle politische, wirtschaftliche, soziale, kulturelle, sportliche und sonstige Ereignisse in komprimierter Form zu verstehen.
+- [Bundespräsident (Deutschland)](https://de.wikipedia.org/wiki/Bundespr%C3%A4sident_(Deutschland)) — Der Bundespräsident (Abkürzung BPr, auch BPräs) ist das Staatsoberhaupt (Art. 54–61 GG) der Bundesrepublik Deutschland und protokollarisch ihr höchstes Verfassungsorgan.
+- [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
+- [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
+
+### Austria (English)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Miss Universe 2026](https://en.wikipedia.org/wiki/Miss_Universe_2026) — Miss Universe 2026 will be the 75th Miss Universe pageant, scheduled to be held at the José Miguel Agrelot Coliseum in San Juan, Puerto Rico, on 24 November 2026. The event will be presented by former titleholder Dayanara Torres.
+- [Lamine Yamal](https://en.wikipedia.org/wiki/Lamine_Yamal) — Lamine Yamal Nasraoui Ebana (born 13 July 2007) is a Spanish professional footballer who plays as a right winger for the La Liga club Barcelona and the Spain national team. He is widely regarded as one of the best players in the world.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-11-05)
+
+Tags: `Taiwan (Japanese)` `2026-11`
+
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾情勢 · 中国船50隻超が広域展開、日台比への脅威「明白」と台湾高官 · コメディアン襲撃関与巡る台湾の非難、中国「でっち上げ」と一蹴.
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「台湾」ニュース一覧 · アメリカ中間選挙 世界の受け止めは？【特派員解説】 · 台風30号 台湾で1人死亡 600人以上けが 日本人学校で門倒れる · 台湾で台風30号の被害相次ぐ ...
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 台湾 東部の幹線道路、改良工事始まる 2032年完了予定、台北─花蓮が約2時間に · 永豊銀行にサイバー攻撃 顧客418人が不正送金被害 総額約2億円／ 台湾 · 西武、来年2月に 台湾 ...
+- [台湾ニュース ＠中央社フォーカス 台湾 (@focustaiwanjapa) / X](https://x.com/focustaiwanjapa) — 台湾ニュース を政治、社会からスポーツ、エンタメまで、日本語で毎日発信しています。 公式アプリ配信中。iOS、Androidに対応しています。「フォーカス 台湾 ... 台湾 ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国・台湾 · 中国輸入博開幕、副首相「貿易均衡を促進」 4100社が参加 · 官房長官、香港活動家への実刑判決に「一国二制度への信頼損なう」 · クラボウ、中国で自動車内装材 ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — ニュース · 外交部、APEC全てのメンバーが「対等な立場で参加する」という基本原則を中国は尊重すべき · 農業部、 台湾 産米のチャリティー販売で熊本県の被災地復興を支援.
+- [台湾 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/taiwan) — パナ関連企業の新竹工場で火災、行方不明者も · 台湾 . 11月5日 NEW · 住宅価格、3Qも小幅下落 実需中心、投機資金退き動き鈍く · 台湾 · PICK UP · パナ関連工場の火災、 ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 名門の穀保家商、野球部を他校に移管へ 陳冠宇ら輩出 少子化影響／ 台湾 · 台湾 の鉄道模型コンテスト、日本の学校が1位に 日本の大会で入賞の 台湾 校も ...
+
