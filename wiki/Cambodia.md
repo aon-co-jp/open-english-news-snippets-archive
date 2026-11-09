@@ -923,3 +923,9 @@ Tags: `Thailand (Japanese)` `2026-11`
 - [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — ... タイ 当局「司法判断」; サンゴ白化に備え水温監視＝プーケットの国立公園; 中東情勢で4シナリオ想定＝買いだめ不要と強調. 《各地の タイ 関連 ニュース 》. 群光、通信用電源 ...
 - [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — バンコクのサイアムパラゴンで転落事故 。「なぜタイのモールには、セーフテ… · 2026-11-7. フォロワー64万人のタイ女性配信者逮捕。 · 2026-11-7. タイ国際航空のバンコク発 ...
 
+### Cambodia(検索日時 / searched at: 2026-11-08)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
