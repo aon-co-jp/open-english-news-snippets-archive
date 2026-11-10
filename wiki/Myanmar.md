@@ -827,3 +827,126 @@ Tags: `Myanmar` `2026-11`
 
 - (no items / 記事なし)
 
+### Myanmar(検索日時 / searched at: 2026-11-09)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Switzerland (English)(検索日時 / searched at: 2026-11-09)
+
+Tags: `Switzerland (English)` `2026-11`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Die Weltwoche](https://en.wikipedia.org/wiki/Die_Weltwoche) — Die Weltwoche (German pronunciation: [diː ˈvɛltˌvɔxə], "The World Week", formerly known as the "Schumacher Press", after it's founder) is a Swiss weekly magazine based in Zollikon, Canton of Zurich. Since 2006, it has been privately owned by Roger Köppel, a publicist, journalist and politician from the right-wing populist and conservative Swiss People's Party.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
+- [List of vice presidential trips made by JD Vance](https://en.wikipedia.org/wiki/List_of_vice_presidential_trips_made_by_JD_Vance) — This is a list of vice presidential trips made by JD Vance during his tenure as the 50th vice president of the United States. This list excludes trips made within Washington, D.C., the U.S. federal capital, in which the Number One Observatory Circle, the official residence of the vice president, is located.
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-09)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — 【政治】【経済】 · ミャンマー の対外債務108億米ドル 新規借入はクーデター後に84％減 ; 【政治】【経済】 · ミャンマー 軍政、3経済特区の開発について協議 ; 【社会】 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー資源開発再開 タイ国営系主導、西側大手撤退で勢力図一変 · ミャンマー衝突半減、激戦は局地的に 民主派武装に支持離れ · 中ロ印がミャンマーと物流・エネ網整備 ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — 【 ミャンマー 】燃料・肥料輸入の免税措置、11月末まで延長 · ミャンマー 来年4月に補選 親軍政権 · 4:19 · ミャンマー のブラックリスト除外の働きかけ、日本財務省が報道を否定.
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — ミャンマー親軍政権トップがマレーシア訪問 ASEAN「復帰」狙う . 2026年10月8日18時30分 · ミャンマー人の送還、マレーシアで加速 移民・難民への反感が背景に. 2026年9月29 ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー 、来年4月に補選(11月06日 17:25) · ロヒンギャ迫害、19日判決 ジェノサイド訴訟―国際司法裁(11月04日 07:48) · ASEAN特使が ミャンマー 訪問 スーチー氏と ...
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー経済の詳細やビジネスに直結する新着ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — 「ミャンマー」ニュース一覧 · 国連 ミャンマーの民主派大使が軍への武器供給停止訴え · 拘束中のスー・チー氏と電話 次男“生存確認できてよかった” · 拘束続くスー・チー氏に ...
+
+### China (English)(検索日時 / searched at: 2026-11-09)
+
+Tags: `China (English)` `2026-11`
+
+- [China Today (TV program)](https://en.wikipedia.org/wiki/China_Today_(TV_program)) — China Today is a news program that focuses on news issues and current affairs around China. China Today 30 minute's episodes are broadcast on CCTV-9 at 22:00 China Standard Time (UTC+8), or 14:00 UTC every day, and rebroadcasts twice at 01:00 and 07:00 UTC+8 the next morning, or 17:00 and 23:00 UTC. The Sunday edition of China Today is called China This Week, which takes a look back at major issues happen around the country within the previous 6 days.
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-09)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — 最新ニュース · 運動会の映像に驚きの声も エジプトで日本式教育の教員養成始まる · 三井寺を初選出 サッカーU21代表 · （政官界ファイル）自衛隊海外派遣を延長 · イスラム ...
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — エジプト下院、サウジ軍事支援策を承認 派兵実施か · サウジ国防相ら、イラン大統領と会談 「緊張緩和へ対話」 · フーシ、サウジアラビア首都の空港を再び攻撃 運用再開日に ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 11/09: エジプトで列車が衝突、7人死亡 112人負 傷; 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代エジプト人、王の死に際し ...
+- [エジプト の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/egypt/page2) — エジプトのニュース・速報 . 200件中 21~40件表示. 米CNNテレビからの退社を発表したクリスチャン・アマンプールさん＝2019. CNN看板記者、来年退社 C・アマンプールさん.
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+- [「 エジプト 」 ニュース 一覧](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425?page=3) — 「エジプト」ニュース一覧 · フランス ルーブル美術館 入館料に「二重価格」導入 · イスラエル 遺体返還でエジプトに代表団 ハマスはトルコと協議 · ハマス 人質1人の遺体返還 ...
+- [エジプト で列車追突 7人死亡 - 毎日新聞](https://mainichi.jp/articles/20261110/ddm/007/030/124000c) — 8分前 - エジプト の首都カイロ近郊ギザで8日、列車が別の列車に追突する事故があり、一部の車両が脱線した。鉄道当局が発表した。検察当局は、運転士を含む7人 ...
+
+### Japan (English)(検索日時 / searched at: 2026-11-09)
+
+Tags: `Japan (English)` `2026-11`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Cool Japan](https://en.wikipedia.org/wiki/Cool_Japan) — Cool Japan (クールジャパン, Kūru Japan) refers to the aspects of Japanese culture that non-Japanese people perceive as "cool". After the success of "Cool Britannia," the Japanese government started using the phrase.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+
+### France (Japanese)(検索日時 / searched at: 2026-11-09)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — Special PR · 東京特集:TOKYO UPDATES · 仏各地で4週連続の週末デモ、パリでは参加者と警官が衝突.
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — 【解説】抗議活動で勢いづく欧州の若者たち、何で結びついているのか · フランス 各地の抗議で参加者急増、賃上げ求め労組も協調 · 欧州諸国の軍関係者数千人、ウクライナ停 ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · 高市首相のG7オンライン会議欠席 木原長官“時間確定が直前” · ラグビー 日本次戦の相手イングランドがオーストラリアに快勝 · 株価 6万円割れ ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/06: フランス 全土で大規模デモ、最多の57万人超が参加 警察と衝突も; 11/01: ハロウィーンに合わせドイツへデモ拡大 フランス でも数十万人が参加 · エムバペ ...
+- [ET TOI（エトワ）| フランス 情報メディア](https://www.parisettoi.fr/) — France today 今日のフランス · アパレル3社が倒産 · 5日に全国で労組によるデモ行進、政府は9日に労使全体会議の招集を予告 · 欧州で中距離便に虚偽の爆弾テロ予告相次ぐ.
+- [フランス の ニュース ・最新記事 - 読売新聞](https://www.yomiuri.co.jp/keyword/99916/) — 【ECB総裁・独占インタビュー〈中〉】仏大統領選関与へ｢でっち上げ、見過ごせない｣ · 【ECB総裁・独占インタビュー〈上〉】追加利上げ示唆 物価高への危機感あらわ · ECB ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランスで最大規模デモ、当局発表57万人 賃上げ要求ストも実施 · 仏大統領選へ半年 極右追う急進左派、与党系3氏分裂で浮かぶ「両極」 · 仏極右ルペン氏「法の支配を回復」 ...
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-09)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 10月27日 時事） ドイツ のメルツ首相は28日、昨年5月の就任後初めて日本を訪れ、高市早苗首相と会談する。ロシアの侵攻を受けるウクライナ情勢や、覇権主義的な ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 ; 株価 6万円割れ 値下がり幅は終値として過去3番目. 11月6日 20:27 ; アメリカ中間選挙 世界の受け止めは？【特派員解説】. 11月5日 9:11 ; ユーロ圏 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 最新ニュース · 卓球、張本智和と早田ひなが優勝 チャンピオンズ・フランクフルト · 爆撃機→輸送艦→爆撃機で東京へ「ヒッチハイク」 ハッシー海を渡る · 鈴木唯人、今季5点 ...
+- [ドイツ アーカイブ - 欧州経済ビジネス情報 NNA POWER ...](https://emb-media.com/europe/main_country/europe-germany/) — ドイツ . 2026/11/06（金）. 独、大規模デモで一部暴徒化＝20日にも計画. ドイツ . 2026/11/06（金）. 英中銀、政策金利4％に. SNSでEMB ニュース をフォロー. EU自動車規制 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 欧州の極右政党「トランプ離れ」 中間選挙大敗でイラン攻撃批判 · バンス氏、トランプ氏に「米国第一」回帰迫る 大統領選へ地盤立て直し · バンス氏、中間選挙の大敗「戦争が ...
+
+### China (Japanese)(検索日時 / searched at: 2026-11-09)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 最新の中国ニュース ; 習近平主席、ブルガリア大統領選出のヨトバ氏に祝 電（詳報） · 11月9日 22時4分 ; 【躍動中国】現実に根差した作品群、映画祭で存在感 · 11月9日 20時9分.
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 台湾の10月輸出58.9%増 36カ月連続増、サーバーけん引 · 中国 、対米追加関税の停止2カ月延長 首脳合意を履行 · 中国 不動産・正栄地産の中核子会社に清算命令 香港高裁 ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 8日、米フロリダ州で記者団に話すトランプ大統領（AP ... 代表団が 中国 訪問. 11月03日. 共同通信. 英中部ハルに到着したブッシュビー ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — トランプ氏、中ロ首脳とAPECで会談見通し 「イラン戦争終結も議題」 · 台湾、パプアニューギニアの代表処閉鎖へ 「 中国 が干渉」と主張 · 中国 半導体メーカーYMTC、新 ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 高市首相の台湾関連の誤った発言から1年、外交部「日本は依然として問題を回避している」 · 第9回輸入博が開幕 ますます大きく開かれる 中国 の対外開放の扉 · 陸上配備型大陸 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 、対米追加関税の停止延長 2カ月間、新たな措置を警戒(11月09日 14:10) · 中国 消費者物価、0．7％上昇 内需低迷、4カ月連続1％割れ―10月(11月09日 11:58) · 中国 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/05: 香港民主活動家の黄之鋒氏、新たに禁錮10年の判決; 11/01: エムバペとハローキティに思わぬ共通点、相次ぎ 中国 の怒り買う事態に; 10/31: キノコの王者「D ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-09)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Korotko Pro](https://en.wikipedia.org/wiki/Korotko_Pro) — Korotko Pro (Cyrillic: Коротко про; lit. 'Briefly about'), formerly KP in Ukraine (Ukrainian: КП в Україні; Russian: КП в Украине) is a Ukrainian newspaper in Kyiv, the nation's capital. It is a Ukrainian language newspaper.
+- [Disinformation in the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Disinformation_in_the_Russo-Ukrainian_war) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+
