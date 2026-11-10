@@ -901,3 +901,16 @@ Tags: `Taiwan (English)` `2026-11`
 - [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
 - [Ting Hsin International Group](https://en.wikipedia.org/wiki/Ting_Hsin_International_Group) — Ting Hsin International Group (Chinese: 頂新國際集團; pinyin: Dǐngxīn Guójì Jítuán) is a Taiwanese-owned corporate group established in 1958. It owns various food brands such as the instant noodle maker Master Kong, Wei-Chuan Food Corporation and Dicos.
 
+### Italy(検索日時 / searched at: 2026-11-09)
+
+Tags: `Italy` `2026-11`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Pagina principale](https://it.wikipedia.org/wiki/Pagina_principale) — 
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
+- [Corriere della Sera](https://it.wikipedia.org/wiki/Corriere_della_Sera) — Il Corriere della Sera è un quotidiano italiano, edito a Milano da RCS MediaGroup, fondato nel 1876 da Eugenio Torelli Viollier. Nel febbraio 2025 aveva una diffusione media di 221.558 copie, confermandosi il primo in Italia per diffusione e per numero di lettori.
+

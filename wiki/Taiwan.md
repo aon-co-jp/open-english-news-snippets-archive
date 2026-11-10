@@ -1101,3 +1101,16 @@ Tags: `Egypt (Japanese)` `2026-11`
 - [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
 - [エジプト で列車脱線 運転士死亡、負傷者少なくとも50人](https://news.livedoor.com/topics/detail/32765081/) — 3時間前 - 【新華社カイロ11月8日】 エジプト メディアの8日の報道によると、同国首都カイロから南部アスワンに向かっていた列車が同日、ギザ県で脱線し、運転士が ...
 
+### Taiwan(検索日時 / searched at: 2026-11-09)
+
+Tags: `Taiwan` `2026-11`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](https://tvn.com.tw/) — 
+- [台灣週報 - 提供台灣及全球即時 頭條新聞 , 財經 信息,社會新聞,國際資訊](https://www.taiwanweekly.com/) — 
+- [中国 台湾 网](http://taiwan.cn/) — 
+- [海峡两岸首页](https://www.cctv.com/fuxingbbs/special/C21627/01/) — 
+- [即时 新闻 _新华 台湾 _新华网](https://www.news.cn/tw/jsxw/) — 
+- [新华 台湾 _新华网](http://www.xinhuanet.com/tw) — 
+- [【快资讯】你的专属资讯平台](https://look.360.cn/home/next?ch=L%3Ataihai&uid=da5d187190b5ab70d6b74502ed989734&sign=look&refer_scene=nh_) — 
+- [台海](https://m.huanqiu.com/list/taiwan?sqysr=25886) — 
+

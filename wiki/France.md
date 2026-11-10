@@ -767,3 +767,16 @@ Tags: `Russia (Japanese)` `2026-11`
 - [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · 米国に裏切られたゼレンスキー、中間選挙のためウクライナを犠牲にするトランプと決別する覚悟 · 「ロシア版グーグル」ヤンデックスのデータセンターが相次ぎ被弾、 ...
 - [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — ロシア、欧州各国のスーパー狙ったサイバー攻撃への関与否定 冷蔵庫の温度急上昇 · ロシア大統領府、米・ウとの3か国協議を確認 10～11日にアブダビで · ロシア、モスクワ ...
 
+### France(検索日時 / searched at: 2026-11-09)
+
+Tags: `France` `2026-11`
+
+- [France 24](https://fr.wikipedia.org/wiki/France_24) — France 24, projet initialement nommé CFII, est une chaîne de télévision française d'information internationale en continu, lancée le 6 décembre 2006. Depuis l'année 2012, la chaîne est constituée sous la forme d'une société nationale de programmes intitulée France Médias Monde, entreprise produisant l'audiovisuel extérieur de la France.
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [France Football](https://fr.wikipedia.org/wiki/France_Football) — France Football est un magazine mensuel de football français créé en 1946.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Fabrice Arfi](https://fr.wikipedia.org/wiki/Fabrice_Arfi) — Fabrice Arfi, né le 4 septembre 1981 à Lyon, est un journaliste français. Il est connu pour ses enquêtes à l'origine de nombreuses révélations sur l'affaire Woerth-Bettencourt, l'affaire Karachi, l'affaire Sarkozy-Kadhafi, l'affaire des quotas de carbone et l'affaire Cahuzac.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+
