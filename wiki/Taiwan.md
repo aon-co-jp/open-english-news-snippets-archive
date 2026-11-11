@@ -1114,3 +1114,68 @@ Tags: `Taiwan` `2026-11`
 - [【快资讯】你的专属资讯平台](https://look.360.cn/home/next?ch=L%3Ataihai&uid=da5d187190b5ab70d6b74502ed989734&sign=look&refer_scene=nh_) — 
 - [台海](https://m.huanqiu.com/list/taiwan?sqysr=25886) — 
 
+### Taiwan(検索日時 / searched at: 2026-11-10)
+
+Tags: `Taiwan` `2026-11`
+
+- [李文儀](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E5%84%80) — 李文儀（1978年9月30日—），於台灣出生的台灣新聞主播、主持人、製作人，畢業於英國倫敦大學學院國際公共政策碩士。現為三立新聞台《台灣大頭條》當家主播、《消失的國界》主持人、三立iNEWS《台灣新思路》主持人。
+- [蘋果日報 (台灣)](https://zh.wikipedia.org/wiki/%E8%98%8B%E6%9E%9C%E6%97%A5%E5%A0%B1_(%E5%8F%B0%E7%81%A3)) — 《蘋果日報》（英語：Apple Daily）是香港壹傳媒曾在臺灣所發行的正體中文報紙，創辦人是黎智英，以香港《蘋果日報》為藍本；自2018年3月起，分為數位及紙媒編輯部，社長陳裕鑫為台灣境內負責人兼紙媒總編輯。由於營運上虧損持續，於2021年5月17日發行最後一期紙本報紙後於次日停刊，集中發展線上新聞網。
+- [中國時報](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9C%8B%E6%99%82%E5%A0%B1) — 《中國時報》，簡稱中時，是中華民國綜合性中文報紙，由已故知名報業人余紀忠創辦於1950年，現任董事長為王丰，社長兼總編輯為黃樹德。
+- [李晶玉](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%99%B6%E7%8E%89) — 李晶玉（1968年10月19日—），臺灣新聞主播及主持人，籍貫江西省，夫婿彭文正為通緝犯，夫妻二人曾主持過壹電視新聞台政論節目《正晶限時批》與民視新聞台政論節目《政經看民視》，現擔任網路政論節目《政經關不了》主持人、《今天遇見你》主持人。
+- [字幕跑馬燈](https://zh.wikipedia.org/wiki/%E5%AD%97%E5%B9%95%E8%B7%91%E9%A6%AC%E7%87%88) — 新聞跑馬燈（有時簡稱跑馬燈；英語對應詞：News ticker）是在電視新聞畫面上的一個小空間，通常是用來顯示頭條新聞或是新聞報導中較小的細節。跑馬燈有時也指在某些建築物或室內空間用來表現訊息的顯示版，如鐵路站內的列車到站資訊顯示跑馬燈。
+- [台灣民政府](https://zh.wikipedia.org/wiki/%E5%8F%B0%E7%81%A3%E6%B0%91%E6%94%BF%E5%BA%9C) — 台灣民政府是於2008年2月2日在台灣以政治名義成立的爭議性組織。台灣一些縣市警察局已將之列為詐騙集團。
+- [有线电视新闻网](https://zh.wikipedia.org/wiki/%E6%9C%89%E7%BA%BF%E7%94%B5%E8%A7%86%E6%96%B0%E9%97%BB%E7%BD%91) — 有線電視新聞網（英語：Cable News Network），英語縮寫及通稱「CNN」，是美國一個透過有線電視與衛星電視播出的新聞頻道，由泰德·透納於1980年創辦，最初由透納廣播公司經營，現隸屬天舞公司旗下。對全世界播出，CNN總部和主要播報室位於美國喬治亞州的亞特蘭大。
+- [三立iNEWS](https://zh.wikipedia.org/wiki/%E4%B8%89%E7%AB%8BiNEWS) — 三立iNEWS（英語：SET iNEWS Channel），為三立電視旗下財經頻道之一，於2011年5月3日開播，是三立電視第五個開播的頻道，姊妹台頻道為三立新聞台。原名三立財經台，2017年6月26日晚間六點更為現名至今。
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-10)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ 発 ニュース · 独政府、防衛大手KNDSに50％出資「合意間近」＝一部上場の意向継続 · EUが基礎学力向上へ教育支援＝AI活用能力育成、教員不足対策も · メルセデス・ベンツ ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany. ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 ; 【随時更新】ロシア ウクライナに軍事侵攻（11月10日の動き）. 11月10日 15:38 ; ドイツ 与党が次期大統領候補にアイグナー氏を擁立. 11月10日 7:00.
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相、次期戦闘機構想で日英伊への合流に懸念 首相と温度差 · 日英伊の戦闘機開発、他国参加を否定せず 次期駐日英国大使 · メルツ独首相、日英伊の戦闘機開発に参画 ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-10)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- [Tajikistan country profile - BBC News](https://www.bbc.com/news/world-asia-16201032) — Oct 30, 2024 · Provides an overview of Tajikistan, including key dates and facts about this central Asian country.
+- [Tajikistan - Wikipedia](https://en.wikipedia.org/wiki/Tajikistan) — Tajikistan, [c] officially the Republic of Tajikistan, [d] is a landlocked country in Central Asia. Dushanbe, its capital, is its largest and …
+- [Tajikistan | People, Religion, History, & Facts | Britannica](https://www.britannica.com/place/Tajikistan) — Oct 28, 2026 · Tajikistan, country lying in the heart of Central Asia with its capital in Dushanbe. Of the Central Asian states, it has the …
+- [Tajikistan - World Bank Group](https://www.worldbank.org/ext/en/country/tajikistan) — Tajikistan is a lower-middle-income country in Central Asia with a population of 10.8 million people (2026). Landlocked, it borders four …
+- [タジキスタン ってどんな国？治安や歴史など旅行前に知って ...](https://tabilapin.com/tajikistan-travel-guide/) — Oct 25, 2025 · 中央アジアの山岳国家タジキスタン（Tajikistan）は、美しい自然と伝統文化が今も色濃く残る異国情緒に溢れる魅力 …
+- [タジキスタン 共和国｜外務省](https://www.mofa.go.jp/mofaj/area/tajikistan/index.html) — Aug 24, 2008 · 英利外務大臣政務官のタジキスタン及びキルギス訪問（令和8年8月7日） 日・タジキスタン投資協定の発効（令和8 …
+- [タジキスタン - Wikipedia](https://ja.wikipedia.org/wiki/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタン ... タジキスタン共和国 （タジキスタンきょうわこく、 タジク語: Ҷумҳурии Тоҷикистон 英: Republic of Tajikistan[1]） …
+- [【 タジキスタン 旅行】行く前に知りたい！在住者による基本 ...](https://www.veltra.com/jp/yokka/article/tajikistan-basic-info/) — May 13, 2024 · 中央アジアの最貧国と言われ、まだ新しい国であるタジキスタンは知名度が低く情報が少ないですが、自然豊かな高 …
+
+### Egypt (English)(検索日時 / searched at: 2026-11-10)
+
+Tags: `Egypt (English)` `2026-11`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Al-Masry Al-Youm](https://en.wikipedia.org/wiki/Al-Masry_Al-Youm) — Al-Masry Al-Youm (Arabic: المصري اليوم, romanized: al-Maṣrī l-Yawm, IPA: [elˈmɑsˤɾi lˈjoːm], meaning The Egyptian Today) is an Egyptian privately owned daily newspaper that was first published in June 2004. It is published in Arabic as is its website, almasryalyoum.com.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-11-10)
+
+Tags: `Switzerland (Japanese)` `2026-11`
+
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイスの主要メディアが報じた日本 関連ニュース を週1回、まとめてお届けする無料ニュースレターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — UBS、スイス脱出の切り札 メガバンク・野村は統合相手の伏兵か · フランス今や「欧州の病人」 金利はPIIGS超え、政治不安で国債売り · 欧州の銀行再編、イタリアが震源地 最 ...
+- [Schweiz News - Aktuelle Infos - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.alllatestnews.schweiznewspaper&hl=ja) — 2026/6/24 - スイスの現在の出来事 について知る 必要があるすべての情報を 1 か所で見つけることができます。 2. 最近のトピックと最新ニュース: 最もホットなトピック ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — スイスの氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイスで観光客を乗せたバスが横転 5人死亡 · W杯 決勝トーナメント【全結果 ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 最新ニュース · 世界最高峰の時計賞で日本勢が快挙 GSと大塚ローテックが部門賞 · ひらひら舞った、「無色」の賛歌 追悼、ヘルベルト・ブロムシュテットさん · 平川組が年間 ...
+- [「 スイス について」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%B9%E3%82%A4%E3%82%B9%E3%81%AB%E3%81%A4%E3%81%84%E3%81%A6) — 【平壌、北京共同】 スイス のカシス外相率いる代表団が29日、北朝鮮の平壌に空路で到着した。滞在中、 スイス が外交拠点とする事務所の再開を記念する式典に…
+

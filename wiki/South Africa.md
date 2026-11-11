@@ -947,3 +947,29 @@ Tags: `Iran (Japanese)` `2026-11`
 - [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — サウジ首都の金融街や空港を攻撃 フーシ派声明、国営石油ビル損傷. 11月09日. 共同通信. イラン のアラグチ外相（ゲッティ＝共同）. 「要求受理か、戦争か」 イラン 外相 ...
 - [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — イランがゲリラ戦術、ホルムズ海峡の支配回復狙う · 米のイスラエル支援、終了への課題は「多額の受注残」 · バンス氏、イラン戦争めぐりトランプ氏と決別 中間選挙の大敗で.
 
+### South Africa(検索日時 / searched at: 2026-11-10)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [Democratic Alliance (South Africa)](https://en.wikipedia.org/wiki/Democratic_Alliance_(South_Africa)) — The Democratic Alliance (DA) is a liberal political party in South Africa, sitting on the centre to centre-right of the political spectrum. It has been the second-largest party in the country since its foundation in 2000.
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana (lit.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [Disinvestment from South Africa](https://en.wikipedia.org/wiki/Disinvestment_from_South_Africa) — Disinvestment from South Africa was first advocated in the 1960s in protest against South Africa's system of apartheid, but was not implemented on a significant scale until the mid-1980s. A disinvestment policy the U.S. adopted in 1986 in response to the disinvestment campaign is credited with playing a role in pressuring the South African government to embark on negotiations that ultimately led to the dismantling of the apartheid system.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+
+### China (Japanese)(検索日時 / searched at: 2026-11-10)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国のニュース・速報. トランプ米大統領（ゲッティ＝共同）、中国の習近平国家主席（タス. 中国、台本読み上げ要求か 米ロと3カ国首脳会 談. 15時23分. 共同通信.
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 人民網日本語版は 中国 で最も早く開設された日本語 ニュース サイトです。 中国 で起きた重大 ニュース のほか、経済、社会、科学、教育、文化、観光など 中国 の情報を幅広く ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 台湾情勢カテゴリー 中国、西太平洋で「領域拒否」演習実施 台湾国防部長が明らかに 3時間前 · 中国カテゴリー 中国貿易黒字、2年連続1兆ドル突破 AIブームが輸出押し上げ ...
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — アリババ、半導体部門が香港で上場申請 中国でAI向けシェア3位 · TSMC、アンソロピック・オープンAIに出資へ 最大計10億ドル · 政府、APEC宣言に「貿易の透明性」提案 中国 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 元自衛官に拘禁刑1年6月求刑 中国 大使館侵入、来月判決―東京地裁(11月10日 18:07) · スパイ疑惑巡り株主が集団訴訟 米エヌビディア(11月10日 15:52) · スパイ疑惑、FBI ...
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — ［テック白書］美団 8億人が利用、AIで体験向上 · 対米追加関税の停止延長、休戦合意で2カ月 · 10月CPIは0.7％上昇、3カ月ぶり鈍化 · APEC期間はドローン禁止、 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/10: トランプ氏、エヌビディアのフアンCEOと会話 不倫相手の 中国 スパイ疑惑「知らなかった」; 11/05: 香港民主活動家の黄之鋒氏、新たに禁錮10年の判決 ...
+- [Xinhua - jp. news .cn](https://jp.news.cn/) — 中国 の第43次南極観測隊が出発 · 9年連続出展の企業ブースを探訪 中国 輸入博 · 中国 輸入博、シニアの幅広いニーズに応える製品並ぶ 「シルバー経済」後押し · 中国 の第43 ...
+

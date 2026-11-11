@@ -914,3 +914,29 @@ Tags: `Italy` `2026-11`
 - [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
 - [Corriere della Sera](https://it.wikipedia.org/wiki/Corriere_della_Sera) — Il Corriere della Sera è un quotidiano italiano, edito a Milano da RCS MediaGroup, fondato nel 1876 da Eugenio Torelli Viollier. Nel febbraio 2025 aveva una diffusione media di 221.558 copie, confermandosi il primo in Italia per diffusione e per numero di lettori.
 
+### Italy(検索日時 / searched at: 2026-11-10)
+
+Tags: `Italy` `2026-11`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Pagina principale](https://it.wikipedia.org/wiki/Pagina_principale) — 
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [QN Quotidiano Nazionale](https://it.wikipedia.org/wiki/QN_Quotidiano_Nazionale) — QN Quotidiano Nazionale è il marchio che identifica un consorzio di quattro testate giornalistiche: il Resto del Carlino, edito a Bologna e primo quotidiano in Emilia-Romagna, presente anche nelle Marche e in Veneto nella provincia di Rovigo; La Nazione, edito a Firenze e primo quotidiano in Toscana, radicato anche in Umbria e in Liguria nella Provincia della Spezia; Il Giorno, edito a Milano e uno dei principali quotidiani della Lombardia; Il Telegrafo, storico quotidiano di Livorno, ora attivo come giornale online. Dal 1º luglio 2022 il consorzio di testate giornalistiche è diretto da Agnese Pini.
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-10)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — 韓国 に関連する最新の ニュース をお届けします。
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 きょうの ニュース （11月10日）. 11/10(火) 18:00. 金与正氏 国連事務総長に遺憾表明＝「 韓国 を代弁」. 11/10(火) 17:02. 韓国 株が4日ぶり反発 4.39％高. 11/10(火) 16 ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 「不倫」のジェンスン・フアン氏に集団訴訟…時価総額1920億ドル蒸発に株主の怒り爆発 · 【社説】「中国は…」 · 「6人殺害」ポーランド銃乱射テロの容疑者、病院で治療中に ...
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — 李在明氏を起訴した検事ら捜査へ 「疑惑は捏造」韓国で特検法成立 · 韓国大統領らの個人情報流出 専用機搭乗の168人分、ネットで公開 · 内閣改造が裏目に出た韓国・李在明 ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [「 韓国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「韓国」ニュース一覧 · 中国の貿易黒字1兆ドル超え 貿易摩擦の要因 に · 高市首相“日韓連携かつてないほど重要 関係強化を” · 韓国で日韓歌謡大会 互いの国の曲歌い交流深める.
+- [聯合 ニュース](https://jp.yna.co.kr/) — 中高の定期試験でスマートグラス使い不正行為 今年4件摘発＝ 韓国 · BIGBANGバンコク公演 悪天候で中止に＝「観客の安全最優先」 · 韓国 出前アプリ大手2社に巨額の課徴金 加盟 ...
+
