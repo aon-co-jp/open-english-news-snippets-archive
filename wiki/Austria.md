@@ -940,3 +940,29 @@ Tags: `Austria` `2026-11`
 - [RTL aktuell](https://de.wikipedia.org/wiki/RTL_aktuell) — RTL aktuell (Eigenschreibweise RTL AKTUELL) ist die Nachrichtensendung bei RTL. Die Hauptausgabe mit einer Dauer von 20 Minuten wird täglich um 18:45 Uhr live aus Köln ausgestrahlt. Bei wichtigen Ereignissen kann als Programmergänzung ein RTL aktuell Spezial zum Einsatz kommen – je nach Anlass meistens um 20:15 Uhr und mit einem Umfang von etwa 15 Minuten.
 - [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
 
+### Austria(検索日時 / searched at: 2026-11-11)
+
+Tags: `Austria` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Deutschland](https://de.wikipedia.org/wiki/Deutschland) — Deutschland (; Vollform des Staatsnamens: Bundesrepublik Deutschland) ist ein Bundesstaat in Mitteleuropa. Es besteht aus 16 Ländern und ist als freiheitlich-demokratischer und sozialer Rechtsstaat verfasst.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Nachrichten](https://de.wikipedia.org/wiki/Nachrichten) — Unter Nachrichten als Plural von Nachricht (oft auch synonym für Nachrichtensendung) ist die regelmäßige Berichterstattung in Form von mehreren journalistischen Nachrichten über aktuelle politische, wirtschaftliche, soziale, kulturelle, sportliche und sonstige Ereignisse in komprimierter Form zu verstehen.
+- [Heute-show](https://de.wikipedia.org/wiki/Heute-show) — Die heute-show (Eigenschreibweise auch heute show und heute SHOW) ist eine deutsche Comedy- und Satiresendung im ZDF mit Stilelementen einer Nachrichtensendung. Ihr Name wurde in Anlehnung an die ZDF-Nachrichtenformate heute und heute-journal sowie die ARD-Sendung Tagesschau gewählt.
+- [Bundespräsident (Deutschland)](https://de.wikipedia.org/wiki/Bundespr%C3%A4sident_(Deutschland)) — Der Bundespräsident (Abkürzung BPr, auch BPräs) ist das Staatsoberhaupt (Art. 54–61 GG) der Bundesrepublik Deutschland und protokollarisch ihr höchstes Verfassungsorgan.
+- [RTL aktuell](https://de.wikipedia.org/wiki/RTL_aktuell) — RTL aktuell (Eigenschreibweise RTL AKTUELL) ist die Nachrichtensendung bei RTL. Die Hauptausgabe mit einer Dauer von 20 Minuten wird täglich um 18:45 Uhr live aus Köln ausgestrahlt. Bei wichtigen Ereignissen kann als Programmergänzung ein RTL aktuell Spezial zum Einsatz kommen – je nach Anlass meistens um 20:15 Uhr und mit einem Umfang von etwa 15 Minuten.
+- [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
+
+### China (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 ・習近平政権 関連 ニュース · 中国 新車販売、11カ月連続減 輸出は過去最高―10月(11月11日 17:20) · 中国 首相、ASEAN会議出席へ 15日から訪比(11月11日 17:15).
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 世界初公開・アジア初展示・ 中国 初披露が480点以上 輸入博から見える 中国 の大規模市場の磁力 · 習近平氏「貧困削減と貧困脱却を論じる」が刊行 · APEC会議期間の中日首脳会談 ...
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 日産、10月の 中国 新車販売67%減 ガソリン車需要の減少大きく · 中国 新車販売10月、国内27%減 輸出は60%増で好調持続 · 中国 の李強首相、15日からフィリピン訪問 ASEAN首脳 ...
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 高雄メトロ、南海電鉄と友好協定 観光広告や技術交流で協力へ／台湾. 中央社フォーカス台湾; 11月11日 19時30分. 中国 吉林省、インバウンド観光促進に向け3カ年計画 ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. アリス・フアン氏とされる女性（中央左）とエヌビディアのジェンスン. スパイ疑惑 中国 人女性、正体は謎 国営テレビ、金融で勤務か. 18時02分.
+- [中国 の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/007c341ed731341e2337/) — 中国 · 1:42 · 今季一番の寒さの中…閉山中の富士山で 中国 人観光客が遭難 市長「残念でならない」 · 独軍、 中国 製ドローンの使用を禁止 欧州製に切り替え、情報流出懸念で · 3: ...
+

@@ -1236,3 +1236,50 @@ Tags: `Afghanistan (Japanese)` `2026-11`
 - [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 愛媛県知事選（11月15日投開票）には、5選を目指す現職と刷新を訴える新人2人の計3人が立候補した。県政への思いや意気込み、人柄を紹介する。
 - [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — イラン目指したアフガン人14人、灼熱の砂漠で遺体で発見 · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定 ...
 
+### Tajikistan(検索日時 / searched at: 2026-11-11)
+
+Tags: `Tajikistan` `2026-11`
+
+- [Рӯзнома](https://tg.wikipedia.org/wiki/%D0%A0%D3%AF%D0%B7%D0%BD%D0%BE%D0%BC%D0%B0) — Рӯзнома (форсӣ: روزنامه‎), газета, — нашрияе аст, ки ба таври мураттаб ва муназзам таҳия, чоп ва пахш мешавад ва бе ҳеч қайду шарте дар дастраси мардум қарор мегирад. Рӯзнома на баёния аст ва на иттилоъия ва барои равшан сохтани афкори мардум, балки ба нашри ахбору иттилоот дар заминаҳои гуногун ва интиқоду салоҳандешӣ дар умурӣ умумӣ мепардозад.
+- [Бозор](https://tg.wikipedia.org/wiki/%D0%91%D0%BE%D0%B7%D0%BE%D1%80) — Бозор (форсӣ: بازار‎ — bâzâr ← порсии миёна: wāzār ← порсии бостон: vāčar ← эронии бостон: *wahā-čarana аз *wahā- «додуситад кардан» + *čārana- «гаштугузор кардан») — ҷойи додуситад ва хариду фурӯши коло, маҳаллм иҷтимоъ ва додуситади фурӯшандагону харидорон.
+- [Кӯлоб](https://tg.wikipedia.org/wiki/%D0%9A%D3%AF%D0%BB%D0%BE%D0%B1) — Кӯлоб (форсӣ: کولاب‎) — шаҳр дар вилояти Хатлон. Аз ҷумлаи қадимтарин шаҳрҳои Осиёи Марказӣ маҳсуб мешавад.
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【新型戦闘機開発へ独が参加 プロジェクト全体の足枷となるか？ · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤 ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 11/01: ロシアの富豪の豪華ヨット、巨額の維持費を負担するのは イタリア の納税者; 10/29: 氷河の融解で次々に現れた第1次大戦の不発弾、軍が数百発を撤去 伊北部 ...
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — フランス暴動、欧州各地に波及 イタリア やベルギーで若者の不満爆発 · フランス暴動 Think! ヨーロッパ · 10月20日.
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — イタリア. 最新ニュース. 日米外相、国際課題で連携確認 米ルビオ氏「ICCでは意見異なる」 · フランス・パリで開かれたG7外相会合に臨む茂木敏充外相（. 日米外相、国際 ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — 【解説】抗議活動で勢いづく欧州の若者たち、何で結びついているのか · ピザにパイナップルのせることを拒否、 イタリア 人シェフ解雇 豪レストラン · ローマ教皇、肺腺がんと ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「 イタリア 」 ニュース 一覧 · 茂木外相 フランスと イタリア の外相にEV優遇措置の懸念伝達 · ラグビー 日本次戦の相手イングランドがオーストラリアに快勝 · イタリア 外相 個人 ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 欧州で偽の爆破予告相次ぐ 約20便に影響. Italy. メローニ首相、暴力的な抗議デモ主導疑惑の活動家釈放を非難 「恥ずべき決定」 · イタリア ・ミラノでも激しい衝突、 ...
+- [イタリア - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/it/) — 新型コロナウイルス感染拡大により、 イタリア で 主要 見本市が相次ぎ延期( イタリア ). 2020年2月28日. 新型コロナウイルス感染者が急増、 イタリア 産品の輸出にも影響( イタリア ).
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Ukraine (Japanese)` `2026-11`
+
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — ウクライナ 情勢 · 3時間前. ラトビア・リトアニアが無人機警報、フィンランドは安全確保措置 · 1分前. ウクライナ 外相「韓国との関係改善」、北朝鮮兵捕虜巡り対立 · 10分前.
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — 2026. 11/07: トランプ氏、 ウクライナ 和平で「欧州全体が参加」の安保合意案 詳細不明で欧州は戸惑い; 11/06: ゼレンスキー氏、米国からの追加支援に期待感 米中間選挙 ...
+- [ロシアの ウクライナ 侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — 2022年2月24日に開始されたロシアによる ウクライナ への侵攻。ロシア軍が ウクライナ 東・南部4州の掌握を目指して攻撃を続ける一方、 ウクライナ 側は欧米の軍事支援を受け ...
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — ウクライナ中部の鉄道駅にロシアのドローン攻撃、少なくとも14人死亡と当局 · プーチン氏、マスク氏は「本物の天才」 衛星技術めぐり「緊密に」連絡を取っていると.
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — 2026年11月10日. 米・ロ・ ウクライナ の協議が再開 9カ月ぶり、戦後の安全保障が争点 · 2026年11月9日. 米中ロ首脳が初会談か トランプ氏、来週に中国で開催との見通し語る.
+- [Ukrain：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Ukrain) — Ukrain. ウクライナの支援物資配布拠点にロシア軍攻撃、死者40人に 数十人なお安否不明 · 局地停戦終了直後に学校空爆、26人死亡 ゼレンスキー氏「和平への期待砕かれ ...
+- [新着 ニュース - ウクルインフォルム通信](https://www.ukrinform.jp/block-lastnews) — ウクライナ のシビハ外相は10日、パリ開催のG7外相会合の際に、米国のルビオ国務長官と会談した。 和平交渉はロシアからの譲歩が必要＝EU上級代表 11:20. 和平交渉 ...
+- [ウクライナ 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000296) — ウクライナ外相が来日へ 復興支援や無人機など意見交わす考え · チョルノービリ原発周辺自治体 復興で福島県双葉町と協定締結 · ウクライナ 世界遺産の“危機”.
+
+### Brazil (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+

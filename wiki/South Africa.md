@@ -973,3 +973,29 @@ Tags: `China (Japanese)` `2026-11`
 - [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/10: トランプ氏、エヌビディアのフアンCEOと会話 不倫相手の 中国 スパイ疑惑「知らなかった」; 11/05: 香港民主活動家の黄之鋒氏、新たに禁錮10年の判決 ...
 - [Xinhua - jp. news .cn](https://jp.news.cn/) — 中国 の第43次南極観測隊が出発 · 9年連続出展の企業ブースを探訪 中国 輸入博 · 中国 輸入博、シニアの幅広いニーズに応える製品並ぶ 「シルバー経済」後押し · 中国 の第43 ...
 
+### South Africa(検索日時 / searched at: 2026-11-11)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [Democratic Alliance (South Africa)](https://en.wikipedia.org/wiki/Democratic_Alliance_(South_Africa)) — The Democratic Alliance (DA) is a liberal political party in South Africa, sitting on the centre to centre-right of the political spectrum. It has been the second-largest party in the country since its foundation in 2000.
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana (lit.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [Lara Logan](https://en.wikipedia.org/wiki/Lara_Logan) — Lara Logan (born 29 March 1971) is a South African television and radio journalist, war correspondent, and conspiracy theorist. Her career began with various South African news organizations in the 1990s.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 災害激甚化、タイ製造業の「新常態」に トヨタなど自動車生産停止 · バンコク、豪雨で主要道路の冠水相次ぐ 都知事「東部で洪水」 · 東京ガス系、タイで再エネ電力を供給 ...
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — タイ 、12月16日が特別休日に シリキット王太后の大葬で · 年末年始の長距離バス予約8割超 タイ 首相府、偽チケット販売に注意呼びかけ · タイ とミャンマー、越境河川汚染を ...
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新ニュース · 高島屋、好調の背景 円安で海外控え国内消費、富裕層はタイからが増 · Jの風レイソル ACLEのタイ遠征、ピッチの外でも支える裏方たち · ネパールで急増した「 ...
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【社会】 タイ 政府、「72時間分の備蓄」ブームに警鐘 買いだめ不要と呼びかけ · 【日系企業】三菱自、新型パジェロを タイ から日本へ輸出開始 27年度から100カ国超に · 【労働】 ...
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — タイ中央銀行、全金融機関にサイバー攻撃への警戒強化を指示 、銀行サービスへの影響は確認されず · タイの今日は何の日？ 11月9日はドイステープ山への道路建設が始まっ ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイランド湾で漁業用タンカー沈没、乗組員6人が行方不明 。 · 日本人R&BアーティストYo-Sea、タイ初公演でファンを魅了！ · バンコク初！ · タイ南部サトゥーン県で電柱爆破 ...
+- [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — 【バンコク時事】 タイ 中央銀行は9日、海外の金融機関でサイバー攻撃やシステム障害が発生していることを受け、国内の金融機関に対し、警戒と防御態勢の強化を指示した。
+

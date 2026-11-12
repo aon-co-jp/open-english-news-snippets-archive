@@ -1008,3 +1008,100 @@ Tags: `Thailand (English)` `2026-11`
 - [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
 - [BBC News](https://en.wikipedia.org/wiki/BBC_News) — BBC News is an operational business division of the British Broadcasting Corporation (BBC) responsible for the gathering and broadcasting of news and current affairs in the UK and around the world. The department is the world's largest broadcast news organisation and generates about 120 hours of radio and television output each day, as well as online news coverage.
 
+### Myanmar(検索日時 / searched at: 2026-11-11)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 11月7日 時事） ドイツ 政府は6日、防衛大手KNDSの大株主一族から50％の保有株式を全てを買い受けることで合意間近だと明らかにした。独メディアは11月中に正式 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 最新ニュース · アマゾンが予想外の打診、公取委が頼ったドイツ 攻防 2年の舞台裏 · アマゾン、サイトの仕組み変更へ 出品値下げ強要疑いで公取委が調査 · 国内外で注目される ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相、次期戦闘機構想で日英伊への合流に懸念 首相と温度差 · 欧州外為早朝 ユーロ、対ドルで横ばい 1.11ドル台半ば · 川崎重工、ドイツで水素ガスタービンの運転 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 ; 【詳細】ロシア ウクライナに軍事侵攻（11月10日の動き）. 11月10日 15:38 ; ドイツ 与党が次期大統領候補にアイグナー氏を擁立. 11月10日 7:00.
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people, aged between 10 and 87, and injured forty others, including two police officers.
+- [2026 Summer Youth Olympics](https://en.wikipedia.org/wiki/2026_Summer_Youth_Olympics) — The 2026 Summer Youth Olympics (French: Jeux Olympiques de la jeunesse d'été de 2026), officially known as the IV Summer Youth Olympic Games and commonly known as Dakar 2026 (Wolof: Ndakaaru 2026), is the fourth edition of the Summer Youth Olympics, an international sports, education and cultural festival for teenagers, in a city designated by the International Olympic Committee (IOC). Originally scheduled to be held for 18 days in Dakar, Senegal, from 22 October to 9 November 2022, it is now scheduled to be held there for 14 days—from 31 October to 13 November 2026, becoming the first IOC event to be held in Africa and the first Youth Olympic Games under the IOC presidency of Kirsty Coventry.
+- [Zapad 2025](https://en.wikipedia.org/wiki/Zapad_2025) — Zapad 2025 (Russian: Запад-2025, Belarusian: Захад-2025, romanized: Zakhad-2025, lit. 'West 2025') was a Russian-Belarusian joint strategic military exercise, that took place in Belarus on 12–16 September 2025. Belarus has said the drills will test the Union State's defensive readiness, with main activities staged at central training areas near Barysaw and a reciprocal movement of units between the two states.
+- [2026](https://en.wikipedia.org/wiki/2026) — 2026 (MMXXVI) is the current year, and is a common year starting on Thursday of the Gregorian calendar, the 2026th year of the Common Era (CE) and Anno Domini (AD) designations, the 26th year of the 3rd millennium and the 21st century, and the 7th year of the 2020s decade. The early part of the year saw escalating armed conflicts in the Americas and Middle East.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer who has served since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+
+### Switzerland (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Switzerland (English)` `2026-11`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
+- [2026 United States Senate election in Texas](https://en.wikipedia.org/wiki/2026_United_States_Senate_election_in_Texas) — The 2026 United States Senate election in Texas was held on November 3, 2026, to elect the Class 2 member of the United States Senate from the state of Texas. Democratic state representative James Talarico defeated Republican state attorney general Ken Paxton.
+- [Primetime (film)](https://en.wikipedia.org/wiki/Primetime_(film)) — Primetime is a 2026 American psychological thriller film written by Ajon Singh and directed by Lance Oppenheim. It dramatizes the production of the reality television series To Catch a Predator (2004–2007); Robert Pattinson portrays its host Chris Hansen, an NBC journalist who works with the vigilante group Perverted-Justice to catch child predators in sting operations.
+
+### France (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `France (English)` `2026-11`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [CTV News Channel (Canadian TV channel)](https://en.wikipedia.org/wiki/CTV_News_Channel_(Canadian_TV_channel)) — CTV News Channel is a Canadian specialty news channel owned by Bell Media (a wholly owned subsidiary of Bell Canada). It broadcasts national and international news headlines, breaking news, and information.
+
+### Afghanistan (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Afghanistan (English)` `2026-11`
+
+- [Elections in Afghanistan](https://en.wikipedia.org/wiki/Elections_in_Afghanistan) — Though Afghanistan has had democratic elections throughout the 20th century, the electoral institutions have varied as changes in the political regime have disrupted political continuity. Elections were last held under the Islamic Republic of Afghanistan, which was deposed by the Taliban in August 2021.
+- [2026 Shpageeza Cricket League](https://en.wikipedia.org/wiki/2026_Shpageeza_Cricket_League) — The 2026 Shpageeza Cricket League (also known as for sponsorship reasons as 2026 e& Shpageeza Cricket League) was the 11th edition of the Shpageeza Cricket League, a professional Twenty20 cricket (T20) league established by the Afghanistan Cricket Board (ACB) in 2013, and the seventh edition to have official T20 status. On 20 June 2026, Afghanistan Cricket Board announced the complete fixtures of the 2026 editions.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The News Agents](https://en.wikipedia.org/wiki/The_News_Agents) — The News Agents is a British daily podcast produced by Global Media & Entertainment. It is presented by Emily Maitlis, Jon Sopel, and Lewis Goodall.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [David Muir](https://en.wikipedia.org/wiki/David_Muir) — David Jason Muir ( MURE; born November 8, 1973) is an American journalist and anchor for ABC World News Tonight and co-anchor of the ABC News magazine 20/20, part of the news department of the ABC broadcast-television network, based in New York City. Muir previously served as the weekend anchor and primary substitute anchor on ABC's World News Tonight with Diane Sawyer before succeeding her on September 1, 2014.
+
+### Japan (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Japan (English)` `2026-11`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 2時間前. 韓国でバス絡む多重事故、9人重傷・48人軽 傷 · 1分前. ウクライナ外相「韓国との関係改善」、北朝鮮兵捕虜巡り対立 · 15時間前. アングル：「フアン氏の代わりは ...
+- [韓国 ・朝鮮半島に関する ニュース と解説 - 日本経済新聞](https://www.nikkei.com/international/korea/) — 韓国 と北朝鮮に関する ニュース と解説、特集をまとめました。日韓関係やサムスン、現代自動車などの 韓国 企業、北朝鮮のミサイル問題などの ニュース を読めます。
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [最新の 韓国ニュース - ライブドアニュース - Livedoor](https://news.livedoor.com/article/category/44/) — “びしょ濡れフェスの女神”がスーツ姿の会社員に！クォン・ウンビ、リアルすぎる「社会人あるある」を再現. スポーツソウル日本版; 11月11日 17時4分.
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 韓国 、戒厳後に三権分立毀損がさらに深刻に…独走する立法府、信頼を失った司法府 · 尹大統領の参謀が語る真相 「金建希夫人のために戒厳をしたと考える」 ［戒厳1年秘話］.
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「韓国」ニュース一覧 · 太平洋クロマグロ漁獲枠の配分 韓国・台湾と合意に至らず · 韓国ソウル近郊 路線バスが信号待ちの車に次々に衝突 57人けが · 中国の貿易黒字1兆ドル ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — Stray Kidsのワールドツアー 横浜・大阪含む25公演追加 · 北朝鮮が新型魚雷の発射実験 来年初めに実戦配備 · 韓米が空中補給訓練 高度三千メートルから物資投下 · 韓国 政府 ...
+- [朝鮮日報日本語版の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/chosun) — インドネシアで 韓国 人女性を性的暴行した20代の 韓国 人男…わずか懲役8月. 11/11(水) 11:46. 金融セキュリティーの「門番」金融保安院もハッキング被害…個人情報が一部流出.
+

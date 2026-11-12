@@ -927,3 +927,94 @@ Tags: `Austria (English)` `2026-11`
 - [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
 - [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
 
+### Malaysia(検索日時 / searched at: 2026-11-11)
+
+Tags: `Malaysia` `2026-11`
+
+- [BeautifulSoup scraping news article](https://stackoverflow.com/questions/60065910) — [SALAH] Passing Grade Universitas Indonesia 18 Tidak ada media arus utama yang mengangkat ber... &hellip; [BERITA] Kemenpan RB: Tidak Ada Pengangkatan C... 198 Juru Bicara Kepala BIN, Wawan Hari Purwanto me... &hellip;
+- [Media Prima](https://en.wikipedia.org/wiki/Media_Prima) — Media Prima Berhad is a Malaysian media company based in Bangsar, Kuala Lumpur. It is the largest media and entertainment conglomerate in Malaysia with business interests in television, print, radio, out-of-home advertising, content creation, and digital media.
+- [List of programmes broadcast by TV3 (Malaysian TV network)](https://en.wikipedia.org/wiki/List_of_programmes_broadcast_by_TV3_(Malaysian_TV_network)) — This is a list of television programmes broadcast by TV3 either currently broadcast or formerly broadcast on TV3 in Malaysia.
+- [Kool FM (Malaysia)](https://en.wikipedia.org/wiki/Kool_FM_(Malaysia)) — Kool FM (briefly known as Buletin FM and KOOL 101) is a Malaysian private radio station owned by Media Prima Berhad through its radio subsidiary, Media Prima Audio, which broadcasts in the Malay language. It was launched on 1 March 2016.
+- [Bernama](https://en.wikipedia.org/wiki/Bernama) — The Malaysian National News Agency (Malay: Pertubuhan Berita Nasional Malaysia), is a news agency of the government of Malaysia. It is an autonomous body under the Ministry of Communications.
+- [TV9 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV9_(Malaysian_TV_network)) — Ch-9 Media Sdn Bhd, operating as TV9 (spelled as tivi sembilan) is a Malaysian free-to-air television network owned and operated by Media Prima Berhad. It airs programming that tends mostly towards the Malay demographic.
+- [TV1 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV1_(Malaysian_TV_network)) — RTM TV1 (stylised as tv1) is a Malaysian free-to-air public television channel owned and operated by Radio Televisyen Malaysia, a broadcasting department of the Malaysian Government. Launched on 28 December 1963, TV1 is the first and oldest TV station in Malaysia.
+- [TV3 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV3_(Malaysian_TV_network)) — TV3 (read as TV Tiga in Malay pronounced [tivi tiga], "TV Three" in English) is a Bangsar-based Malaysian commercial free-to-air television channel under Sistem Televisyen Malaysia Berhad owned by Malaysian media conglomerate, Media Prima. TV3 is the third oldest TV station in Malaysia.
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — 最新ニュース · 運動会の映像に驚きの声も エジプトで日本式教育の教員養成始まる · 三井寺を初選出 サッカーU21代表 · （政官界ファイル）自衛隊海外派遣を延長 · イスラム ...
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — エジプト下院、サウジ軍事支援策を承認 派兵実施か · サウジ国防相ら、イラン大統領と会談 「緊張緩和へ対話」 · フーシ、サウジアラビア首都の空港を再び攻撃 運用再開日に ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 11/09: エジプトで列車が衝突、7人死亡 112人負 傷; 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代エジプト人、王の死に際し ...
+- [「 エジプト 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88) — 【カイロ共同】 エジプト 検察当局は9日、首都カイロ近郊ギザで8日に発生した列車同士の追突事故を巡り、追突した列車の運転士が自動制御システムを無効化し… 共同通信国際 ...
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425) — G7外相会合閉幕 中東安定に向けた連携 ウクライナ支援継続確認 · エジプトで列車衝突事故 7人死亡 112人けが · サウジアラビア防衛のためイギリスやエジプトが軍事支援を表明.
+- [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — トランプ米大統領、対イラン交渉で慎重姿勢、「最終段階」から圧力維持へ(カタール、バーレーン、ヨルダン、パキスタン、米国、アラブ首長国連邦、イスラエル、 ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+
+### Austria (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Conchita Wurst](https://en.wikipedia.org/wiki/Conchita_Wurst) — Thomas Neuwirth (born 6 November 1988) is an Austrian singer, actor, media personality and drag queen who is known for his stage persona Conchita Wurst, nicknamed "the Queen of Austria". He came to international attention after winning the Eurovision Song Contest 2014 for Austria with the song "Rise Like a Phoenix".
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- [ロシア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/russia/) — ロシア · 【アブダビ3者協議、2日目 具体的進展見出だせるか】 · 【西側の ロシア 封じ込め戦略でウクライナは常に重要な位置にあった＝専門家】 · 【 ロシア 人の強さは、多様な ...
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — ロシア · 3時間前. ラトビア・リトアニアが無人機警報、フィンランドは安全確保措置 · 50分前. 米向けロシア産軽油第1便、東海岸沖で足止め 合法性巡る懸念で · 30分前. 英、 ...
+- [「 ロシア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — 「ロシア」ニュース一覧 · アメリカ・ロシア・ウクライナ高官協議 大規模捕虜交換で合意 · ロシアによる北海道新聞記者の拘束続く 日本新聞協会が声明 · 米 ロシア ウクライナ ...
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ウクライナ和平の3カ国協議、初日は「建設的」とゼレンスキー氏 · 米陸軍兵士をイギリスで逮捕、ロシアのスパイ容疑で · メラニア・トランプ氏がウクライナでの恒久的な停戦 ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 11/07: トランプ氏、ウクライナ和平で「欧州全体が参加」の安保合意案 詳細不明で欧州は戸惑い; 11/05: メラニア氏、 ロシア とウクライナの代表をホワイトハウス ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — 11月10日 · ロシアとウクライナ、米仲介の3カ国協議を再開 欧州含む安保を議論 · ウクライナ侵略 · JTに1.3兆円の損失リスク、減配懸念も 子会社がロシア管理下に · 記者の目 ...
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · 米国に裏切られたゼレンスキー、中間選挙のためウクライナを犠牲にするトランプと決別する覚悟 · 「ロシア版グーグル」ヤンデックスのデータセンターが相次ぎ被弾、 ...
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — ロシア、欧州各国のスーパー狙ったサイバー攻撃への関与否定 冷蔵庫の温度急上昇 · ロシア大統領府、米・ウとの3か国協議を確認 10～11日にアブダビで · ロシア、モスクワ ...
+
+### South Korea (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `South Korea (English)` `2026-11`
+
+- [The Korea Times](https://en.wikipedia.org/wiki/The_Korea_Times) — The Korea Times (Korean: 코리아타임스) is a comprehensive English-language daily newspaper published in South Korea. It was established on November 1, 1950, with the objective of delivering prompt domestic and international news to foreign troops participating as UN forces and promoting an understanding of Korea abroad.
+- [Mass media in South Korea](https://en.wikipedia.org/wiki/Mass_media_in_South_Korea) — The South Korean mass media consist of several different types of public communication of news: television, radio, cinema, newspapers, magazines, and Internet-based websites. Modern Korean journalism began after the opening of Korea in the late 19th century.
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+
+### Italy (English)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Italy (English)` `2026-11`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [Sky News](https://en.wikipedia.org/wiki/Sky_News) — Sky News is a British free-to-air television news channel, live stream news network, and news organisation. Sky News is distributed via an English-language radio news service, and through online channels.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-11-11)
+
+Tags: `Iran (Japanese)` `2026-11`
+
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 11/10: 冷蔵庫狙った「前代未聞の」サイバー攻撃、フランスが イラン を非難; 11/09: イラン への攻撃再開、「極めて可能性低い」とトランプ氏 協議に進展見られれ ...
+- [イラン 情勢 随時更新 - NHKニュース](https://news.web.nhk/newsweb/pl/editorial-nwa-0000000368) — イラン情勢 随時更新 · 仲介国カタール“アメリカとイランの対話は現在も継続” · イラン「外交の再開には米が具体的行動を」妥協しない姿勢強調 · 韓国 中東派遣部隊の活動拡大 ...
+- [イラン 大統領の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%83%A9%E3%83%B3%E5%A4%A7%E7%B5%B1%E9%A0%98.html) — 最新ニュース · イラン「我々こそテロ被害者」 米との交渉再開にも含み 大統領演説 · 国連で「我々はテロ被害者」 イラン大統領演説、米代表は退席 · 「我々はテロの被害者」 ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — トランプ氏、イスラエル首相と「地獄の怒鳴り合い」 イラン再攻撃で意見対立 報道 (11月11日 09:31) · 仏批判に「根拠ない」 冷蔵施設へのサイバー攻撃―イラン(11月11日 07: ...
+- [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — ネタニヤフ氏、イラン再攻撃へトランプ氏説得 危機演出し延命図る · ヘグセス米国防長官の弾劾、下院が阻止 共和に賛同広がらず · トルコ運輸相、アジア欧州結ぶ「新物流網の ...
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン情勢のニュース・速報 . 200件中 1~20件表示. 映画「カンダハール」より cMakhmalbaf Film House. 「悲惨さの中に美を探した」とマフマルバフ監督 アフガン詩的 ...
+- [イラン - BBC ニュース](https://www.bbc.com/japanese/topics/c8y946g2nz3t) — イラン · ヘグセス米国防長官の弾劾決議案、下院でひとまず阻止 · 米司法省、イランの支援を受けた工作員3人を起訴 英空軍基地の事件にも関与か · フランス、スーパーの冷蔵庫 ...
+- [イラン の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/06fd6249c78927c72400/) — イラン 地下にミサイル・シティー新設、延々と続くトンネルに格納…再攻撃への準備態勢誇示 · 反 イラン のイラク議員死亡 レバノンで、殺人容疑捜査 · イラン 、濃縮核物質の国外 ...
+
