@@ -1025,3 +1025,9 @@ Tags: `Cambodia` `2026-11`
 
 - [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
 
+### Cambodia(検索日時 / searched at: 2026-11-12)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+

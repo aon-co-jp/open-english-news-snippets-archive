@@ -966,3 +966,16 @@ Tags: `China (Japanese)` `2026-11`
 - [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. アリス・フアン氏とされる女性（中央左）とエヌビディアのジェンスン. スパイ疑惑 中国 人女性、正体は謎 国営テレビ、金融で勤務か. 18時02分.
 - [中国 の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/007c341ed731341e2337/) — 中国 · 1:42 · 今季一番の寒さの中…閉山中の富士山で 中国 人観光客が遭難 市長「残念でならない」 · 独軍、 中国 製ドローンの使用を禁止 欧州製に切り替え、情報流出懸念で · 3: ...
 
+### Austria(検索日時 / searched at: 2026-11-12)
+
+Tags: `Austria` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Deutschland](https://de.wikipedia.org/wiki/Deutschland) — Deutschland (; Vollform des Staatsnamens: Bundesrepublik Deutschland) ist ein Bundesstaat in Mitteleuropa. Es besteht aus 16 Ländern und ist als freiheitlich-demokratischer und sozialer Rechtsstaat verfasst.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Nachrichten](https://de.wikipedia.org/wiki/Nachrichten) — Unter Nachrichten als Plural von Nachricht (oft auch synonym für Nachrichtensendung) ist die regelmäßige Berichterstattung in Form von mehreren journalistischen Nachrichten über aktuelle politische, wirtschaftliche, soziale, kulturelle, sportliche und sonstige Ereignisse in komprimierter Form zu verstehen.
+- [Heute-show](https://de.wikipedia.org/wiki/Heute-show) — Die heute-show (Eigenschreibweise auch heute show und heute SHOW) ist eine deutsche Comedy- und Satiresendung im ZDF mit Stilelementen einer Nachrichtensendung. Ihr Name wurde in Anlehnung an die ZDF-Nachrichtenformate heute und heute-journal sowie die ARD-Sendung Tagesschau gewählt.
+- [Bundespräsident (Deutschland)](https://de.wikipedia.org/wiki/Bundespr%C3%A4sident_(Deutschland)) — Der Bundespräsident (Abkürzung BPr, auch BPräs) ist das Staatsoberhaupt (Art. 54–61 GG) der Bundesrepublik Deutschland und protokollarisch ihr höchstes Verfassungsorgan.
+- [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
+- [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
+
