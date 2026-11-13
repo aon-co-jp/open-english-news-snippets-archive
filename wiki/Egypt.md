@@ -800,3 +800,185 @@ Tags: `Iran (English)` `2026-11`
 - [2026 Iranian strikes on Israel](https://en.wikipedia.org/wiki/2026_Iranian_strikes_on_Israel) — Since the 2026 Iran war began with a series of attacks by the United States and Israel against Iran on 28 February 2026, following the breakdown of US-Iran talks and negotiations, locations across Israel have been subject to multiple retaliatory Iranian missile strikes. For several days after the start of hostilities, Israeli airspace was closed, disrupting flights from Ben Gurion Airport and elsewhere in the country.
 - [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
 
+### Egypt(検索日時 / searched at: 2026-11-12)
+
+Tags: `Egypt` `2026-11`
+
+- [أخبار اليوم (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها التوأم مصطفى أمين (21 فبراير 1914-13ابريل1997) وعلي أمين (21 فبراير 1914-3 أبريل 1976) عام 1944.
+- [دار أخبار اليوم](https://ar.wikipedia.org/wiki/%D8%AF%D8%A7%D8%B1_%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85) — دار أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها مصطفى أمين وعلي أمين عام 1944.
+- [الأخبار (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة الأخبار وهي جريدة يومية رسمية تصدر في القاهرة، وتُوزَع في مصر والعالم العربي. أسسها الأخوان مصطفى وعلي أمين سنة 1952 عن مؤسسة أخبار اليوم ورئيس التحرير أسامة السعيد.
+- [القاهرة الإخبارية](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9_%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A%D8%A9) — القاهرة الإخبارية هي قناة فضائية إخبارية مصرية، تتبع قطاع الاخبار بشركة المتحدة للخدمات الإعلامية، تُبث على القمر الصناعي المصري نايل سات، تختص بتقديم التغطيات الإخبارية للأحداث السياسية، الاقتصادية، الرياضية، الثقافية وغيرها، يقع مقرها الرئيسي بمدينة الإنتاج الإعلامي بالسادس من أكتوبر في محافظة الجيزة المصرية، وبدأت البث الرسمي على مدار 24 ساعة في 31 أكتوبر 2022.
+- [مصر](https://ar.wikipedia.org/wiki/%D9%85%D8%B5%D8%B1) — مِصرُ (رسميًّا: جُمْهُوْرِيَّةُ مِصْرَ العَرَبيَّةُ) دولةٌ عربية، عابرة للقارات، تمتد على الركن الشَّمالي الشرقي لإفريقيا والركنِ الجَنوبي الغربي من آسيا بجسر بري شكلته شبه جزيرة سَيناء. قُدِّر عدد سكانها بأكثرَ من 120 مليون نسَمة؛ لتكون الثالثةَ عشْرة بين دول العالم سكانًا، والأكثر سكاناً عربيًّا وشرقًا أوسطيًّا.
+- [أخبار الأدب (جريدة)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D8%A3%D8%AF%D8%A8_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9)) — جريدة أخبار الأدب صدرت عام 1993 عن دار أخبار اليوم في القاهرة كدورية ثقافية أسبوعية. تتناول الصحيفة أخبار الأوساط الأدبية والفنية، وتستعرض الإصدارات العربية والعالمية الحديثة، وتغطي الفعاليات الثقافية، والقضايا الفكرية المتداولة.
+- [أسامة هيكل](https://ar.wikipedia.org/wiki/%D8%A3%D8%B3%D8%A7%D9%85%D8%A9_%D9%87%D9%8A%D9%83%D9%84) — أسامة هيكل (1965 -) سياسي مصري ووزير الدولة المصري السابق للإعلام، شغل منصب رئيس مجلس إدارة الشركة المصرية لمدينة الإنتاج الإعلامي والعضو المنتدب، منصب رئيس تحرير جريدة الوفد، وهو أول وزير إعلام بعد ثورة 25 يناير في حكومة الدكتور عصام شرف. وكان توليه يوم 22 ديسمبر 2019 حتى قدم استقالته في 25 أبريل 2021 لرئيس الوزراء مصطفى مدبولي.
+- [قناة المجد الإخبارية](https://ar.wikipedia.org/wiki/%D9%82%D9%86%D8%A7%D8%A9_%D8%A7%D9%84%D9%85%D8%AC%D8%AF_%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A%D8%A9) — قناة المجد الإخبارية (سابقًا: خدمة المجد الإخبارية، قناة العالم اليوم) هي قناة مشفرة تابعة لقنوات شبكة المجد الفضائية، وهي خدمة إخبارية تقدم موجزًا إخباريًّا كل ساعة، إضافة إلى بعض الفواصل الإخبارية الأخرى، وقد بدأ بثها التجريبي في 1 ذو الحجة 1426 هـ الموافق 1 يناير 2006 من دبي، ثم انتقل بثها إلى القاهرة، وفيها بدأ البث الرسمي في 5 جمادى الأولى 1429 هـ الموافق 10 مايو 2008، وتملك القناة كشريط أخباري لمدة ساعة أو ساعات لكتابة خبر في كل يوم.
+
+### Russia (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Russia (English)` `2026-11`
+
+- [What in JavaScript can make both contentEditable and textarea unable to recieve any input?](https://stackoverflow.com/questions/26450780) — - box-1 ["Russia Today", "http://rt.com/"], ["Reuters", "http://www.reuters.com/"], ["Al Jazeera", "http://america.aljazeera.com/"], ["The Raw Story", "http://rawstory.com/"], &hellip; http://whatshouldireadnext.com/"], ["Which Book", "http://www.openingthebook.com/whichbook/"], ["TechRaptor", "http://techraptor.net/"], ["TechCrunch", "http://techcrunch.com/"], ["Gamer Headlines &hellip;
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state media agency RIA Novosti.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Propaganda in Russia](https://en.wikipedia.org/wiki/Propaganda_in_Russia) — Propaganda in Russia promotes views, perceptions, or agendas of the government of Russia. The media include state-run outlets and online technologies, and may involve using "Soviet-style 'active measures' as an element of modern Russian 'political warfare.'" Notably, contemporary Russian propaganda promotes the cult of personality of Vladimir Putin and positive views of Soviet history.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — That should worry Trump.", "description": "More legal pressure on Manafort=more chance he'll flip in the Russia investigation.", "url": "https://www.washingtonpost.com/news/the-fix &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — { Observable, of } from 'rxjs'; import { switchMap } from 'rxjs/operators'; @Injectable() export class SportsService implements OnInit { sports: any = []; _urll = 'https://newsapi.org/v2/top-headlines &hellip; 'Bentley' on 25th birthday", "description": "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social &hellip;
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Show HN: Forty.News – Daily news, but on a 40-year delay](https://forty.news) — Hacker News · 443 points · 180 comments · 2025-11-22
+
+### Egypt (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Egypt (English)` `2026-11`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Al-Masry Al-Youm](https://en.wikipedia.org/wiki/Al-Masry_Al-Youm) — Al-Masry Al-Youm (Arabic: المصري اليوم, romanized: al-Maṣrī l-Yawm, IPA: [elˈmɑsˤɾi lˈjoːm], meaning The Egyptian Today) is an Egyptian privately owned daily newspaper that was first published in June 2004. It is published in Arabic as is its website, almasryalyoum.com.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by the Taiwanese Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [Taiwanese Mandarin](https://en.wikipedia.org/wiki/Taiwanese_Mandarin) — Taiwanese Mandarin, natively referred to as Guoyu (Chinese: 國語; pinyin: Guóyǔ; Zhuyin Fuhao: ㄍㄨㄛˊ ㄩˇ; lit. 'national language') or Huayu (Chinese: 華語; pinyin: Huáyǔ; Zhuyin Fuhao: ㄏㄨㄚˊ ㄩˇ; lit.
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+
+### France (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — フランス、AI安全対策でオンライン首脳協議 高市首相も出席 · 茂木外相、ルビオ米国務長官とICC意見交換 APECなどにらむ · ロシアとウクライナ、米仲介の3カ国協議を再開 ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · G7外相会合閉幕 中東安定に向けた連携 ウクライナ支援継続確認 · 【詳細】ロシア ウクライナに軍事侵攻（11月10日の動き） · 高市首相 高性能AI ...
+- [今日 の フランス | フランス 情報メディアのET TOI（エトワ）](https://www.parisettoi.fr/news/) — 1時間前 - 今日 の フランス · 2026.11.12. 大口広告主に新聞・雑誌への広告投資義務付け、政府が法案を閣議決定 · 2026.11.12. プレジオ（旧カジノ）、債権者団と基本 ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/10: 冷蔵庫狙った「前代未聞の」サイバー攻撃、 フランス がイランを非難; 11/06: フランス 全土で大規模デモ、最多の57万人超が参加 警察と衝突も ...
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス、スーパーの冷蔵庫へのサイバー攻撃でイランを非難 · 【解説】抗議活動で勢いづく欧州の若者たち、何で結びついているのか · フランス各地の抗議で参加者急増、 ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — 柔道五輪5冠のリネール氏、フランス大統領選出馬を表明 . French. 航空便への偽爆破予告、外国勢力の関与視野に捜査 仏検察 · 仏各地で4週連続の週末デモ、パリでは参加 ...
+- [ニュース ・社会問題 Archives - OVNI| オヴニー・パリの新聞](https://ovninavi.com/category/mieux-connaitre-la-france/actualites/) — 今 フランス で起きていることをわかりやすく解説。 ニュース · フランス の出来事 · 三面記事 · 経済 · 抵抗する人 · 社会ラボ.
+
+### Iran (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Iran (English)` `2026-11`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests were a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
+- [List of wars involving Iran](https://en.wikipedia.org/wiki/List_of_wars_involving_Iran) — This is a list of wars involving the Islamic Republic of Iran, excluding its predecessor states. It is an unfinished historical conspectus.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 ; 【詳細】ロシア ウクライナに軍事侵攻（11月10日の動き）. 11月10日 15:38 ; ドイツ 与党が次期大統領候補にアイグナー氏を擁立. 11月10日 7:00.
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相、次期戦闘機構想で日英伊への合流に懸念 首相と温度差 · 欧州外為早朝 ユーロ、対ドルで横ばい 1.11ドル台半ば · 川崎重工、ドイツで水素ガスタービンの運転 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [ドイツニュース ダイジェスト](http://www.newsdigest.de/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · 秋の叙勲 3960人が受章 · ロシアが「人身取引」で29カ国の外国人を動員 国連独立委が認定 · タジキスタン からの国費留学生受け入れで合意 日本語学校経営 ...
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 · Video.
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — 中国首相、タジキスタンとの安全保障協力深化呼びかけ · 「屈辱的記録を次々更新」中国代表、タジキスタンに史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース ; 01:25 · ベッセント米財務長官（10日）＝ロイター ; 05:00. 【図解】アマゾンストアの商品表示の仕組み ; 2026/11/11 21:08 · 革命防衛隊が開設を発表した新た ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — 最新ニュース · 運動会の映像に驚きの声も エジプトで日本式教育の教員養成始まる · 三井寺を初選出 サッカーU21代表 · （政官界ファイル）自衛隊海外派遣を延長 · イスラム ...
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — エジプト下院、サウジ軍事支援策を承認 派兵実施か · サウジ国防相ら、イラン大統領と会談 「緊張緩和へ対話」 · フーシ、サウジアラビア首都の空港を再び攻撃 運用再開日に ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 11/09: エジプトで列車が衝突、7人死亡 112人負 傷; 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代エジプト人、王の死に際し ...
+- [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425) — G7外相会合閉幕 中東安定に向けた連携 ウクライナ支援継続確認 · エジプトで列車衝突事故 7人死亡 112人けが · サウジアラビア防衛のためイギリスやエジプトが軍事支援を表明.
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [「 エジプト 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88) — … エジプト で8日、列車同士が衝突する事故があり、これまでに130人以上が死傷しました。 エジプト の首都カイロ郊外 ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+- [外交政策 ニュース | 在 エジプト 日本国大使館](https://www.eg.emb-japan.go.jp/itpr_ja/index.html) — 令和8年11月3日. カイラット元駐日大使に対する旭日重光章伝達. 令和8年9月24日. ムハンマド・アブデルモネイム・エッサーウィ氏が、日本国外務大臣表彰を受賞.
+
+### Myanmar (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Myanmar (English)` `2026-11`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [BBC News](https://en.wikipedia.org/wiki/BBC_News) — BBC News is an operational business division of the British Broadcasting Corporation (BBC) responsible for the gathering and broadcasting of news and current affairs in the UK and around the world. The department is the world's largest broadcast news organisation and generates about 120 hours of radio and television output each day, as well as online news coverage.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — 【ローカル】【社会】 · シャン州で52年ぶりの記録的大雨 洪水や土砂崩れ相次ぐ ; 【国際】【政治】【社会】 · ミャンマー、外国人7万3,000人超を刑事訴追せず国外退去 ; 【 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー資源開発再開 タイ国営系主導、西側大手撤退で勢力図一変 · ミャンマー衝突半減、激戦は局地的に 民主派武装に支持離れ · 中ロ印がミャンマーと物流・エネ網整備 ...
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 2021/5/7 - 朝日新聞の、ミャンマーに関するニュースや速報記事一覧 です。ミャンマーに関する現状や背景を、わかりやすくお伝えします。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — タイ外相が訪問へ、ミャンマー政治情勢を確認 に · 親軍政権、出稼ぎ労働者からの送金確認を強化 · エネ相、地場企業に石油・ガス71鉱区へ投資要請 · 倒産法巡るパネル討論会、 ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — 「ミャンマー」ニュース一覧 · 国連 ミャンマーの民主派大使が軍への武器供給停止訴え · 拘束中のスー・チー氏と電話 次男“生存確認できてよかった” · 拘束続くスー・チー氏に ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — 中国人が買い求める「緑の宝石」が内戦の資金源 に… · 【ミャンマー】エネ相、地場企業に石油・ガス71鉱区へ投資要請 · シェアハウスで同居女性の胸ひっかき出血伴うけが ...
+- [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Taiwan (Japanese)` `2026-11`
+
+- [台湾 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/taiwan) — 台湾 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や台湾の最新ニュース・特集 をまとめました。中国の習近平国家主席の動向や中国経済、台湾を巡る情勢、TSMCや鴻海のニュースなどをお伝えします。
+- [ニュース - Taiwan Today](https://jp.taiwantoday.tw/list_news) — 政治 · 第一線を退いて指導者に転じた元 台湾 代表選手9名を米国へ、スポーツ人材育成へ · 米国務省の「人身取引報告書」、 台湾 は17年連続で最高評価「ティア1」に格付け.
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「台湾」ニュース一覧 · 中国 習主席 「祖国統一は実現できる」 台湾統一に改めて意欲 · なでしこジャパン ロス五輪予選はオーストラリアなどと対戦 · 太平洋クロマグロ漁獲枠 ...
+- [台湾ニュース ＠中央社フォーカス 台湾 (@focustaiwanjapa) / X](https://x.com/focustaiwanjapa) — 台湾ニュース を政治、社会からスポーツ、エンタメまで、日本語で毎日発信しています。 公式アプリ配信中。iOS、Androidに対応しています。「フォーカス 台湾 ... 台湾 ...
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 情勢 · 9時間前. 台湾 、APEC首脳会議にエイサー創業者派遣へ 対等な参加要求 · 8時間前. 米台関係強化へ新制度、米連邦政府職員が 台湾 で最長1年勤務へ · 6時間前.
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 木村拓哉が台湾訪問 空港にファン800人超集結 13、14日に初の台北公演 · 頼総統、APEC首脳会議出席の施振栄氏と面会 世界に「台湾の声」届けるよう期待 · GLP1薬使用 ...
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — 国民党元議員ら、両岸の対話再開など提唱 大陸委「最大の脅威は中国の台湾政策」 · 高雄漫画図書館が開館 陳市長、「ACG」産業発展の加速に意欲／台湾 · 木村拓哉が台湾訪問 ...
+
+### Germany (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Germany (English)` `2026-11`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+
+### Brazil (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+

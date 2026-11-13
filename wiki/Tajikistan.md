@@ -1283,3 +1283,89 @@ Tags: `Brazil (English)` `2026-11`
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 - [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
 
+### Tajikistan(検索日時 / searched at: 2026-11-12)
+
+Tags: `Tajikistan` `2026-11`
+
+- [Рӯзнома](https://tg.wikipedia.org/wiki/%D0%A0%D3%AF%D0%B7%D0%BD%D0%BE%D0%BC%D0%B0) — Рӯзнома (форсӣ: روزنامه‎), газета, — нашрияе аст, ки ба таври мураттаб ва муназзам таҳия, чоп ва пахш мешавад ва бе ҳеч қайду шарте дар дастраси мардум қарор мегирад. Рӯзнома на баёния аст ва на иттилоъия ва барои равшан сохтани афкори мардум, балки ба нашри ахбору иттилоот дар заминаҳои гуногун ва интиқоду салоҳандешӣ дар умурӣ умумӣ мепардозад.
+- [Бозор](https://tg.wikipedia.org/wiki/%D0%91%D0%BE%D0%B7%D0%BE%D1%80) — Бозор (форсӣ: بازار‎ — bâzâr ← порсии миёна: wāzār ← порсии бостон: vāčar ← эронии бостон: *wahā-čarana аз *wahā- «додуситад кардан» + *čārana- «гаштугузор кардан») — ҷойи додуситад ва хариду фурӯши коло, маҳаллм иҷтимоъ ва додуситади фурӯшандагону харидорон.
+- [Кӯлоб](https://tg.wikipedia.org/wiki/%D0%9A%D3%AF%D0%BB%D0%BE%D0%B1) — Кӯлоб (форсӣ: کولاب‎) — шаҳр дар вилояти Хатлон. Аз ҷумлаи қадимтарин шаҳрҳои Осиёи Марказӣ маҳсуб мешавад.
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 朝日新聞の、 イタリア に関する ニュース や速報記事一覧です。 イタリア に関する現状や背景を、わかりやすくお伝えします。
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【新型戦闘機開発へ独が参加 プロジェクト全体の足枷となるか？ · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤 ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 11/11: 5300年前の「アイスマン」、ミイラ化した体から今も生き続ける微生物を検出; 11/01: ロシアの富豪の豪華ヨット、巨額の維持費を負担するのは イタリア の ...
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — フランス暴動、欧州各地に波及 イタリア やベルギーで若者の不満爆発 · フランス暴動 Think! ヨーロッパ · 10月20日.
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — 【解説】抗議活動で勢いづく欧州の若者たち、何で結びついているのか · ピザにパイナップルのせることを拒否、 イタリア 人シェフ解雇 豪レストラン · ローマ教皇、肺腺がんと ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 欧州で偽の爆破予告相次ぐ 約20便に影響. Italy. メローニ首相、暴力的な抗議デモ主導疑惑の活動家釈放を非難 「恥ずべき決定」 · イタリア ・ミラノでも激しい衝突、 ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「イタリア」ニュース一覧 · イタリアで6300校に爆破予告 イギリスの学校も標的 に · 茂木外相 フランスとイタリアの外相にEV優遇措置の懸念伝達 · ラグビー 日本次戦の相手 ...
+- [イタリア 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/6a23dcecdbb44001d0f00f92fade3287eef9989efa2f4b2782f701dceb20e638) — イタリア 公立校8割強の6300校に爆破予告…メローニ首相ら、国家的組織による「ハイブリッド攻撃」の見方. 読売新聞 11/12(木)20 ...
+
+### Austria (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Conchita Wurst](https://en.wikipedia.org/wiki/Conchita_Wurst) — Thomas Neuwirth (born 6 November 1988) is an Austrian singer, actor, media personality and drag queen who is known for his stage persona Conchita Wurst, nicknamed "the Queen of Austria". He came to international attention after winning the Eurovision Song Contest 2014 for Austria with the song "Rise Like a Phoenix".
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+
+### China (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `China (English)` `2026-11`
+
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- [「 ロシア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — アメリカ ウィトコフ特使らとプーチン大統領の会談始まる · 北海道新聞 ロシアで拘束の記者の実名 初めて報道 · 北海道新聞記者拘束あす1か月 木原長官“即時解放強く求める”.
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — 9時間前. 焦点：ウクライナ、EU加盟への道狭く 戦争長引き受け入れ機運後退 · 9時間前. ロシア 軍、ウクライナ各地の軍需工場に大規模攻撃と発表 · 3時間前. 米朝接触の可能 ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 11/12: ロシア の駐米大使が急死、66歳 外務省発表; 11/07: トランプ氏、ウクライナ和平で「欧州全体が参加」の安保合意案 詳細不明で欧州は戸惑い ...
+- [ロシア の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/russia/) — ロシア · 「シャヘド型ドローン」が現代の戦争を変えている … · プーチンが直面する「食品インフレ」が戦争継続の要所になる · ウクライナのドローンがロシアの兵器庫に侵入…
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — ロシア主導軍事同盟、アルメニアの議決権停止 旧ソ連の結束に亀裂 · アルメニア、対ロシア重視の元大統領を拘束 首相と対立 · アルメニアのパシニャン首相再任 議会選受け、 ...
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ウクライナ和平の3カ国協議が終了、突破口は開かれず · ウクライナ和平の3カ国協議、初日は「建設的」とゼレンスキー氏 · 米陸軍兵士をイギリスで逮捕、ロシアのスパイ容疑で.
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — Russia. プーチン氏、ロシアへのスポーツ制限は「政治的」と非難 · ロシア、欧州各国のスーパー狙ったサイバー攻撃への関与否定 冷蔵庫の温度急上昇 ...
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — JTのロシア・ショック、現地資産1.5兆円が危機 に！ · ウクライナ戦争「もう一つの戦場」、スロバキアを巡るロシアとEUの攻防 · 対ロ投資は回収できるのか？ · 北方領土の ...
+
+### Japan (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Japan (English)` `2026-11`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+
+### South Korea (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `South Korea (English)` `2026-11`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [Mass media in South Korea](https://en.wikipedia.org/wiki/Mass_media_in_South_Korea) — The South Korean mass media consist of several different types of public communication of news: television, radio, cinema, newspapers, magazines, and Internet-based websites. Modern Korean journalism began after the opening of Korea in the late 19th century.
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [Jennie (singer)](https://en.wikipedia.org/wiki/Jennie_(singer)) — Jennie Kim (Korean: 김제니; born January 16, 1996) is a South Korean singer, rapper, songwriter, and actress. Born in South Korea, she moved to New Zealand in 2004 and returned to South Korea to successfully audition for YG Entertainment in 2010.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Seventeen (South Korean band)](https://en.wikipedia.org/wiki/Seventeen_(South_Korean_band)) — Seventeen (Korean: 세븐틴; stylized in all caps or abbreviated as SVT) is a South Korean boy band. Formed by Pledis Entertainment, the group consists of thirteen members: S.Coups, Jeonghan, Joshua, Jun, Hoshi, Wonwoo, Woozi, DK, Mingyu, The8, Seungkwan, Vernon, and Dino.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+

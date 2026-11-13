@@ -1105,3 +1105,22 @@ Tags: `South Korea (Japanese)` `2026-11`
 - [聯合 ニュース](https://jp.yna.co.kr/) — Stray Kidsのワールドツアー 横浜・大阪含む25公演追加 · 北朝鮮が新型魚雷の発射実験 来年初めに実戦配備 · 韓米が空中補給訓練 高度三千メートルから物資投下 · 韓国 政府 ...
 - [朝鮮日報日本語版の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/chosun) — インドネシアで 韓国 人女性を性的暴行した20代の 韓国 人男…わずか懲役8月. 11/11(水) 11:46. 金融セキュリティーの「門番」金融保安院もハッキング被害…個人情報が一部流出.
 
+### Myanmar(検索日時 / searched at: 2026-11-12)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Disinformation in the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Disinformation_in_the_Russo-Ukrainian_war) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+

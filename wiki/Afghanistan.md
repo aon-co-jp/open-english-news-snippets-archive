@@ -1058,3 +1058,63 @@ Tags: `Afghanistan` `2026-11`
 - [د لنډې کيسې تاريخچه](https://ps.wikipedia.org/wiki/%D8%AF_%D9%84%D9%86%DA%89%DB%90_%DA%A9%D9%8A%D8%B3%DB%90_%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%DA%86%D9%87) — 
 - [انځور خبريالي](https://ps.wikipedia.org/wiki/%D8%A7%D9%86%DA%81%D9%88%D8%B1_%D8%AE%D8%A8%D8%B1%D9%8A%D8%A7%D9%84%D9%8A) — د ليكلو توكيو ترڅنگ د انځورونو خپراوى د انځوريزې خبريالۍ په نوم ياديږي. په اوسني پرمختللي پېر كې انځورخبريالي دډله یيزو رسنيو يوه بايده برخه گرځېدلې او له انځور پرته د ورځپاڼو خپراوى ناشونى او بيخونده برېښي.
 
+### Afghanistan(検索日時 / searched at: 2026-11-12)
+
+Tags: `Afghanistan` `2026-11`
+
+- [افغانستان](https://ps.wikipedia.org/wiki/%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86) — افغانستان په رسمي توګه د افغانستان اسلامي امارت په غرونو کې کلابند يو غرنيز او سمسور هېواد دی چې د "۴۳ میلیونه" وګړو او «۶۵۲۸۶۴» کیلومتره مربع ځمکي په درلودلو سره د آسيا په زړه کي پروت دی. په ټولیزه توګه دا هېواد د منځنۍ اسيا يوه ستراتېژیکه سیمه ګڼل کېږي چي په لوېدیځ کي له ایران، په شمال لوېدیځ کي له ترکمنستان، په شمال کي له ازبکستان او تاجکستان او په شمال ختیځ کي له چین سره ګډې پولې لري.
+- [د لنډې کيسې تاريخچه](https://ps.wikipedia.org/wiki/%D8%AF_%D9%84%D9%86%DA%89%DB%90_%DA%A9%D9%8A%D8%B3%DB%90_%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%DA%86%D9%87) — 
+- [انځور خبريالي](https://ps.wikipedia.org/wiki/%D8%A7%D9%86%DA%81%D9%88%D8%B1_%D8%AE%D8%A8%D8%B1%D9%8A%D8%A7%D9%84%D9%8A) — د ليكلو توكيو ترڅنگ د انځورونو خپراوى د انځوريزې خبريالۍ په نوم ياديږي. په اوسني پرمختللي پېر كې انځورخبريالي دډله یيزو رسنيو يوه بايده برخه گرځېدلې او له انځور پرته د ورځپاڼو خپراوى ناشونى او بيخونده برېښي.
+
+### France (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `France (English)` `2026-11`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [BBC News](https://en.wikipedia.org/wiki/BBC_News) — BBC News is an operational business division of the British Broadcasting Corporation (BBC) responsible for the gathering and broadcasting of news and current affairs in the UK and around the world. The department is the world's largest broadcast news organisation and generates about 120 hours of radio and television output each day, as well as online news coverage.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Afghanistan (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Afghanistan (English)` `2026-11`
+
+- [Elections in Afghanistan](https://en.wikipedia.org/wiki/Elections_in_Afghanistan) — Though Afghanistan has had democratic elections throughout the 20th century, the electoral institutions have varied as changes in the political regime have disrupted political continuity. Elections were last held under the Islamic Republic of Afghanistan, which was deposed by the Taliban in August 2021.
+- [2026 Shpageeza Cricket League](https://en.wikipedia.org/wiki/2026_Shpageeza_Cricket_League) — The 2026 Shpageeza Cricket League (also known as for sponsorship reasons as 2026 e& Shpageeza Cricket League) was the 11th edition of the Shpageeza Cricket League, a professional Twenty20 cricket (T20) league established by the Afghanistan Cricket Board (ACB) in 2013, and the seventh edition to have official T20 status. On 20 June 2026, Afghanistan Cricket Board announced the complete fixtures of the 2026 editions.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The News Agents](https://en.wikipedia.org/wiki/The_News_Agents) — The News Agents is a British daily podcast produced by Global Media & Entertainment. It is presented by Emily Maitlis, Jon Sopel, and Lewis Goodall.
+- [David Muir](https://en.wikipedia.org/wiki/David_Muir) — David Jason Muir ( MURE; born November 8, 1973) is an American journalist and anchor for ABC World News Tonight and co-anchor of the ABC News magazine 20/20, part of the news department of the ABC broadcast-television network, based in New York City. Muir previously served as the weekend anchor and primary substitute anchor on ABC's World News Tonight with Diane Sawyer before succeeding her on September 1, 2014.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 災害激甚化、タイ製造業の「新常態」に トヨタなど自動車生産停止 · バンコク、豪雨で主要道路の冠水相次ぐ 都知事「東部で洪水」 · 東京ガス系、タイで再エネ電力を供給 ...
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — 灯籠流しとランタン祭り、バンコク～チェンマイ便が往復14万円に 「高すぎる」との… · 三菱自 タイ 現法、新型パジェロの日本向け輸出開始 タイ 工場を世界供給拠点に · タイ と ...
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — タイ南部サムイ島で大雨による道路冠水、警察が不要不急の外出を控えるよう呼びかけ · 2027年のタイフェスティバル東京、5月15日(土)・16日(日)に開催へ · タイの今日は何 ...
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新ニュース · 高島屋、好調の背景 円安で海外控え国内消費、富裕層はタイからが増 · Jの風レイソル ACLEのタイ遠征、ピッチの外でも支える裏方たち · ネパールで急増した「 ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイ東北部の自治体職員17名に薬物検査、うち3名が陽性 。さらに銃と実弾所持の発覚！ 2026/11/12. パタヤで元警察ボランティアの女を逮捕。薬物 ...
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【社会】 タイ 政府、「72時間分の備蓄」ブームに警鐘 買いだめ不要と呼びかけ · 【日系企業】三菱自、新型パジェロを タイ から日本へ輸出開始 27年度から100カ国超に · 【労働】 ...
+- [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — 【バンコク時事】 タイ 中央銀行は9日、海外の金融機関でサイバー攻撃やシステム障害が発生していることを受け、国内の金融機関に対し、警戒と防御態勢の強化を指示した。
+
+### Italy (English)(検索日時 / searched at: 2026-11-12)
+
+Tags: `Italy (English)` `2026-11`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [Sky News](https://en.wikipedia.org/wiki/Sky_News) — Sky News is a British free-to-air television news channel, live stream news network, and news organisation. Sky News is distributed via an English-language radio news service, and through online channels.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
