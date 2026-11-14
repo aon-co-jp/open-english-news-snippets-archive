@@ -858,3 +858,29 @@ Tags: `France` `2026-11`
 - [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
 - [Mouvement lycéen et étudiant de 2026 en France](https://fr.wikipedia.org/wiki/Mouvement_lyc%C3%A9en_et_%C3%A9tudiant_de_2026_en_France) — Le mouvement lycéen et étudiant de 2026 en France est un mouvement social national — dans l'Hexagone comme en outre-mer — réunissant des lycéens (élèves des trois dernières années du cycle secondaire), des professeurs, puis des étudiants, qui dénoncent leurs conditions d'enseignement et de scolarité. Marqué par des blocus, des rassemblements et des manifestations, il s'inscrit dans les manifestations de la génération Z. Les revendications portent sur le manque d'enseignants et de personnels, les conditions matérielles des établissements, les sureffectifs des classes (en) en lycée, les emplois du temps au lycée et la pression liée au système d'admission post-bac Parcoursup, en place depuis 2018.
 
+### France(検索日時 / searched at: 2026-11-13)
+
+Tags: `France` `2026-11`
+
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Sophia Chikirou](https://fr.wikipedia.org/wiki/Sophia_Chikirou) — Sophia Chikirou, née le 3 juin 1979 à Bonneville (Haute-Savoie), est une femme politique française et communicante. Militante socialiste de 1997 à 2006, Sophia Chikirou rejoint en 2007 La Gauche moderne, fondée par Jean-Marie Bockel, ex-figure du PS ralliée à Nicolas Sarkozy, mais quitte le mouvement en 2008 faute d'avoir pu être tête de la liste soutenue par l'UMP lors des élections municipales de 2008 dans le 20e arrondissement de Paris.
+- [Hugo Clément](https://fr.wikipedia.org/wiki/Hugo_Cl%C3%A9ment) — Hugo Clément, né le 7 octobre 1989 à Strasbourg (Bas-Rhin), est un journaliste et militant écologiste français connu pour son engagement en faveur du bien-être animal. Il commence sa carrière sur France 2 avant de devenir une figure médiatique au sein du Petit Journal puis de Quotidien.
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+- [Audrey Goutard](https://fr.wikipedia.org/wiki/Audrey_Goutard) — Audrey Goutard est une journaliste française de presse écrite, radio et télévision, aussi réalisatrice et écrivaine.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 外相「朝鮮半島平和は韓中の共通利益」 王氏「関係改善が正常な軌道に」 · 高病原性鳥インフル「危険注意報」発令 防疫強化へ＝ 韓国 当局 · ［韓流］AI曲が 韓国 大手 ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 北朝鮮外相「核保有の意志は絶対に不変」…G7の非核化要求を一蹴 北朝鮮が「北朝鮮の完全な非核化」を再確認した 主要 7カ国（G7）外相の共同声明に反発し、核保有の意志 ...
+- [最新の 韓国ニュース - ライブドアニュース - Livedoor](https://news.livedoor.com/article/category/44/) — キム・スヒョンに約1億4000万円の賠償命令 私生活騒動による広告契約トラブルで一部敗訴. スポーツソウル日本版; 11月13日 16時48分 · グーグル（Google）のロゴ。
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — 韓国LCC3社が合併へ 新生「ジンエアー」、国内最大規模 に · アジアBiz M＆Aニュース 物流・運輸 朝鮮半島 · 19時間前. 【ソウル=松浦奈美】韓国国土交通省は12日、韓国格安 ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — サムスンのAI眼鏡 来月から韓米で発売＝ジェントルモンスターなどと協業 · 村上春樹氏の新作「夏帆」 韓国 で3週連続ベストセラー1位 · 韓国 空港鉄道労使 賃金交渉が劇的妥結 ...
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「 韓国 」 ニュース 一覧 · イ政権が苦慮 “不協和音”の米韓関係 · 韓国 で大規模旅行博覧会 日本から各地の自治体も参加 魅力をPR · 韓国 で広がる若者の読書ブーム “テキスト ...
+

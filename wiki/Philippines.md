@@ -819,3 +819,55 @@ Tags: `Philippines` `2026-11`
 - [List of longest-running Philippine television series](https://en.wikipedia.org/wiki/List_of_longest-running_Philippine_television_series) — This is a list of the longest-running Philippine television series, ordered by number of years the show has been aired. This list includes only programs aired ten years and above.
 - [1987 in Philippine television](https://en.wikipedia.org/wiki/1987_in_Philippine_television) — The following is a list of events affecting Philippine television in 1987. Events listed include television show debuts, finales, cancellations, and channel launches, closures and rebrandings, as well as information about controversies and carriage disputes.
 
+### Philippines(検索日時 / searched at: 2026-11-13)
+
+Tags: `Philippines` `2026-11`
+
+- [List of Philippine television shows](https://en.wikipedia.org/wiki/List_of_Philippine_television_shows) — Here is the list of Philippine television shows categorised into its respective genres.
+- [Big News](https://en.wikipedia.org/wiki/Big_News) — Big News was a Philippine television news broadcasting show broadcast by ABC. Originally anchored by Duds Rivera and Bong Lapira, it aired from March 19, 1962 to September 22, 1972. The show returned on February 24, 1992.
+- [Daniel Razon](https://en.wikipedia.org/wiki/Daniel_Razon) — Daniel Soriano Razon (Tagalog: [ˈdɐnjɛl soɾˈjano ɾaˈson]; born October 11, 1967) is a Filipino television and radio host. He is currently the Overall Servant (minister; Tagalog: Lingkod Pangkalahatan) of the Members Church of God International, succeeding Eli Soriano after the latter's death on February 11, 2021.
+- [List of Philippine television programs by date](https://en.wikipedia.org/wiki/List_of_Philippine_television_programs_by_date) — The following is a partial list of Philippine television programs by date of first broadcast in the Philippines. The lists of television programs are in reverse chronological order by year; within each year, the list is chronological.
+- [List of TV5 original programming](https://en.wikipedia.org/wiki/List_of_TV5_original_programming) — TV5 (also known as 5 and formerly known as ABC) is a Philippine free-to-air television and radio network owned by TV5 Network, Inc. a subsidiary of MediaQuest Holdings, which is controlled by the telecommunications company of PLDT, Inc.
+- [List of programs broadcast by DZRH/DZRH News Television](https://en.wikipedia.org/wiki/List_of_programs_broadcast_by_DZRH/DZRH_News_Television) — These are the programs that have been currently aired on DZRH and through its TeleRadyo channel DZRH News Television.
+- [List of longest-running Philippine television series](https://en.wikipedia.org/wiki/List_of_longest-running_Philippine_television_series) — This is a list of the longest-running Philippine television series, ordered by number of years the show has been aired. This list includes only programs aired ten years and above.
+- [1987 in Philippine television](https://en.wikipedia.org/wiki/1987_in_Philippine_television) — The following is a list of events affecting Philippine television in 1987. Events listed include television show debuts, finales, cancellations, and channel launches, closures and rebrandings, as well as information about controversies and carriage disputes.
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Taiwan (Japanese)` `2026-11`
+
+- [最新 | フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/news) — 最新 · 統一地方選/直轄6市の市長選、選挙運動始まる 28日投開票／ 台湾 · コーヒーや茶の廃棄物の価値を向上 新技術で3Dプリント用材料などに活用／ 台湾 · リトアニアの政治 ...
+- [フォーカス 台湾 - 中央社日本語版](https://japan.focustaiwan.tw/) — 最新 · 台湾、豪に逆転勝ち 今大会初勝利 アジアプロ野球CS · 日本時代の製糖所実験室 修繕工事が起工／台湾 · 軍用ドローンに中国製チップ テック企業の経営者夫妻を ...
+- [中国・ 台湾 の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国や台湾の最新ニュース・特集 をまとめました。中国の習近平国家主席の動向や中国経済、台湾を巡る情勢、TSMCや鴻海のニュースなどをお伝えします。
+- [最新 台湾 情勢 ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/taiwan/) — 台湾 情勢 · 5時間前. 台湾 「統一」実現すべき、歴史の流れ止められず＝中国国家主席 · 3時間前. 台湾 、中国でのAPEC首脳会議に「対等な立場」で参加 頼総統が強調 · 3時間 ...
+- [台湾ニュース ＠中央社フォーカス 台湾 (@focustaiwanjapa) / X](https://x.com/focustaiwanjapa) — 台湾ニュース を政治、社会からスポーツ、エンタメまで、日本語で毎日発信しています。 公式アプリ配信中。iOS、Androidに対応しています。「フォーカス 台湾 ... 台湾 ...
+- [「 台湾 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000222) — 「 台湾 」 ニュース 一覧 · 防衛研究所 中国にとって南シナ海はアメリカと対抗する基盤 · 野球日本代表 台湾 に5対0で勝利 井口監督 初采配の国際大会で · 中国 習主席 「祖国統一 ...
+- [中央社フォーカス 台湾 の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/ftaiwan) — 日本時代の製糖所実験室 修繕工事が起工／ 台湾 · 軍用ドローンに中国製チップ テック企業の経営者夫妻を国家安全法違反で起訴／ 台湾 · 東京で書道家・張炳煌さんの作品展 ...
+- [Taiwan Today](https://jp.taiwantoday.tw/) — 第30回「台仏文化奨」、台仏2名の受賞者決まる · 国家人権博物館景美園区の軍事法廷、展示内容をリニューアルして公開を再開 · IPACが中国の越境弾圧に警鐘、 台湾 は「歓迎」.
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Afghanistan (Japanese)` `2026-11`
+
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — アフガニスタン情勢 関連ニュース · アフガン隣国でケシ栽培急増 タリバンが禁止、越境作付けか (11月02日 16:11) · タリバンが子供の徴集強化 国連、爆発物被害多発も指摘― ...
+- [「 アフガニスタン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10105) — アフガニスタン隣国でケシ栽培急増 タリバン禁止で越境作付け · アフガニスタン、中国国境への道路開通 交易路の確立目指す · パキスタンが非常事態宣言 北西部の州、治安 ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — BBCのFMラジオ放送、アフガニスタンで停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米 ...
+- [アフガニスタン ・イスラム共和国の関連情報 - フォロー](https://follow.yahoo.co.jp/themes/009cdd0d709727a72400/) — アフガニスタン ・イスラム共和国に関する情報一覧。「 アフガニスタン ・イスラム共和国」をフォローして自分好みの情報を見よう。
+- [「 アフガニスタン 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000226) — パキスタンがアフガニスタン攻撃 対立の激化懸念 · UNDP＝国連開発計画“アフガニスタンの女性への支援継続を” · アフガニスタン東部地震から1年 継続支援を求める声.
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — イラン目指したアフガン人14人、灼熱の砂漠で遺体で発見 · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定 ...
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン戦争、過去の戦争と比べてどのくらい不 ...
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 2001年の米同時テロを受け、米国主導の「テロとの戦い」が幕を開けた アフガニスタン 戦争から今年で25年となる。アフガンでは駆逐されたイスラム主義勢力タリバン ...
+
+### France (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `France (English)` `2026-11`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [CTV News Channel (Canadian TV channel)](https://en.wikipedia.org/wiki/CTV_News_Channel_(Canadian_TV_channel)) — CTV News Channel is a Canadian specialty news channel owned by Bell Media (a wholly owned subsidiary of Bell Canada). It broadcasts national and international news headlines, breaking news, and information.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+

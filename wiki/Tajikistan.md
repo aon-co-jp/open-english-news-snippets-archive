@@ -1369,3 +1369,50 @@ Tags: `South Korea (English)` `2026-11`
 - [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
 - [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
 
+### Tajikistan(検索日時 / searched at: 2026-11-13)
+
+Tags: `Tajikistan` `2026-11`
+
+- [Рӯзнома](https://tg.wikipedia.org/wiki/%D0%A0%D3%AF%D0%B7%D0%BD%D0%BE%D0%BC%D0%B0) — Рӯзнома (форсӣ: روزنامه‎), газета, — нашрияе аст, ки ба таври мураттаб ва муназзам таҳия, чоп ва пахш мешавад ва бе ҳеч қайду шарте дар дастраси мардум қарор мегирад. Рӯзнома на баёния аст ва на иттилоъия ва барои равшан сохтани афкори мардум, балки ба нашри ахбору иттилоот дар заминаҳои гуногун ва интиқоду салоҳандешӣ дар умурӣ умумӣ мепардозад.
+- [Бозор](https://tg.wikipedia.org/wiki/%D0%91%D0%BE%D0%B7%D0%BE%D1%80) — Бозор (форсӣ: بازار‎ — bâzâr ← порсии миёна: wāzār ← порсии бостон: vāčar ← эронии бостон: *wahā-čarana аз *wahā- «додуситад кардан» + *čārana- «гаштугузор кардан») — ҷойи додуситад ва хариду фурӯши коло, маҳаллм иҷтимоъ ва додуситади фурӯшандагону харидорон.
+- [Кӯлоб](https://tg.wikipedia.org/wiki/%D0%9A%D3%AF%D0%BB%D0%BE%D0%B1) — Кӯлоб (форсӣ: کولاب‎) — шаҳр дар вилояти Хатлон. Аз ҷумлаи қадимтарин шаҳрҳои Осиёи Марказӣ маҳсуб мешавад.
+
+### Germany (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Germany (English)` `2026-11`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+
+### China (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `China (English)` `2026-11`
+
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — ネパール外相がCOP演説「正義求めてここへ」 復興資金集めに課題 · 運動会の映像に驚きの声も エジプトで日本式教育の教員養成始まる · 三井寺を初選出 サッカーU21代表.
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — エジプト下院、サウジ軍事支援策を承認 派兵実施か · サウジ国防相ら、イラン大統領と会談 「緊張緩和へ対話」 · フーシ、サウジアラビア首都の空港を再び攻撃 運用再開日に ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 11/09: エジプトで列車が衝突、7人死亡 112人負 傷; 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代エジプト人、王の死に際し ...
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425?page=3) — 「 エジプト 」 ニュース 一覧 · 仲介役のパキスタン外相 米イランの協議開催に期待示す · フランス ルーブル美術館 入館料に「二重価格」導入 · イスラエル 遺体返還で エジプト に ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+- [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — エジプト · 2026年11月12日. エジプト 中銀、政策金利を9カ月の据え置きから1ポイント引き上げ20.5％に( エジプト ) · 2026年11月12日 · 2026年11月9日 · 2026年10月30日 · 2026年 ...
+- [「 エジプト 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88) — …カイロ、 エジプト 、11月10日 (AP) ー カイロ南部で旅客列車2台が衝突し7人が死亡、125人以上 ...
+

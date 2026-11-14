@@ -1031,3 +1031,29 @@ Tags: `Malaysia` `2026-11`
 - [TV1 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV1_(Malaysian_TV_network)) — RTM TV1 (stylised as tv1) is a Malaysian free-to-air public television channel owned and operated by Radio Televisyen Malaysia, a broadcasting department of the Malaysian Government. Launched on 28 December 1963, TV1 is the first and oldest TV station in Malaysia.
 - [TV3 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV3_(Malaysian_TV_network)) — TV3 (read as TV Tiga in Malay pronounced [tivi tiga], "TV Three" in English) is a Bangsar-based Malaysian commercial free-to-air television channel under Sistem Televisyen Malaysia Berhad owned by Malaysian media conglomerate, Media Prima. TV3 is the third oldest TV station in Malaysia.
 
+### Malaysia(検索日時 / searched at: 2026-11-13)
+
+Tags: `Malaysia` `2026-11`
+
+- [BeautifulSoup scraping news article](https://stackoverflow.com/questions/60065910) — [SALAH] Passing Grade Universitas Indonesia 18 Tidak ada media arus utama yang mengangkat ber... &hellip; [BERITA] Kemenpan RB: Tidak Ada Pengangkatan C... 198 Juru Bicara Kepala BIN, Wawan Hari Purwanto me... &hellip;
+- [Media Prima](https://en.wikipedia.org/wiki/Media_Prima) — Media Prima Berhad is a Malaysian media company based in Bangsar, Kuala Lumpur. It is the largest media and entertainment conglomerate in Malaysia with business interests in television, print, radio, out-of-home advertising, content creation, and digital media.
+- [List of programmes broadcast by TV3 (Malaysian TV network)](https://en.wikipedia.org/wiki/List_of_programmes_broadcast_by_TV3_(Malaysian_TV_network)) — This is a list of television programmes broadcast by TV3 either currently broadcast or formerly broadcast on TV3 in Malaysia.
+- [Kool FM (Malaysia)](https://en.wikipedia.org/wiki/Kool_FM_(Malaysia)) — Kool FM (briefly known as Buletin FM and KOOL 101) is a Malaysian private radio station owned by Media Prima Berhad through its radio subsidiary, Media Prima Audio, which broadcasts in the Malay language. It was launched on 1 March 2016.
+- [Bernama](https://en.wikipedia.org/wiki/Bernama) — The Malaysian National News Agency (Malay: Pertubuhan Berita Nasional Malaysia), is a news agency of the government of Malaysia. It is an autonomous body under the Ministry of Communications.
+- [TV9 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV9_(Malaysian_TV_network)) — Ch-9 Media Sdn Bhd, operating as TV9 (spelled as tivi sembilan) is a Malaysian free-to-air television network owned and operated by Media Prima Berhad. It airs programming that tends mostly towards the Malay demographic.
+- [TV1 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV1_(Malaysian_TV_network)) — RTM TV1 (stylised as tv1) is a Malaysian free-to-air public television channel owned and operated by Radio Televisyen Malaysia, a broadcasting department of the Malaysian Government. Launched on 28 December 1963, TV1 is the first and oldest TV station in Malaysia.
+- [TV3 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV3_(Malaysian_TV_network)) — TV3 (read as TV Tiga in Malay pronounced [tivi tiga], "TV Three" in English) is a Bangsar-based Malaysian commercial free-to-air television channel under Sistem Televisyen Malaysia Berhad owned by Malaysian media conglomerate, Media Prima. TV3 is the third oldest TV station in Malaysia.
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に ...
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 ; 24年ぶりフランス国債の利回り高水準 背景は？【経済コラム】. 11月13日 20:09 ; 独メルセデス ドイツ 国内の工場閉鎖を検討 コスト削減が急務. 11 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ軍、中国製ドローンを排除へ 安全保障上の懸念から · ドイツ軍、女性兵士の7割が性的発言被害 国防相が34項目の対策 · 日本がドイツと自国民保護で協力覚書 6カ国目、 ...
+- [現地大使館・総領事館からの安全情報 履歴 ドイツ （114件）](https://www.anzen.mofa.go.jp/od/ryojiMail.html?countryCd=0049) — ○今月（11月）から ドイツ 国内各地でクリスマス・マーケットが開催されます。 ○ ドイツ 国内では、過去にクリスマス・マーケットを狙った車両突入テロが発生しているほか ...
+

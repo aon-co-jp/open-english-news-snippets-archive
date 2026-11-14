@@ -1077,3 +1077,133 @@ Tags: `Iran (Japanese)` `2026-11`
 - [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — 米国は2日、 イラ ンのゲシュム島を攻撃した。トランプ大統領が外交的解決に言及する中、米国がここ数週間イランに対して秘密裏に実施してきた限定的な攻撃 ...
 - [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — トランプ氏、退役軍人の日の演説で対イラン戦争を正当化 戦争を始めたのはイラン側だと主張(11月12日 17:25) · 米攻撃で「大量の温室効果ガス」 イラン大統領が非難― ...
 
+### South Africa(検索日時 / searched at: 2026-11-13)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [Democratic Alliance (South Africa)](https://en.wikipedia.org/wiki/Democratic_Alliance_(South_Africa)) — The Democratic Alliance (DA) is a liberal political party in South Africa, sitting on the centre to centre-right of the political spectrum. It has been the second-largest party in the country since its foundation in 2000.
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana (lit.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [Lara Logan](https://en.wikipedia.org/wiki/Lara_Logan) — Lara Logan (born 29 March 1971) is a South African television and radio journalist, war correspondent, and conspiracy theorist. Her career began with various South African news organizations in the 1990s.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Brazil (Japanese)` `2026-11`
+
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「 ブラジル 」 ニュース 一覧 · エルニーニョ現象 過去最大の強さに どんな影響が · サッカー日本代表 強化試合のメンバー28人発表 南野拓実が復帰 · 米到着のボルソナロ氏“政治 ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル大統領選挙、現職ルラ氏が再選 左派政権継続 · ブラジル大統領選、「1000万人網」でルラ氏逆転 SNS選挙に新機軸 · 米国到着のボルソナロ氏「国外から野党率いる」 ...
+- [ブラジル 日報 Jornal Brasil Nippou - YouTube](https://www.youtube.com/@BrasilNippou/playlists) — ブラジル 日報 今日 の ニュース ランキング · 相川七瀬 in ブラジル · ブラジル アマゾン · 県連日本祭り2025 · 佳子さま来伯2025年6月 サンパウロマリンガブラジリア ...
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 最新 ニュース · 日本代表、14日に ブラジル 戦 森保監督「持つ力をぶつける」 · ブラジル 監督「日本は手ごわい」 14日の試合へ、森保監督を評価 · 温暖化対策に背を向ける米 ...
+- [【 ブラジルニュース 速報集】 ブラジル 日報 - X](https://x.com/BRASILNIPPOU) — 【 ブラジルニュース 速報集】 ブラジル 日報 · @BRASILNIPPOU · 11h. 25日に迫る ブラジル 大統領選の決選投票を前に、第1回投票で敗れた 主要 候補が相次いで右派のフラヴィオ ...
+- [ブラジル - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/cs_america/br/) — 中東情勢悪化を受け、 ブラジル 政府は対話による解決の重要性を強調、経済への影響に懸念も(米国、 ブラジル 、イスラエル、イラン、南アフリカ共和国). 2026年3月12日.
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ブラジル日報 · ブラジル税制度改革の衝撃 2027年導入への期待と混乱 · 《ブラジル》ブルーツリー・ホテルズ＝青木智栄子氏の歩みを書籍化＝経営哲学と日本的価値観を紹介＝ ...
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ルーラ政権＝「超高給」公務員にメス入れなるか＝最大600億レアル削減の財政調整法案＝緊縮パッケージに冷ややかな市場 · 司法を揺るがす「マスター銀行事件」＝捜査 ...
+
+### Austria (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Conchita Wurst](https://en.wikipedia.org/wiki/Conchita_Wurst) — Thomas Neuwirth (born 6 November 1988) is an Austrian singer, actor, media personality and drag queen who is known for his stage persona Conchita Wurst, nicknamed "the Queen of Austria". He came to international attention after winning the Eurovision Song Contest 2014 for Austria with the song "Rise Like a Phoenix".
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+
+### Iran (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Iran (Japanese)` `2026-11`
+
+- [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — 注目コンテンツ · 11月6日 19:39 · イラン“ホルムズ海峡でタンカー炎上” 不安定な状況続く ; 最新情報はこちら · 11月8日 6:12 · 米のイラン攻撃回避に向け仲介外交 ホルムズで ...
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 11/13: トランプ氏、 イラン 戦争で共和党に背を向けた有権者に「失望」 物価高は「わずかな代償」と主張; 11/10: 冷蔵庫狙った「前代未聞の」サイバー攻撃、 ...
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — 【速報】米軍、 イラン の無人機撃墜 · 「米大統領面会」異例の厚遇一転、テロ支援国家指定解除に… · 【速報】 イラン 、バーレーンの米レーダー攻撃発表 · トランプ路線との決別 ...
+- [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — イラン、バーレーンの米軍レーダーを攻撃と発表 · トランプ氏、イランとの停戦合意「不要」 バンス氏に国内集中を指示 · 加盟国で石油融通へ転換 ASEAN事務局長、エネルギー ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — バーレーンの米施設攻撃を発表 ホルムズ巡り「重大な警告」―イラン (11月13日 22:32) · サウジの「パイプライン施設攻撃」 イエメンのフーシ派が主張(11月13日 07:31).
+- [イラン の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/06fd6249c78927c72400/) — トランプ氏「突然の方針転換」か、対イラン「合意不要」と投 稿… · IAEA、イランに査察受け入れ要請 イスファハン濃縮施設に「懸念」 · バーレーンの米施設攻撃を発表 ...
+- [イラン - BBC ニュース](https://www.bbc.com/japanese/topics/c8y946g2nz3t) — 英軍基地近くで5人逮捕、 イラン が関与との見方をバーナム英首相が示す イラン は反論. 2026年10月1日. 木々に囲まれた灰色の道に白いバンが数台停まっ. 英空軍基地の近くで ...
+- [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — イラン情勢 · イランの最強レベル兵器「機雷」、イラストで解説 · 米、中間選挙後のイラン短期猛攻撃を湾岸諸国に通告 · バンス米副大統領、イラン強硬派に書簡 和平交渉再開 ...
+
+### Japan (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Japan (English)` `2026-11`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Switzerland (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Switzerland (English)` `2026-11`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
+- [2026 United States Senate election in Texas](https://en.wikipedia.org/wiki/2026_United_States_Senate_election_in_Texas) — The 2026 United States Senate election in Texas was held on November 3, 2026, to elect the Class 2 member of the United States Senate from the state of Texas. Democratic state representative James Talarico defeated Republican state attorney general Ken Paxton.
+- [Primetime (film)](https://en.wikipedia.org/wiki/Primetime_(film)) — Primetime is a 2026 American psychological crime thriller film written by Ajon Singh and directed by Lance Oppenheim. It dramatizes the production of the reality television series To Catch a Predator (2004–2007); Robert Pattinson portrays its host Chris Hansen, an NBC journalist who works with the vigilante group Perverted-Justice to catch child predators in sting operations.
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に ...
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ に住む日本人のための日本語フリーペーパー、 ニュース ダイジェスト。 ドイツ 国内の ニュース 、地域の話題、文化、政治関連コラム、各地のイベントなど在住者も旅行 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 ; 24年ぶりフランス国債の利回り高水準 背景は？【経済コラム】. 11月13日 20:09 ; 独メルセデス ドイツ 国内の工場閉鎖を検討 コスト削減が急務. 11 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ軍、中国製ドローンを排除へ 安全保障上の懸念から · ドイツ軍、女性兵士の7割が性的発言被害 国防相が34項目の対策 · 日本がドイツと自国民保護で協力覚書 6カ国目、 ...
+- [現地大使館・総領事館からの安全情報 履歴 ドイツ （114件）](https://www.anzen.mofa.go.jp/od/ryojiMail.html?countryCd=0049) — ○今月（11月）から ドイツ 国内各地でクリスマス・マーケットが開催されます。 ○ ドイツ 国内では、過去にクリスマス・マーケットを狙った車両突入テロが発生しているほか ...
+
+### Thailand (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Thailand (English)` `2026-11`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Bhumibol Adulyadej](https://en.wikipedia.org/wiki/Bhumibol_Adulyadej) — Bhumibol Adulyadej (5 December 1927 – 13 October 2016), titled Rama IX, was King of Thailand from 9 June 1946 until his death in 2016. His reign of 70 years and 126 days is the longest of any Thai monarch, the longest on record of any independent Asian sovereign, and the third-longest of any sovereign state with a verified date.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Myanmar (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Myanmar (English)` `2026-11`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [Dave Leduc](https://en.wikipedia.org/wiki/Dave_Leduc) — Dave Leduc (born 13 December 1991) is a Canadian-Burmese Lethwei fighter. He is a former six-time Lethwei world champion who held the Openweight Lethwei World Championship and was undefeated under traditional rules KO to win.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · 秋の叙勲 3960人が受章 · ロシアが「人身取引」で29カ国の外国人を動員 国連独立委が認定 · タジキスタン からの国費留学生受け入れで合意 日本語学校経営 ...
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [タジキスタン 共和国の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0ee2889867904a8f2378/) — 中国首相、タジキスタンとの安全保障協力深化呼びかけ · 「屈辱的記録を次々更新」中国代表、タジキスタンに史上初黒星 泥沼3連敗に現地は嘆き「日本に対する敗北以来最も ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 新着一覧 · 尾野真歩が世界ランク1位を破り日本勢9連覇…「 · 韓国、資源開発協力で合意 首脳会議 中央アジア5か国と · アフガン国際復帰 見えぬ道筋 タリバン実権掌握5年.
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+

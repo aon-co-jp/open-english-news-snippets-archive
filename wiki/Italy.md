@@ -966,3 +966,42 @@ Tags: `Italy` `2026-11`
 - [Fake news](https://it.wikipedia.org/wiki/Fake_news) — Le fake news - note in italiano come bufale, notizie false, notizie fasulle o pseudonotizie - sono delle informazioni false o fuorvianti che possono essere divulgate attraverso qualsiasi media allo scopo di produrre misinformazione o disinformazione. ecc… Esempi di bufale possono essere articoli o pubblicazioni su reti sociali, redatti con informazioni inventate, ingannevoli o distorte, resi pubblici con il deliberato intento di disinformare, di creare scandalo attraverso i mezzi di informazione oppure di attirare clic su Internet.
 - [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
 
+### Italy(検索日時 / searched at: 2026-11-13)
+
+Tags: `Italy` `2026-11`
+
+- [Italia Oggi](https://it.wikipedia.org/wiki/Italia_Oggi) — Italia Oggi è un quotidiano economico, giuridico e politico.
+- [Striscia la notizia](https://it.wikipedia.org/wiki/Striscia_la_notizia) — Striscia la notizia, anche noto semplicemente come Striscia, è stato un programma televisivo italiano di genere infotainment, investigativo e satirico ideato da Antonio Ricci. È andato in onda dal 7 novembre 1988 al 7 giugno 2025 in access prime time, dal lunedi al sabato (e per brevi periodi anche la domenica).
+- [Italia](https://it.wikipedia.org/wiki/Italia) — L'Italia (AFI: /iˈtalja/, ), ufficialmente Repubblica Italiana, è un paese dell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica; Stato membro dell'Unione europea, l'Italia conta una popolazione di circa 59 milioni di abitanti, che ne fanno il terzo Stato dell'Unione per numero di abitanti dopo Germania e Francia. Delimitata dall'arco alpino, l'Italia confina a nord, da ovest a est, con Francia, Svizzera, Austria e Slovenia; la penisola italiana si protende nel mar Mediterraneo, circondata dai mari Ligure, Tirreno, Ionio e Adriatico, e da numerose isole (le maggiori sono Sicilia e Sardegna), per un totale di 302068,26 km².
+- [QN Quotidiano Nazionale](https://it.wikipedia.org/wiki/QN_Quotidiano_Nazionale) — QN Quotidiano Nazionale è il marchio che identifica un consorzio di quattro testate giornalistiche: il Resto del Carlino, edito a Bologna e primo quotidiano in Emilia-Romagna, presente anche nelle Marche e in Veneto nella provincia di Rovigo; La Nazione, edito a Firenze e primo quotidiano in Toscana, radicato anche in Umbria e in Liguria nella Provincia della Spezia; Il Giorno, edito a Milano e uno dei principali quotidiani della Lombardia; Il Telegrafo, storico quotidiano di Livorno, ora attivo come giornale online. Dal 1º luglio 2022 il consorzio di testate giornalistiche è diretto da Agnese Pini.
+- [Notizia](https://it.wikipedia.org/wiki/Notizia) — Una notizia (dalla lingua latina latino notitia) è, in generale, un'informazione di cui si viene a conoscenza. Per gran parte della storia umana le notizie sono state trasmesse oralmente.
+- [Italia 1](https://it.wikipedia.org/wiki/Italia_1) — Italia 1 è un canale televisivo italiano privato di tipo generalista con target giovanile, diffuso a livello nazionale ed edito da Mediaset, società che ha acquistato il canale nel dicembre del 1982 dalla Rusconi, che lo aveva lanciato il 3 gennaio dello stesso anno.
+- [Fake news](https://it.wikipedia.org/wiki/Fake_news) — Le fake news - note in italiano come bufale, notizie false, notizie fasulle o pseudonotizie - sono delle informazioni false o fuorvianti che possono essere divulgate attraverso qualsiasi media allo scopo di produrre misinformazione o disinformazione. ecc… Esempi di bufale possono essere articoli o pubblicazioni su reti sociali, redatti con informazioni inventate, ingannevoli o distorte, resi pubblici con il deliberato intento di disinformare, di creare scandalo attraverso i mezzi di informazione oppure di attirare clic su Internet.
+- [Episodi di Squadra antimafia - Palermo oggi (quarta stagione)](https://it.wikipedia.org/wiki/Episodi_di_Squadra_antimafia_-_Palermo_oggi_(quarta_stagione)) — La quarta stagione della serie televisiva Squadra antimafia - Palermo oggi è stata trasmessa in prima visione in Italia da Canale 5 dal 10 settembre al 19 novembre 2012.
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Taiwanese Mandarin](https://en.wikipedia.org/wiki/Taiwanese_Mandarin) — Taiwanese Mandarin, natively referred to as Guoyu (Chinese: 國語; pinyin: Guóyǔ; Zhuyin Fuhao: ㄍㄨㄛˊ ㄩˇ; lit. 'national language') or Huayu (Chinese: 華語; pinyin: Huáyǔ; Zhuyin Fuhao: ㄏㄨㄚˊ ㄩˇ; lit.
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [Ting Hsin International Group](https://en.wikipedia.org/wiki/Ting_Hsin_International_Group) — Ting Hsin International Group (Chinese: 頂新國際集團; pinyin: Dǐngxīn Guójì Jítuán) is a Taiwanese-owned corporate group established in 1958. It owns various food brands such as the instant noodle maker Master Kong, Wei-Chuan Food Corporation and Dicos.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — 【 タイ 】バンコク都庁（BMA）は11月17～29日、都内5会場でローイ・クラトン祭りを開催する。会場… タイ 国鉄、ダムの上を走る「水上列車」の予約受付開始 往復350バーツから.
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — タイ外相、ミャンマー大統領に戦闘の越境被害防止を要請 · ASEANで石油共同備蓄、日本が主導 インドネシア・タイに拠点 · 明治、タイに新工場 牛乳の成長見込み227億円投資.
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — ... ニュース など（できるだけ）楽しい、 タイ 好きの皆さんが興味のある話題を中心にお届けします。 タイ の 今日 は何の日？ 11月13日は タイ の国会事務局が法制化された日」.
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新ニュース · 高島屋、好調の背景 円安で海外控え国内消費、富裕層はタイからが増 · Jの風レイソル ACLEのタイ遠征、ピッチの外でも支える裏方たち · ネパールで急増した「 ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — 2026-11-13. タイ 航空の23機にも影響？！ · 2026-11-13. 日本・ タイ ・香港・シンガなど複数の航空会社で乗客情報が流出。 · 2026-11-13. パタヤで英国人と タイ 人女性を逮捕！
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【社会】 タイ 政府、「72時間分の備蓄」ブームに警鐘 買いだめ不要と呼びかけ · 【日系企業】三菱自、新型パジェロを タイ から日本へ輸出開始 27年度から100カ国超に · 【労働】 ...
+- [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — 【バンコク時事】 タイ 中央銀行は9日、海外の金融機関でサイバー攻撃やシステム障害が発生していることを受け、国内の金融機関に対し、警戒と防御態勢の強化を指示した。
+

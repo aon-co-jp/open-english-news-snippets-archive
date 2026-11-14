@@ -1124,3 +1124,9 @@ Tags: `Ukraine (English)` `2026-11`
 - [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
 - [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
 
+### Myanmar(検索日時 / searched at: 2026-11-13)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+

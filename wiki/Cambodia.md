@@ -1031,3 +1031,48 @@ Tags: `Cambodia` `2026-11`
 
 - [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
 
+### Cambodia(検索日時 / searched at: 2026-11-13)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
+### China (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 最新の中国ニュース ; 旧日本軍の細菌戦・化学戦、新たな証拠明らかに 中国で学 術 シンポ · 11月14日 0時2分 ; 中国、APEC首脳会議で「一層の共通認識形成」期待 · 11月13日 22 ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 習近平国家主席がAPEC第33回非公式首脳会議及び関連行事出席へ · 中国語・英語・モンゴル語の車内アナウンスがある列車が話題に · 中国の世界地質遺産が3ヶ所追加！ · 輸出 ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. ラトニック米商務長官＝9月、米ノースカロライナ州チャペルヒル（共同）. 米商務長官の去就協議か エヌビディア問題で. 05時58分. 共同通信.
+- [「 中国 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「 中国 」 ニュース 一覧 ; エヌビディア フアン氏 CEOを辞任 日本での受け止めは. 11月13日 18:53 ; 高市首相 来週ASEAN・APECの首脳会議出席へ 政府発表. 11月13日 12:25.
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 、米輸出管理「乱用」に反対 首脳合意の実行要求―エヌビディアCEO辞任(11月13日 20:15) · 習主席、台湾独立に反対 中国 で孫文生誕160年の記念行事(11月12日 17:08).
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 日産、中国で新型PHV「NX7」を発表 310万円から · タイ、中国とEVや農業で協力拡大 「2プラス2」27年初に初開催 · スパイ疑惑の女性の企業、NVIDIA半導体を上海に納入か 米 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/13: エヌビディアCEOの不倫相手、 中国 政府のスパイだったのか？ 確証は依然得られず; 11/12: エヌビディアCEOの不倫相手、 中国 情報機関との関係に疑問残る ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Disinformation in the Russo-Ukrainian war](https://en.wikipedia.org/wiki/Disinformation_in_the_Russo-Ukrainian_war) — As part of the Russian invasion of Ukraine, the Russian state and state-controlled media have spread disinformation in their information war against Ukraine. This disinformation has also been spread and promoted by so-called Russian web brigades, using fake profiles on social media.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-11-13)
+
+Tags: `Switzerland (Japanese)` `2026-11`
+
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイス の報道機関による日本関連の ニュース を分析し、多様な視点を届けます。こちらはその記事一覧ページです。
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — UBS、スイス脱出の切り札 メガバンク・野村は統合相手の伏兵か · フランス今や「欧州の病人」 金利はPIIGS超え、政治不安で国債売り · 欧州の銀行再編、イタリアが震源地 最 ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 最新ニュース · 酷暑の欧州、相次いだ運転制限 「原発は気候変動の解決策なのか」 · 川岸で見つけた化石はシカの新種 岐阜・瑞浪、アマチュア研究者発見 · 「被害はゆっくり、 ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — スイスの氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価 · スイスで観光客を乗せたバスが横転 5人死亡 · W杯 決勝トーナメント【全結果 ...
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — イエメン西部で戦闘激化、30万人超が避難 国連発表. Swiss . スイス ・ライン川で切断遺体見つかった事件、バングラデシュ人男を逮捕 難民申請者収容施設で生活 ...
+- [「 スイス について」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%B9%E3%82%A4%E3%82%B9%E3%81%AB%E3%81%A4%E3%81%84%E3%81%A6) — スイス のデジタル銀行、ETH建てのファンド開始──年8〜10%目標 · 大分県議会の海外視察、公費支出の上限1人170万円 16人が申し合わせの100万円超える · 国連の人権状況定期 ...
+
