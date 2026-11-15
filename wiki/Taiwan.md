@@ -1218,3 +1218,94 @@ Tags: `Taiwan` `2026-11`
 - [寶林茶室中毒案](https://zh.wikipedia.org/wiki/%E5%AF%B6%E6%9E%97%E8%8C%B6%E5%AE%A4%E4%B8%AD%E6%AF%92%E6%A1%88) — 寶林茶室中毒案為2024年臺灣一宗重大集體食物中毒事件。3月下旬，臺北市信義區遠東百貨信義A13寶林茶室疑似處理食物不當導致滋生唐菖蒲伯克氏菌（學名：Burkholderia gladioli），並分泌邦克列酸（英語：Bongkrek acid），導致19日起有多名食客食物中毒就醫。
 - [有线电视新闻网](https://zh.wikipedia.org/wiki/%E6%9C%89%E7%BA%BF%E7%94%B5%E8%A7%86%E6%96%B0%E9%97%BB%E7%BD%91) — 有線電視新聞網（英語：Cable News Network），英語縮寫及通稱「CNN」，是美國一個透過有線電視與衛星電視播出的新聞頻道，由泰德·透納於1980年創辦，最初由透納廣播公司經營，現隸屬天舞公司旗下。對全世界播出，CNN總部和主要播報室位於美國喬治亞州的亞特蘭大。
 
+### Taiwan(検索日時 / searched at: 2026-11-14)
+
+Tags: `Taiwan` `2026-11`
+
+- [Yahoo新聞](https://tw.news.yahoo.com/) — 羅大佑評論未婚未育 蔡英文再發聲「照顧台灣下一代的心情不變」 ... [FTNN新聞網]記者張書翰／綜合報導半導體封測龍頭日月光投控（3711）於昨（13）日於南科高雄園區舉行「日月光南科分公司路竹廠一期啟用暨二期動土典禮」，典...
+- [李文儀](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E5%84%80) — 李文儀（1978年9月30日—），於台灣出生的台灣新聞主播、主持人、製作人，畢業於英國倫敦大學學院國際公共政策碩士。現為三立新聞台《台灣大頭條》當家主播、《消失的國界》主持人、三立iNEWS《台灣新思路》主持人。
+- [NOWnews今日新聞](https://www.nownews.com/) — 台灣隊長郭天信跑壘價值連城！趁暴投狂奔2壘包 再靠馬傑森犧牲打跑回超前分｜NOWNEWS
+- [李晶玉](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%99%B6%E7%8E%89) — 李晶玉（1968年10月19日—），臺灣新聞主播及主持人，籍貫江西省，夫婿彭文正為通緝犯，夫妻二人曾主持過壹電視新聞台政論節目《正晶限時批》與民視新聞台政論節目《政經看民視》，現擔任網路政論節目《政經關不了》主持人、《今天遇見你》主持人。
+- [今日頭條新聞網 | 今日新聞頭條，首屈一指的商業、科技、金融與財經新聞頭條平台](https://headnews.com.tw/) — 日式庭園如何融入 台灣 住宅？水木石董尚儒分享設計新思維 高鐵N700ST新車明年上路！ITF搶先預購500套 聯名商品曝光 林智勝揪王勝偉、陳鏞基組「時尚F3」！喊話唱片公司快來簽 卡娜赫拉陪你過耶誕！新北耶誕城11/13開城 ...
+- [台灣偶像劇列表](https://zh.wikipedia.org/wiki/%E5%8F%B0%E7%81%A3%E5%81%B6%E5%83%8F%E5%8A%87%E5%88%97%E8%A1%A8) — 本表列出台灣各電視台、網路平台製作及播出的偶像劇。 中視1996年12月所播出的「偶像一級棒劇場」是臺灣首度出現名為「偶像劇」的戲劇節目時段，但並未成為一個正式劇種。
+- [頭條焦點 | NOWnews今日新聞](https://www.nownews.com/cat/column-headline/) — 國民黨主席鄭麗文日前接受美國媒體NBC專訪，剖析台美關係與國家發展藍圖。她指出，台美友誼源遠流長，從歷史上的並肩作戰到長期的深厚情誼，美國支持始終是中華民國發展的重要基石，儘管台灣必須掌握自身命運，但...
+- [字幕跑馬燈](https://zh.wikipedia.org/wiki/%E5%AD%97%E5%B9%95%E8%B7%91%E9%A6%AC%E7%87%88) — 新聞跑馬燈（有時簡稱跑馬燈；英語對應詞：News ticker）是在電視新聞畫面上的一個小空間，通常是用來顯示頭條新聞或是新聞報導中較小的細節。跑馬燈有時也指在某些建築物或室內空間用來表現訊息的顯示版，如鐵路站內的列車到站資訊顯示跑馬燈。
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-14)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 外相「朝鮮半島平和は韓中の共通利益」 王氏「関係改善が正常な軌道に」. 11/13(金) 20:40. 高病原性鳥インフル「危険注意報」発令 防疫強化へ＝ 韓国 当局.
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — ［APBC］日本に敗れた 韓国 監督「打者は粘り強い姿を見せた…投手は良い経験」. 中央日報; 11月14日 13時31分. 衝撃的な泥酔ダンス…“NHK韓ドラの女王”のイメージを覆した ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします](https://japanese.joins.com/) — 韓国 外交長官「韓半島問題は死活的利益」、中国外相「手を握ってアジア太平洋共同体を築こう」 · ASEAN・APECを控え韓中外相会談…韓半島問題など協議か · 【時論】韓中政府間 ...
+- [韓国 ・朝鮮半島に関する ニュース と解説 - 日本経済新聞](https://www.nikkei.com/international/korea/) — 韓国 と北朝鮮に関する ニュース と解説、特集をまとめました。日韓関係やサムスン、現代自動車などの 韓国 企業、北朝鮮のミサイル問題などの ニュース を読めます。
+- [聯合 ニュース](https://jp.yna.co.kr/) — AI曲が 韓国 大手チャートで初の1位 人気アーティスト抑え · ILLITと&TEAM 紅白歌合戦出場決定 · 韓国 外相「朝鮮半島平和は韓中の共通利益」 王氏「関係改善が正常な軌道に」.
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「韓国」ニュース一覧 · 野球日本代表 ホームラン4本で韓国との打ち合い制し2連勝 · イ政権が苦慮 “不協和音”の米韓関係 · 韓国で大規模旅行博覧会 日本から各地の自治体も ...
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー経済の詳細やビジネスに直結する新着ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 朝日新聞の、ミャンマーに関するニュースや速報記事一覧 です。ミャンマーに関する現状や背景を、わかりやすくお伝えします。
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — ミャンマー、ASEAN議長国のスーチー氏解放要求に抗議 外務省声明 · スーチー氏、赤十字ミャンマー代表と面会 軟禁移行後で初の公表 · ミャンマー、国内和平にらみ恩赦 ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — 「ミャンマー」ニュース一覧 · 国連 ミャンマーの民主派大使が軍への武器供給停止訴え · 拘束中のスー・チー氏と電話 次男“生存確認できてよかった” · 拘束続くスー・チー氏に ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — ミャンマー連邦 · 中国人が買い求める「緑の宝石」が内戦の資金源 に… · 【ミャンマー】エネ相、地場企業に石油・ガス71鉱区へ投資要請 · シェアハウスで同居女性の胸ひっかき ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー 、来年4月に補選(11月06日 17:25) · ロヒンギャ迫害、19日判決 ジェノサイド訴訟―国際司法裁(11月04日 07:48) · ASEAN特使が ミャンマー 訪問 スーチー氏と ...
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — ASEAN首脳会議、タイ首相が3指針を提唱へ 経済連携や機動性強化 · タイ代表の高校生ロボットチーム、千葉開催の世界大会へ出場 教育相が激励 · 「ここがポイント」日本人が見 ...
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — ... 大規模拡張 · タイ の 今日 は何の日？ 11月14日は「王室人工雨の父の日」 · タイ 国鉄、レッドライン「1日上限40バーツ」を2027年末まで延長、学生は30バーツ · バンコク ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイ 北部の山岳観光地を無期限立ち入り禁止に！ 観光客が154メートルの… · 2026-11-15. タイ 南部の寺院で、現金など総額100万バーツ超のバラマキ大盤振る舞い！ · 2026-11-15 ...
+- [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — 【バンコク時事】 タイ のエクニティ副首相兼財務相は11日、財務省で、大鷹正人駐 タイ 大使と会談し、自動車に関する物品税措置や経済・産業協力の促進について協議した。
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【社会】 タイ 政府、「72時間分の備蓄」ブームに警鐘 買いだめ不要と呼びかけ · 【日系企業】三菱自、新型パジェロを タイ から日本へ輸出開始 27年度から100カ国超に · 【労働】 ...
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — タイ外相、ミャンマー大統領に戦闘の越境被害防止を要請 · ASEANで石油共同備蓄、日本が主導 インドネシア・タイに拠点 · 明治、タイに新工場 牛乳の成長見込み227億円投資.
+- [タイニュース ＆ タイ ブログ (@Thai_News_JP) / X](https://x.com/Thai_News_JP) — 【タイランドハイパーリンクス】 タイ のLTRビザ、4年間で1万2千人超を認定 日本人は1300人超で2番目: タイ 投資委員会（BOI）は2026年10月5日、長期滞在者向け ...
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- [ロシア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/russia/) — ロシア · 【プーチン大統領、訪露のウィトコフ、クシュナー両特使と協議へ＝ウシャコフ大統領補佐官】 · 【ウクライナ和平交渉に欧州を参加させる必要がある＝クシュナー氏】.
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — ウクライナ和平協議、米ロ主導に欧州警戒 安保秩序の再構築議論 · プーチン氏、ウクライナ東部で人道支援を提案 「誰の支配下か明らかに」 · 米特使がプーチン氏と会談 3カ国 ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 11/14: トランプ氏が習氏・プーチン氏と会談へ、歴史的な米中ロ3首脳会談 核不拡散が議題に · ロシア 首都で車爆発、ウクライナ親ロ派政治家の元側近が負傷 前日 ...
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ロシア · 【解説】 強硬姿勢を崩さないプーチン氏、ウクライナ和平の条件を一段と拡大 · ホワイトハウス、米ロ中首脳の歴史的会談を実施すると発表 トランプ大統領、プーチン ...
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — ロシア南部工業地帯に無人機攻撃、4人死亡 主要製油所で火災 · Reuters logo. 21時間前. ウクライナ戦争で「最大規模の捕虜交換」へ、クシュナー氏明かす · ウクライナ戦争 ...
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · トランプとプーチンと短い戦争の幻想、習近平は正しい教訓を学ぶか？ · JTの ロシア ・ショック、現地資産1.5兆円が危機に！ · ウクライナ戦争「もう一つの戦場」、 ...
+- [「 ロシア 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — 米中ロ3か国首脳会談 19日に初めての開催へ · 新ロシア大使に宇山秀樹氏を起用へ 元外務省欧州局長 政府 · ウクライナ和平協議にヨーロッパ代表も 英仏独など5か国 · 日ロ首脳 ...
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — Russia. プーチン氏、ロシアへのスポーツ制限は「政治的」と非難 · ロシア、欧州各国のスーパー狙ったサイバー攻撃への関与否定 冷蔵庫の温度急上昇 ...
+
+### Germany (English)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Germany (English)` `2026-11`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 11月7日 時事） ドイツ 政府は6日、防衛大手KNDSの大株主一族から50％の保有株式を全てを買い受けることで合意間近だと明らかにした。独メディアは11月中に正式 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — ドイツで若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、69歳男に ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツで生活費上昇への抗議デモ、一部が暴徒化し商店で略奪 · ビデオ, ドイツで平和的な抗議活動が暴力と略奪に変容, 所要時間 0,58 · ノルド・ストリーム爆破、ウクライナ ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「ドイツ」ニュース一覧 · ウクライナ和平協議にヨーロッパ代表も 英仏独など5か国 · 24年ぶりフランス国債の利回り高水準 背景は？【 · 独メルセデス ドイツ国内の工場閉鎖を ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/02: Z世代の抗議活動が暴徒化、過激派が潜入と当局 ドイツ ; 11/01: ハロウィーンに合わせ ドイツ へデモ拡大 フランスでも数十万人が参加; 10/30: 動物園で8歳 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 11月14日 · 中国も米国も信じぬ欧州 メルツ独首相が語った「日本との絆」 · EUと仏独など5カ国、ウクライナ和平協議に参加へ 首脳会議で合意.
+- [現地大使館・総領事館からの安全情報 履歴 ドイツ （114件）](https://www.anzen.mofa.go.jp/od/ryojiMail.html?countryCd=0049) — ○今月（11月）から ドイツ 国内各地でクリスマス・マーケットが開催されます。 ○ ドイツ 国内では、過去にクリスマス・マーケットを狙った車両突入テロが発生しているほか ...
+

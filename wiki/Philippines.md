@@ -871,3 +871,68 @@ Tags: `France (English)` `2026-11`
 - [CTV News Channel (Canadian TV channel)](https://en.wikipedia.org/wiki/CTV_News_Channel_(Canadian_TV_channel)) — CTV News Channel is a Canadian specialty news channel owned by Bell Media (a wholly owned subsidiary of Bell Canada). It broadcasts national and international news headlines, breaking news, and information.
 - [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
 
+### Philippines(検索日時 / searched at: 2026-11-14)
+
+Tags: `Philippines` `2026-11`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — October 2, 2026 - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Balita Pilipinas Ngayon - Wikipedia](https://en.wikipedia.org/wiki/Balita_Pilipinas_Ngayon) — May 27, 2026 - Balita Pilipinas Ngayon (transl. news Philippines now) is a Philippine television news broadcasting show broadcast by GMA News TV. Anchored by Maki Pulido and Mark Salazar, it premiered on July 11, 2011.
+- [Balita - Philippine News](https://balita.mb.com.ph/) — 18:04 BALITA Motorcycle rider na nag-stunt sa kalsada, nasampolan ng LTO · BSP, inutusan mga bangko; panatilihing maayos ang serbisyo sa kasagsagan ng ASEAN Summit · Inutusan ng Bangko Sentral ng Pilipinas (BSP) ang mga bangko at iba pang BSP-supervised financial institutions (BSFIs) na panatilihing maayos at matatag ang kanilang serbisyo at cybersecurity sa kasagsagan ng 49th Association of Southeast Asian Nations (ASEAN) Summit and Related Summits.
+- [Balita - National](https://balita.mb.com.ph/national/) — 4 weeks ago - Panfilo “Ping” Lacson na ang apela na mabigyan ng “due process” ang kasong kinahaharap ni Sen. Ronald “Bato” dela Rosa ay hindi panangga o pangharang sa paglilitis ng International Criminal Court (ICC). Kaugnay ito sa warrant of arrest na isinilbi ng naturang korte sa nagtatago ngayong mambabatas mula pa noong Nobyembre 2025.
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — October 11, 2026 - Philippine Entertainment Tabloid for the latest showbiz news
+- [Balitambayan - Balita, Kuwento, at Talakayan Mula Sa ...](https://www.gmanetwork.com/news/balitambayan/) — 1 month ago - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 2 weeks ago - Sinabi ng Malacañang na mas maganda raw sana kung hindi na itapat ng transport group na PISTON ang kanilang pagwewelga at kilos-protesta sa pagsapit ng 49th Association of Southeast Asian Nations (ASEAN) Summit sa darating na Lunes, Nobyembre 16 hanggang Miyerkules, Nobyembre 18, kung saan host ang Pilipinas.
+- [Daniel Razon](https://en.wikipedia.org/wiki/Daniel_Razon) — Daniel Soriano Razon (Tagalog: [ˈdɐnjɛl soɾˈjano ɾaˈson]; born October 11, 1967) is a Filipino television and radio host. He is currently the Overall Servant (minister; Tagalog: Lingkod Pangkalahatan) of the Members Church of God International, succeeding Eli Soriano after the latter's death on February 11, 2021.
+
+### Thailand (English)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Thailand (English)` `2026-11`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [BBC News](https://en.wikipedia.org/wiki/BBC_News) — BBC News is an operational business division of the British Broadcasting Corporation (BBC) responsible for the gathering and broadcasting of news and current affairs in the UK and around the world. The department is the world's largest broadcast news organisation and generates about 120 hours of radio and television output each day, as well as online news coverage.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Brazil (English)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Austria (English)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Conchita Wurst](https://en.wikipedia.org/wiki/Conchita_Wurst) — Thomas Neuwirth (born 6 November 1988) is an Austrian singer, actor, media personality and drag queen who is known for his stage persona Conchita Wurst, nicknamed "the Queen of Austria". He came to international attention after winning the Eurovision Song Contest 2014 for Austria with the song "Rise Like a Phoenix".
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Breakfast television](https://en.wikipedia.org/wiki/Breakfast_television) — Breakfast television (Europe and Australia) or morning show (Canada and the United States) is a type of news or infotainment television programme that broadcasts live in the morning (typically scheduled between 5:00 and 10:00 a.m., or if it is a local programme, as early as 4:00 a.m.). Often presented by a small team of hosts, these programmes are typically marketed towards the combined demography of people getting ready for work and school and stay-at-home adults and parents.
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-14)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- [イタリア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/geo_italy/) — イタリア · 【新型戦闘機開発へ独が参加 プロジェクト全体の足枷となるか？ · 【10式戦車の暴発 高速発射が呼んだ惨事】 · ハンガリーのICC脱退は先見の明＝伊元議員 · 加藤 ...
+- [「 イタリア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/italy/) — 2026. 11/11: 5300年前の「アイスマン」、ミイラ化した体から今も生き続ける微生物を検出; 11/01: ロシアの富豪の豪華ヨット、巨額の維持費を負担するのは イタリア の ...
+- [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — 米特使、ウクライナ和平協議「次回から欧州が参加」 安保巡り議論へ · ウクライナ和平協議、米ロ主導に欧州警戒 安保秩序の再構築議論 · G7外相会合、ウクライナ停戦 ...
+- [イタリア の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%82%BF%E3%83%AA%E3%82%A2.html) — 最新ニュース · イタリア大使公邸で交流 生徒とイタリア野菜栽培の特別支援学校教諭 · 「銃ノ島」書評 魔術めいた力に導かれる「物語」 · （書評）『銃ノ島』 アミタヴ・ ...
+- [イタリア - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzg072t) — イタリア · 欧州で数千の学校に偽の爆破予告 イタリア、英スコットランドなどで · 【解説】抗議活動で勢いづく欧州の若者たち、何で結びついているのか · ピザにパイナップル ...
+- [「 イタリア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000517) — 「 イタリア 」 ニュース 一覧 · ウクライナ和平協議にヨーロッパ代表も 英仏独など5か国 · 24年ぶりフランス国債の利回り高水準 背景は？【経済コラム】 · イタリア で6300校に ...
+- [Italy：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Italy) — 欧州で偽の爆破予告相次ぐ 約20便に影響. Italy. メローニ首相、暴力的な抗議デモ主導疑惑の活動家釈放を非難 「恥ずべき決定」 · イタリア ・ミラノでも激しい衝突、 ...
+- [イタリア 関連 ニュース - dメニューニュース - NTTドコモ](https://topics.smt.docomo.ne.jp/latestnews/keywords/6a23dcecdbb44001d0f00f92fade3287eef9989efa2f4b2782f701dceb20e638) — イタリア 関連 ニュース ; 20:44 · UEFAネーションズリーグ · スロベニア · ボスニア・ヘルツェゴビナ ; 3:00. クロアチア · UEFAネーションズリーグ ; 11:52. ポーランド · EU ...
+
