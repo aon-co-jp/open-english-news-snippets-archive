@@ -975,3 +975,16 @@ Tags: `Ukraine (English)` `2026-11`
 - [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
 - [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
 
+### France(検索日時 / searched at: 2026-11-15)
+
+Tags: `France` `2026-11`
+
+- [Le Parisien](https://fr.wikipedia.org/wiki/Le_Parisien) — Le Parisien, intitulé Le Parisien libéré jusqu'en 1986, est un journal quotidien régional français fondé en 1944 et diffusé principalement en Île-de-France et dans l’Oise. Grâce à ses neuf éditions départementales, Le Parisien est le premier quotidien d'information régionale en Île-de-France et dans l'Oise.
+- [Liste des guerres de la France](https://fr.wikipedia.org/wiki/Liste_des_guerres_de_la_France) — Cette liste regroupe les guerres et conflits ayant vu la participation de la France sous ses différentes entités de 486 (chute du royaume gallo-romain de Soissons) à aujourd'hui. Ne sont pas listées les guerres de religion en France ni les différentes révolutions, insurrections ou soulèvements.
+- [Sam Zirah](https://fr.wikipedia.org/wiki/Sam_Zirah) — Sam Zirah, de son vrai nom Samuel Zirah, né à Montpellier, est un animateur, producteur et créateur de contenu français. Initialement dans l'industrie de la mode, il est aujourd'hui principalement connu pour ses interviews diffusées sur YouTube, notamment à travers ses émissions En Toute Intimité (ETI) et Au jour d'aujourd'hui (AJA).
+- [Franche Culture](https://fr.wikipedia.org/wiki/Franche_Culture) — Franche Culture est une émission de radio française, culturelle et humoristique, présentée par Maïtena Biraben : elle est diffusée sur France Inter depuis le 24 août 2026, du lundi au vendredi de 11 h à 12 h 30. Elle succède, dans la même tranche horaire, à La Bande originale animée pendant douze saisons par Nagui.
+- [Audrey Goutard](https://fr.wikipedia.org/wiki/Audrey_Goutard) — Audrey Goutard est une journaliste française de presse écrite, radio et télévision, aussi réalisatrice et écrivaine.
+- [Thomas Snégaroff](https://fr.wikipedia.org/wiki/Thomas_Sn%C3%A9garoff) — Thomas Snégaroff, né le 8 juillet 1974 à Nancy, est un journaliste et historien français. Spécialiste des États-Unis contemporains, il est consultant à la télévision et la radio principalement sur les sujets concernant l'Amérique du nord.
+- [Pascal Praud](https://fr.wikipedia.org/wiki/Pascal_Praud) — Pascal Praud, né le 9 septembre 1964 à Nantes (Loire-Atlantique), est un journaliste sportif, chroniqueur, animateur de radio et de télévision français d'extrême droite. Il est également producteur de télévision.
+- [Hiver en France métropolitaine](https://fr.wikipedia.org/wiki/Hiver_en_France_m%C3%A9tropolitaine) — L’hiver en France métropolitaine est la saison s’étendant du solstice d'hiver, fin décembre, à l’équinoxe de printemps, fin mars ; c’est la saison la plus froide de l'année dans ce pays. Le record est −36,7 °C en 1968 à Mouthe.
+

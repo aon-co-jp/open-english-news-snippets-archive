@@ -1018,3 +1018,16 @@ Tags: `France (Japanese)` `2026-11`
 - [ニュース ・社会問題 Archives - OVNI| オヴニー・パリの新聞](https://ovninavi.com/category/mieux-connaitre-la-france/actualites/) — 今 フランス で起きていることをわかりやすく解説。 ニュース · フランス の出来事 · 三面記事 · 経済 · 抵抗する人 · 社会ラボ.
 - [ET TOI（エトワ）| フランス 情報メディア](https://www.parisettoi.fr/) — France today 今日 の フランス · 宿泊・外食業、一連の抗議行動の煽りで客足遠のく · 2025年所得状況：所得税納付世帯が占める割合は48％まで上昇 · 仏政府とSNCFレゾー、目標 ...
 
+### Austria(検索日時 / searched at: 2026-11-15)
+
+Tags: `Austria` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Deutschland](https://de.wikipedia.org/wiki/Deutschland) — Deutschland (; Vollform des Staatsnamens: Bundesrepublik Deutschland) ist ein Bundesstaat in Mitteleuropa. Es besteht aus 16 Ländern und ist als freiheitlich-demokratischer und sozialer Rechtsstaat verfasst.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Nachrichten](https://de.wikipedia.org/wiki/Nachrichten) — Unter Nachrichten als Plural von Nachricht (oft auch synonym für Nachrichtensendung) ist die regelmäßige Berichterstattung in Form von mehreren journalistischen Nachrichten über aktuelle politische, wirtschaftliche, soziale, kulturelle, sportliche und sonstige Ereignisse in komprimierter Form zu verstehen.
+- [Heute-show](https://de.wikipedia.org/wiki/Heute-show) — Die heute-show (Eigenschreibweise auch heute show und heute SHOW) ist eine deutsche Comedy- und Satiresendung im ZDF mit Stilelementen einer Nachrichtensendung. Ihr Name wurde in Anlehnung an die ZDF-Nachrichtenformate heute und heute-journal sowie die ARD-Sendung Tagesschau gewählt.
+- [Bundespräsident (Deutschland)](https://de.wikipedia.org/wiki/Bundespr%C3%A4sident_(Deutschland)) — Der Bundespräsident (Abkürzung BPr, auch BPräs) ist das Staatsoberhaupt (Art. 54–61 GG) der Bundesrepublik Deutschland und protokollarisch ihr höchstes Verfassungsorgan.
+- [RTL aktuell](https://de.wikipedia.org/wiki/RTL_aktuell) — RTL aktuell (Eigenschreibweise RTL AKTUELL) ist die Nachrichtensendung bei RTL. Die Hauptausgabe mit einer Dauer von 20 Minuten wird täglich um 18:45 Uhr live aus Köln ausgestrahlt. Bei wichtigen Ereignissen kann als Programmergänzung ein RTL aktuell Spezial zum Einsatz kommen – je nach Anlass meistens um 20:15 Uhr und mit einem Umfang von etwa 15 Minuten.
+- [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
+

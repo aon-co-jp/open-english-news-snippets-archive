@@ -1089,3 +1089,9 @@ Tags: `Cambodia` `2026-11`
 - [ព្រឹត្តិការណ៍​កម្ពុជា​ប្រចាំថ្ងៃ](https://www.rfi.fr/km/%E1%9E%80%E1%9E%B6%E1%9E%9A%E1%9E%95%E1%9F%92%E1%9E%9F%E1%9E%B6%E1%9E%99%E1%9E%94%E1%9F%92%E1%9E%9A%E1%9E%85%E1%9E%B6%E1%9F%86%E1%9E%90%E1%9F%92%E1%9E%84%E1%9F%83/%E1%9E%96%E1%9F%92%E1%9E%9A%E1%9E%B9%E1%9E%8F%E1%9F%92%E1%9E%8F%E1%9E%B7%E1%9E%80%E1%9E%B6%E1%9E%9A%E1%9E%8E%E1%9F%8D%E2%80%8B%E1%9E%80%E1%9E%98%E1%9F%92%E1%9E%96%E1%9E%BB%E1%9E%87%E1%9E%B6%E2%80%8B%E1%9E%94%E1%9F%92%E1%9E%9A%E1%9E%85%E1%9E%B6%E1%9F%86%E1%9E%90%E1%9F%92%E1%9E%84%E1%9F%83/) — July 9, 2025 - ឯកអគ្គរាជទូតកម្ពុជាប្រចាំប្រទេសបារាំង លោក លុយ ដាវីត បានឲ្យដឹងថា បារាំងបានត្រៀមខ្លួនផ្ដល់ឯកសារចាំបាច់នានា ដើម្បីដោះស្រាយជម្លោះព្រំដែនកម្ពុជា-ថៃ នៅតុលាការយុត្តិធម៌អន្តរជាតិ(ICJ)។ នេះបើតាមទីភ្នាក់ងារសារព័ត៌មានកម្ព
 - [ក្រសួងព័ត៌មាន - Phnom Penh](https://information.gov.kh/) — ប្លែក លឿន ទុកចិត្តបាន នៅពេលណា ទីណាក៏បាន
 
+### Cambodia(検索日時 / searched at: 2026-11-15)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
