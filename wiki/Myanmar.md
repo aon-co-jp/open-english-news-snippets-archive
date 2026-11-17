@@ -1220,3 +1220,9 @@ Tags: `Russia (English)` `2026-11`
 - [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
 - [Show HN: Forty.News – Daily news, but on a 40-year delay](https://forty.news) — Hacker News · 443 points · 180 comments · 2025-11-22
 
+### Myanmar(検索日時 / searched at: 2026-11-16)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
