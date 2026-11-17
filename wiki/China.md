@@ -740,3 +740,16 @@ Tags: `Brazil (English)` `2026-11`
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 - [HLN (TV network)](https://en.wikipedia.org/wiki/HLN_(TV_network)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
 
+### China(検索日時 / searched at: 2026-11-16)
+
+Tags: `China` `2026-11`
+
+- [今天 (NBC)](https://zh.wikipedia.org/wiki/%E4%BB%8A%E5%A4%A9_(NBC)) — 《今天》（英语：Today），也被称为《今日秀》（The Today Show），是一档美国的晨间新闻和脱口秀节目。每个工作日的晨间在美国全国广播公司（NBC）播出，于1952年1月14日首播。
+- [新闻联播](https://zh.wikipedia.org/wiki/%E6%96%B0%E9%97%BB%E8%81%94%E6%92%AD) — 《新闻联播》，中央广播电视总台新闻节目，于1978年1月1日启播，是中华人民共和国收视率最高、影响力最大的电视新闻栏目，被称为“中国政坛的风向标”。目前，该节目于北京时间每晚19:00在CCTV-1（含港澳版）、CCTV-7、CCTV-13、环球资讯广播并机首播，并于每晚21:00在CCTV-13，22:30在CCTV-4重播。
+- [中国中央电视台新闻频道](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E4%B8%AD%E5%A4%AE%E7%94%B5%E8%A7%86%E5%8F%B0%E6%96%B0%E9%97%BB%E9%A2%91%E9%81%93) — 中国中央电视台新闻频道（频道呼号：CCTV-13 新闻），是中国中央电视台拥有的以普通话广播为主的新闻频道之一，于2003年5月1日开始对外试播，同年7月1日正式开播，是一个全天候专业播送新闻、评论、访谈的电视频道。
+- [李文儀](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E5%84%80) — 李文仪（1978年9月30日—），于台湾出生的台湾新闻主播、主持人、制作人，毕业于英国伦敦大学学院国际公共政策硕士。现为三立新闻台《台湾大头条》当家主播、《消失的国界》主持人、三立iNEWS《台湾新思路》主持人。
+- [24小时 (节目)](https://zh.wikipedia.org/wiki/24%E5%B0%8F%E6%97%B6_(%E8%8A%82%E7%9B%AE)) — 《24小时》，是中国中央电视台的一档梳理全天新闻的节目，于2009年8月10日开播。现时于中国中央电视台新闻频道播出，每晚23:00播出，时长1小时。
+- [午夜新闻 (中国中央电视台)](https://zh.wikipedia.org/wiki/%E5%8D%88%E5%A4%9C%E6%96%B0%E9%97%BB_(%E4%B8%AD%E5%9B%BD%E4%B8%AD%E5%A4%AE%E7%94%B5%E8%A7%86%E5%8F%B0)) — 《午夜新闻》是中国中央电视台于每天午夜时分播放的新闻节目，前身为0点档的《整点新闻》，节目于2002年8月6日开播。该栏目最初在每天凌晨0时整在中国中央电视台新闻·综合频道播出，直至中国中央电视台新闻频道于2003年5月1日开播后改在中国中央电视台新闻频道播出。
+- [澎湃新闻](https://zh.wikipedia.org/wiki/%E6%BE%8E%E6%B9%83%E6%96%B0%E9%97%BB) — 澎湃新闻，是一家中国综合新闻网站，曾是《东方早报》的一项新媒体计划，总部位于中华人民共和国上海市。主要发表该网站记者撰写的原创新闻文章，并被其他网站所转载。
+- [有线电视新闻网](https://zh.wikipedia.org/wiki/%E6%9C%89%E7%BA%BF%E7%94%B5%E8%A7%86%E6%96%B0%E9%97%BB%E7%BD%91) — 有线电视新闻网（英语：Cable News Network），英语缩写及通称“CNN”，是美国一个通过有线电视与卫星电视播出的新闻频道，由泰德·特纳于1980年创办，最初由特纳广播公司经营，现隶属天舞公司旗下。对全世界播出，CNN总部和主要播报室位于美国佐治亚州的亚特兰大。
+
