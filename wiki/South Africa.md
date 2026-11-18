@@ -1493,3 +1493,29 @@ Tags: `Tajikistan (English)` `2026-11`
 - [Eurasian Economic Union](https://en.wikipedia.org/wiki/Eurasian_Economic_Union) — The Eurasian Economic Union (EAEU or EEU) is an economic union of five post-Soviet states located in Eurasia. The EAEU has an integrated single market.
 - [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
 
+### South Africa(検索日時 / searched at: 2026-11-17)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [Democratic Alliance (South Africa)](https://en.wikipedia.org/wiki/Democratic_Alliance_(South_Africa)) — The Democratic Alliance (DA) is a liberal political party in South Africa, sitting on the centre to centre-right of the political spectrum. It has been the second-largest party in the country since its foundation in 2000.
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana (lit.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [Lara Logan](https://en.wikipedia.org/wiki/Lara_Logan) — Lara Logan (born 29 March 1971) is a South African television and radio journalist, war correspondent, and conspiracy theorist. Her career began with various South African news organizations in the 1990s.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-17)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- [ロシア - 。 今日 の最新 ニュース と主な出来事。 - Sputnik 日本](https://sputniknews.jp/russia/) — ロシア · 【プーチン大統領、訪露のウィトコフ、クシュナー両特使と協議へ＝ウシャコフ大統領補佐官】 · 【ウクライナ和平交渉に欧州を参加させる必要がある＝クシュナー氏】.
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — ロシア · 12時間前. トランプ氏がアジア歴訪開始、クアッド首脳会合で安保やAI協議表明 · 9時間前. 米朝首脳会談の可能性高まる、ロ大統領府発言で アナリスト見解 · 11時間 ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 11/17: モスクワ車爆弾事件、 ロシア 人女性を拘束 親 ロシア 派ウクライナ人政治家の元側近が負傷; 11/16: エストニア、 ロシア との国境を閉鎖へ 破壊工作を計画と ...
+- [「 ロシア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — クアッド首脳会合“経済的威圧に深刻な懸念”共同文書まとめる · あすからAPEC首脳会議 米中ロ首脳会談や日中接触も焦点 · ロシア機と推定の航空機が領空侵犯 福岡 沖ノ島周辺.
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ロシア · キーウの主要な橋2本をロシアが攻撃、市長が発表 米欧ウのオンライン協議の後に · ウクライナが過去最大のドローン攻撃、クリミア半島の象徴的な橋に被害とロシア.
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — ロシア · トランプとプーチンと短い戦争の幻想、習近平は正しい教訓を学ぶか？ · JTの ロシア ・ショック、現地資産1.5兆円が危機に！ · ウクライナ戦争「もう一つの戦場」、 ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — ウクライナがクリミア橋を連日攻撃 ロシア各地に無人機 · 日ロ首脳がAPECで対話調整、ロシアは領空侵犯 経済制裁の緩和へ圧力 · プーチン氏と金正恩氏側近が会談 ロシア・北 ...
+- [Russia ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Russia) — 米中ロ首脳、19日に初の3者会談 ロシアも開催 . Russia. ロシア・サンクトペテルブルクで車爆発、軍人1人死亡 · 駐米ロシア大使が急死 外務省発表 ...
+
