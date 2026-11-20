@@ -1571,3 +1571,42 @@ Tags: `Afghanistan (Japanese)` `2026-11`
 - [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — BBCのFMラジオ放送、アフガニスタンで停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米 ...
 - [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — イラン目指したアフガン人14人、灼熱の砂漠で遺体で発見 · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定 ...
 
+### South Africa(検索日時 / searched at: 2026-11-19)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana (lit.
+- [Democratic Alliance (South Africa)](https://en.wikipedia.org/wiki/Democratic_Alliance_(South_Africa)) — The Democratic Alliance (DA) is a liberal political party in South Africa, sitting on the centre to centre-right of the political spectrum. It has been the second-largest party in the country since its foundation in 2000.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [Lara Logan](https://en.wikipedia.org/wiki/Lara_Logan) — Lara Logan (born 29 March 1971) is a South African television and radio journalist, war correspondent, and conspiracy theorist. Her career began with various South African news organizations in the 1990s.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+
+### France (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · パリ警察、一部の高校・大学の周囲で5日間の抗議禁止 · フランス 、スーパーの冷蔵庫へのサイバー攻撃でイランを非難 · 【解説】抗議活動で勢いづく欧州の若者たち ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/15: サザビーズによるピサロ絵画の売却、パリの裁判所が無効に; 11/10: 冷蔵庫狙った「前代未聞の」サイバー攻撃、 フランス がイランを非難; 11/06: フランス ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「 フランス 」 ニュース 一覧 · 東大総長選どうなった？ · FIFA会長選 UEFAが候補者擁立 田嶋氏の立候補に影響か · ラグビー 日本の次戦の相手 スコットランドが豪に競り勝つ.
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — French · 米アップル、iPhone修理妨害の疑いでパリで公判へ 「計画的陳腐化」か · ルペン氏、当選すればウクライナへの財政支援打ち切りと表明 仏大統領選 · パリ、一部高校・ ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 国際園芸博覧会で「横浜の魅力発信」 原沢敦美市長、パリの総会でPR · 松井製作所、プラスチック粉砕機の仏企業を買収 リサイクル製品拡充 · ボジョレー解禁、阪急うめだ本店 ...
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 最新 ニュース · 欧州、自信の影に募る危機感 米中ロ会談「ヤルタ2.0」でなくとも · （藤田直哉のネット方面見聞録）ローマ教皇、AI時代に「愛の文明」を説く · スキャパレリ ...
+- [今週の フランス | 在仏日本商工会議所 – CCIJF](https://www.ccijf.asso.fr/categories/news-france-hebdo/) — 今週の フランス Cette semaine en France · アパレル3社が倒産 · 5日に全国で労組によるデモ行進、政府は9日に労使全体会議の招集を予告 · ルコルニュ首相、リブレAの預入限度 ...
+- [フランス の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/924-2) — 2018/04/16 ... 本記事では、 フランス において人気の高い10の ニュース 系メディアをピックアップし、それぞれの特徴をご紹介します。
+
+### Thailand (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Thailand (English)` `2026-11`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Bhumibol Adulyadej](https://en.wikipedia.org/wiki/Bhumibol_Adulyadej) — Bhumibol Adulyadej (5 December 1927 – 13 October 2016), also known by his regnal name Rama IX, was King of Thailand from 9 June 1946 until his death in 2016. His reign of 70 years and 126 days is the longest of any Thai monarch, the longest on record of any independent Asian sovereign, and the third-longest of any sovereign state with a verified date.
+- [Crime in Thailand](https://en.wikipedia.org/wiki/Crime_in_Thailand) — Crime in Thailand has been a defining issue in the country for decades, inspiring years of policy and international criticism. Drug use and corruption make up the majority of the crime in Thailand and due to this, many Thai administrations attempted to curtail the drug trade, most notably Thaksin Shinawatra with the 2003 War on Drugs.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+

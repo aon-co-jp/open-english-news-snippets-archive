@@ -1724,3 +1724,120 @@ Tags: `Brazil (English)` `2026-11`
 - [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
 - [HLN (TV channel)](https://en.wikipedia.org/wiki/HLN_(TV_channel)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
 
+### Iran(検索日時 / searched at: 2026-11-19)
+
+Tags: `Iran` `2026-11`
+
+- [واکنش‌ها به جنگ دوازده‌روزه](https://fa.wikipedia.org/wiki/%D9%88%D8%A7%DA%A9%D9%86%D8%B4%E2%80%8C%D9%87%D8%A7_%D8%A8%D9%87_%D8%AC%D9%86%DA%AF_%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%E2%80%8C%D8%B1%D9%88%D8%B2%D9%87) — پس از آغاز جنگ دوازده‌روزه، واکنش‌ها به حملات اولیه و ضدحملات ادامه‌دار بین دولت‌ها و نهادهای غیردولتی بین‌الملل متنوع بود. دولت ایران، مردم داخل کشور و ایرانیان خارج از کشور به این رویداد واکنش نشان دادند.
+- [تحریف در صدا و سیمای جمهوری اسلامی ایران](https://fa.wikipedia.org/wiki/%D8%AA%D8%AD%D8%B1%DB%8C%D9%81_%D8%AF%D8%B1_%D8%B5%D8%AF%D8%A7_%D9%88_%D8%B3%DB%8C%D9%85%D8%A7%DB%8C_%D8%AC%D9%85%D9%87%D9%88%D8%B1%DB%8C_%D8%A7%D8%B3%D9%84%D8%A7%D9%85%DB%8C_%D8%A7%DB%8C%D8%B1%D8%A7%D9%86) — تحریف در صدا و سیمای جمهوری اسلامی ایران بیش از چهار دهه سابقه دارد. به عقیدهٔ برخی از تحلیل‌گران، سازمان صدا و سیمای جمهوری اسلامی ایران به صورت سیستماتیک دروغ می‌گوید و اخبار و گزارش‌های جعلی، تحریف شده و نامعتبر را منتشر می‌کند.
+- [یل (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%DB%8C%D9%84_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — يَلْ مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به نویسندگی و کارگردانی جمشید محمودی و تهیه‌کنندگی نوید محمودی است که برای شبکهٔ اینترنتی فیلم‌نت ساخته شده است. نوید محمدزاده، میلاد کی‌مرام، حسین یاری، سید جواد رضویان، پردیس احمدیه، ندا جبرائیلی، محسن قصابیان و بابک حمیدیان از بازیگران این مجموعه هستند.
+- [جان‌سخت (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%AC%D8%A7%D9%86%E2%80%8C%D8%B3%D8%AE%D8%AA_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — جان‌سخت مجموعهٔ نمایش خانگی ایرانی به کارگردانی و نویسندگی مصطفی تقی‌زاده و تهیه‌کنندگی سعید خانی است که از فیلم‌نت پخش می‌شد. مهرداد صدیقیان، الناز حبیبی، مجتبی پیرزاده، ماهور الوند و فرهاد اصلانی از بازیگران این مجموعه هستند.
+- [کارآگاه علوی ۳](https://fa.wikipedia.org/wiki/%DA%A9%D8%A7%D8%B1%D8%A2%DA%AF%D8%A7%D9%87_%D8%B9%D9%84%D9%88%DB%8C_%DB%B3) — کاراگاه علوی ۳ یک مجموعه تلویزیونی ایرانی به کارگردانی سیدجمال سیدحاتمی، نویسندگی حسن هدایت و تهیه‌کنندگی پرویز امیری محصول سال‌های ۱۴۰۴–۱۴۰۵ است، این مجموعه دنباله‌ای بر مجموعه‌های کارآگاه (۱۳۷۵) و کارگاه علوی ۲ (۱۳۸۷) است.
+- [زخم کاری](https://fa.wikipedia.org/wiki/%D8%B2%D8%AE%D9%85_%DA%A9%D8%A7%D8%B1%DB%8C) — زخم کاری یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به نویسندگی و کارگردانی محمدحسین مهدویان است که فصل اول آن بر پایهٔ رمان بیست زخم کاری نوشتهٔ محمود حسینی‌زاد و نمایشنامهٔ مکبث نوشتهٔ ویلیام شکسپیر برای سرویس پخش فیلیمو ساخته شده است. فصل دوم این سریال با نگاهی به نمایشنامهٔ هملت نوشتهٔ ویلیام شکسپیر و طراحی قصه مهدویان نوشته شده است.
+- [بازنده (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B2%D9%86%D8%AF%D9%87_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — بازنده یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به کارگردانی و نویسندگی امین حسین‌پور و به تهیه‌کنندگی احسان ظلی‌پور است. این مجموعه اقتباسی از رمان زوج همسایه اثری از شاری لاپنا است.
+- [اکازیون](https://fa.wikipedia.org/wiki/%D8%A7%DA%A9%D8%A7%D8%B2%DB%8C%D9%88%D9%86) — اُکازیون یک مینی‌سریال نمایش خانگی در ژانر کمدی به کارگردانی مسعود اطیابی، تهیه‌کنندگی محمدحسین میرطاووسی و نویسندگی حمزه صالحی است که پخش آن از ۱ فروردین ۱۴۰۳ آغاز شد.
+
+### Germany (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Germany (English)` `2026-11`
+
+- [Heute](https://en.wikipedia.org/wiki/Heute) — heute (German pronunciation: [ˈhoʏtə] ; German for today) is a television news program on the German channel ZDF. The main program is broadcast at 19:00, and includes news, with an emphasis on political news from Germany, Europe and the world, plus 'mixed' news from cultural life or entertainment, and the sports news with an extra presenter. The weather forecast comes up at about 19:22 after a break with commercials.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Nazi Germany](https://en.wikipedia.org/wiki/Nazi_Germany) — Nazi Germany, officially the German Reich and later the Greater German Reich, was the German state between 1933 and 1945, when Adolf Hitler and the Nazi Party controlled the country, transforming it into a totalitarian dictatorship. The Third Reich, meaning "Third Realm" or "Third Empire", was the Nazi claim that Nazi Germany was the successor to the Holy Roman Empire (800–1806) and the German Empire (1871–1918); the Nazis called it the Thousand-Year Reich, but it ended just 12 years later in May 1945, when the Allies defeated Germany and entered Berlin, ending World War II in Europe.
+- [News ticker](https://en.wikipedia.org/wiki/News_ticker) — A news ticker (sometimes called a crawler, crawl, slide, zipper, ticker tape, or chyron) is a horizontal or vertical (depending on the language's writing system) text-based display either in the form of a graphic that typically resides in the lower third of the screen space on a television station or network (usually during news programming) or as a long, thin scoreboard-style display seen around the facades of some offices or public buildings dedicated to presenting headlines or minor pieces of news. It is an evolution of the paper strips tapes, a continuous paper print-out of stock quotes from a printing telegraph which was mainly used to transmit companies' share price information over telegraph lines before the advance of technology in the 1960s.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Egypt (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Egypt (English)` `2026-11`
+
+- [El Koshary Today](https://en.wikipedia.org/wiki/El_Koshary_Today) — El Koshary Today is an Egyptian online news website that features satire and political parody. The website is named after a common Egyptian dish consisting of a spaghetti mixture that may also contain lentils, rice, and chickpeas.
+- [Sharm El Sheikh](https://en.wikipedia.org/wiki/Sharm_El_Sheikh) — Sharm El Sheikh, alternatively rendered Sharm el-Sheikh or Charm el Sheikh, is an Egyptian city located on the southern tip of the Sinai Peninsula, in South Sinai Governorate, on the coastal strip along the Red Sea in Asia. Its population is approximately 77,000 as of 2017.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Hoda Kotb](https://en.wikipedia.org/wiki/Hoda_Kotb) — Hoda Kotb ( HOH-də KOT-bee; born August 9, 1964) is an American broadcast journalist, television personality, and author. She was the main co-anchor of the NBC News morning show Today from 2018 to 2025, and co-host of its entertainment-focused fourth hour from 2007 to 2025.
+- [Crescent (Egyptian band)](https://en.wikipedia.org/wiki/Crescent_(Egyptian_band)) — Crescent is a blackened death metal band from Cairo, Egypt, founded in 1998. Crescent formed in 1998 as a black metal band, making it one of the oldest extreme metal bands in Egypt and the region.
+- [Gods of Egypt (film)](https://en.wikipedia.org/wiki/Gods_of_Egypt_(film)) — Gods of Egypt is a 2016 American fantasy action film directed by Alex Proyas based on ancient Egyptian deities. It stars Nikolaj Coster-Waldau, Brenton Thwaites, Chadwick Boseman, Élodie Yung, Courtney Eaton, Rufus Sewell, Gerard Butler, and Geoffrey Rush.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by the Taiwanese Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Ting Hsin International Group](https://en.wikipedia.org/wiki/Ting_Hsin_International_Group) — Ting Hsin International Group (Chinese: 頂新國際集團; pinyin: Dǐngxīn Guójì Jítuán) is a Taiwanese-owned corporate group established in 1958. It owns various food brands such as the instant noodle maker Master Kong, Wei-Chuan Food Corporation and Dicos.
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマー の日本語 ニュース メディア。現地の政治・経済・社会などの最新情報を毎日配信する ミャンマーニュース 専門サイト。
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー · ニュース ヘッドライン · エヤワディ地域、観光車両に燃料追加割り当て · タイから無許可貨物トラック、1日約500台 · 労相、マレーシアの出稼ぎ労働者に送金協力 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — フィリピンの首都マニラで14日に開いたASEAN外相会議に出席後、日本経済新聞のインタビューに答えた。 2021年のクーデター以降、 ミャンマー 首脳はASEAN首脳会議への参加を ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — 「 ミャンマー 」 ニュース 一覧 · ロヒンギャ迫害はジェノサイドと認定 国際司法裁判所が判決 · ミャンマー 政権トップ「ASEANとの関係見直す」 · 日本政府が ミャンマー 避難民の ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — ミャンマー 連邦 · ミャンマー 大統領がASEANへの「関与再検討」表明 主要 会議復帰先送りに「屈辱的」 · 【 ミャンマー 】労相、マレーシアの出稼ぎ労働者に送金協力要請.
+- [ミャンマー - - 民際センター](https://www.minsai.org/countries/myanmar/) — 2021年2月、 ミャンマー 国軍がクーデターを起こしてから2年弱が経過した頃に、ヤンゴン市内にあるEDF-Myanmar（ ミャンマー 事業所）から届いたレポートをご紹介します。 2021 ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー のクーデター ミャンマー 国軍が2021年2月1日、民主化指導者アウンサンスーチー氏率いる国民民主連盟（NLD）政権を打倒するために実行した。
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people, aged between 10 and 87, and injured 40 others, including two police officers.
+- [2026](https://en.wikipedia.org/wiki/2026) — 2026 (MMXXVI) is the current year, and is a common year starting on Thursday of the Gregorian calendar, the 2026th year of the Common Era (CE) and Anno Domini (AD) designations, the 26th year of the 3rd millennium and the 21st century, and the 7th year of the 2020s decade. The early part of the year saw escalating armed conflicts in the Americas and Middle East.
+- [2026 Summer Youth Olympics](https://en.wikipedia.org/wiki/2026_Summer_Youth_Olympics) — The 2026 Summer Youth Olympics (French: Jeux Olympiques de la jeunesse d'été de 2026), officially known as the IV Summer Youth Olympic Games and commonly known as Dakar 2026 (Wolof: Ndakaaru 2026), was the fourth edition of the Summer Youth Olympics, an international sports, education and cultural festival for teenagers, in a city designated by the International Olympic Committee (IOC). Originally scheduled to be held for 18 days in Dakar, Senegal, from 22 October to 9 November 2022, it is now scheduled to be held there for 14 days—from 31 October to 13 November 2026, becoming the first IOC event to be held in Africa and the first Youth Olympic Games under the IOC presidency of Kirsty Coventry.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer who has served since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+
+### China (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国 や台湾の最新 ニュース ・特集をまとめました。 中国 の習近平国家主席の動向や 中国 経済、台湾を巡る情勢、TSMCや鴻海の ニュース などをお伝えします。
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 最新の 中国ニュース ; 習近平主席、大国間の良好な相互作用は「必答問題」 中ロ米首脳会談 · 11月19日 22時8分 ; 中国 の工業企業、年末に向け生産急ピッチ · 11月19日 21時25分.
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国のニュース・速報. 米ロ首脳、中国で会談 昨年8月以来. 14時05分. 共同通信. 【速報】米ロ首脳が会談. 13時35分. 共同通信. 【速報】対イラン「中ロに手助け求め ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 中国 ・習近平政権 関連 ニュース · 米中ロ、史上初の首脳会談 核拡散防止へ「平和宣言」―習、プーチン両氏は「戦勝国」強調(11月19日 23:03) · 北朝鮮、非核化議論を注視か ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — APEC協力が 中国 人の生活にもたらす恩恵 · 2025年世界の特許出願件数が過去最多 中国 が他を大きくリードし1位 · 完全国産の大型輸送用ドローン「長鷹-8」が初の輸送・投下試験 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/19: トランプ氏、 中国 でのAPEC歓迎晩餐会に出席 プーチン氏と握手; 11/18: ロシアと 中国 、首脳が両国関係の安定を強調 トランプ氏との会談控え ...
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Switzerland (Japanese)` `2026-11`
+
+- [Swiss ：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Swiss) — 総合 ニュース 、速報、環境・科学、ライフ、スポーツ、ファッション、時計、動画など、世界 165 カ国から届いた情報を掲載しています。世界中の「 今日 ... 主要 国は ...
+- [スイス 、 ニュース と展望 - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/) — スイス の 主要 メディアが報じた日本関連 ニュース を週1回、まとめてお届けする無料 ニュース レターです。日本の国内報道からは得られにくい、国際的な視点も含んでいます。
+- [「 スイス 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000409) — 「 スイス 」 ニュース 一覧 · 自律型兵器めぐる会議開幕 ルール交渉開始が焦点 · スイス の氷河が過去5年で20%減少 熱波も影響か · 男女平等調査 日本は117位 依然として低評価.
+- [今日 の 主要ニュース — スイス ・ ニュース - Switzerland News](https://switzerland-news.com/ja/) — エヌビディア、ジェンスン・フアンの代表復帰を拒否 ; マーケット 11/19(木) 10:32 ; 政治 11/19(木) 07:10 ; 社会 11/19(木) 06:04 ; 主要ニュース 11/18(水) 20:23 ; 外交 11/ ...
+- [「 スイス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/switzerland/) — 2026. 09/01: レイブ会場での銃乱射、男を逮捕 スイス ; 08/30: スイス 北部のレイブ会場で銃撃 1人死亡、5人負傷 容疑者追跡中; 07/12: アルゼンチン、3―1で スイス を ...
+- [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 日銀は4日、植田和男総裁が5〜10日に米国と スイス に出張すると発表した。米国で国際通貨基金（IMF）主催のイベントで講演し、 スイス のバーゼルでは国際決済銀行（BIS）の ...
+- [スイス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%B9%E3%82%A4%E3%82%B9.html) — 最新 ニュース · 神戸・元町映画館で「 スイス 映画祭」が開催 5作品を解説付きで上映 · 国枝慎吾さんが日本人初の国際テニス殿堂 「健常者との垣根がない」 · 「ゴルバチョフ ...
+- [スイス の ニュース - SWI swissinfo.ch](https://www.swissinfo.ch/jpn/%E3%83%8B%E3%83%A5%E3%83%BC%E3%82%B9/) — スイス の政治、文化、経済を中心とした、さまざまなトピックについて、最新 ニュース を現地からお届けします。
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Brazil (Japanese)` `2026-11`
+
+- [Notícias do Brasil de Hoje - Google Play のアプリ](https://play.google.com/store/apps/details?id=com.bestonlinenews.newsbrazil&hl=ja) — 2026/11/09 ... ブラジル の最新 ニュース ： 今日 の ニュース 、ヘッドライン、ローカル ニュース 、リアルタイムアラートなど、すべての新聞を1つのアプリでまとめてお届け ...
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 朝日新聞の、 ブラジル に関する ニュース や速報記事一覧です。 ブラジル に関する現状や背景を、わかりやすくお伝えします。
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ブラジル 在住の日本人コミュニティに向けた最新 ニュース を提供する日系メディアです。政治、経済、文化、社会、スポーツなど幅広い話題をカバーし、現地の情報をわかり ...
+- [【 ブラジルニュース 速報集】 ブラジル 日報 - X](https://x.com/BRASILNIPPOU) — 【 ブラジルニュース 速報集】 ブラジル 日報 · @BRASILNIPPOU · Nov 17. 16日付VEJAによれば、サッカー ブラジル 代表が14日、シンガポールでの親善試合で日本代表に3―2で敗れ ...
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ブラジル 日報 · ブラジル 柔道の「扉」開いた戦後移民＝石井千秋氏が遺した日伯の絆とメダル＝異国の地に刻まれた偉大な足跡 · 《 ブラジル 》女性起業家集う「GEMA FAIR」＝12 ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「 ブラジル 」 ニュース 一覧 · サッカー日本代表 ブラジル に勝利 W杯の雪辱果たす 通算2勝目 · エルニーニョ現象 過去最大の強さに どんな影響が · サッカー日本代表 強化試合の ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル発SNS選挙術、フランスに上陸 大統領選へ「成功例」追随 · 仏大統領選へ半年 極右追う急進左派、与党系3氏分裂で浮かぶ「両極」 · 仏極右ルペン氏「法の支配を回復」 ...
+- [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil · ブラジル 大統領選、敗北のボルソナロ氏反発も所属党はルラ氏勝利認める · ブラジル 大統領選、フラビオ氏が敗北認めず 選挙「無効」要求へ · 現職ルラ氏が大統領選で ...
+

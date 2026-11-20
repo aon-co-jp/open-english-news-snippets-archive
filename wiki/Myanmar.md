@@ -1277,3 +1277,87 @@ Tags: `Egypt (Japanese)` `2026-11`
 - [外交政策 ニュース | 在 エジプト 日本国大使館](https://www.eg.emb-japan.go.jp/itpr_ja/index.html) — 令和8年11月3日. カイラット元駐日大使に対する旭日重光章伝達. 令和8年9月24日. ムハンマド・アブデルモネイム・エッサーウィ氏が、日本国外務大臣表彰を受賞.
 - [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
 
+### Myanmar(検索日時 / searched at: 2026-11-19)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · 北回りと南回りの旧石器を追求し評価 奈文研の国武さんに岩宿文化賞 · 秋の叙勲 3960人が受章 · ロシアが「人身取引」で29カ国の外国人を動員 国連独立委 ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース · 史上初の米中露首脳会談、「核戦争に勝者なし」と核不拡散へ「平和宣言」 … · 日本政府、米中露首脳会談で国際環境への影響注視… · 楽天証券、金融庁から報告 ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [神田ADB総裁、 タジキスタン における雇用創出と成長促進に向け](https://www.adb.org/ja/news/adb-president-launches-new-partnership-strategy-boost-jobs-and-growth-tajikistan) — タジキスタン ・ドゥシャンベ（2026年3月4日）— 神田眞人アジア開発銀行（ADB）総裁は本日、 タジキスタン のエモマリ・ラフモン大統領と会談し、より多くの質の高い雇用 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタン からの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 11月14日 時事） ドイツ 連邦議会は13日、スパイや過激派の動向を探る情報機関の権限を強める法案を賛成多数で可決した。ロシアや中国、イランによる非軍事的手段 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany · ドイツ で若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 · 欧州5か国 滞在資格ない移民をルワンダに移送計画 反発も · ウクライナ和平協議にヨーロッパ代表も 英仏独など5か国 · 24年ぶりフランス国債の ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ · オレンジ色の救命胴衣を着た人々がぎっしり詰まったゴムボートが、 · 店舗の窓ガラスにひびが入っている。 · フランクフルトで起きた略奪の様子 · グレーのスーツ姿の ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/19: ゴッホの「花咲く栗の木」、300億円で落札 ナチス巡る混乱もオークション記録更新; 11/16: 世界の「汚職度」ランキング、米国が過去最低順位に転落 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ 政府、ECB専務理事に独出身者推薦 総裁はスペインのデコス氏優勢 3時間前 · ドイツ が27年から電力減税 3人世帯で月1350円、欧州で拡大 7時間前.
+- [ドイツ の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/germany_newsmedia) — 2020/05/13 ... 本記事では、 ドイツ の情報を英語で得られる ニュース 系メディア5選と、 ドイツ 国内で人気の ニュース 系メディア5選を紹介します。
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 11月14日 時事） ドイツ 連邦議会は13日、スパイや過激派の動向を探る情報機関の権限を強める法案を賛成多数で可決した。ロシアや中国、イランによる非軍事的手段 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — Germany · ドイツ で若者主導デモ、一部で衝突や略奪 政治家から非難相次ぐ · 独動物公園で女児がオオカミに襲われ重傷 飼育エリア内で被害か · 女性14人に薬物投与しレイプ、 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — 「 ドイツ 」 ニュース 一覧 · 欧州5か国 滞在資格ない移民をルワンダに移送計画 反発も · ウクライナ和平協議にヨーロッパ代表も 英仏独など5か国 · 24年ぶりフランス国債の ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ · オレンジ色の救命胴衣を着た人々がぎっしり詰まったゴムボートが、 · 店舗の窓ガラスにひびが入っている。 · フランクフルトで起きた略奪の様子 · グレーのスーツ姿の ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/19: ゴッホの「花咲く栗の木」、300億円で落札 ナチス巡る混乱もオークション記録更新; 11/16: 世界の「汚職度」ランキング、米国が過去最低順位に転落 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ 政府、ECB専務理事に独出身者推薦 総裁はスペインのデコス氏優勢 3時間前 · ドイツ が27年から電力減税 3人世帯で月1350円、欧州で拡大 7時間前.
+- [ドイツ の 主要 メディアまとめ【 ニュース 編】 - Global PR Wire](https://globalprwire.com/mediacolumn/germany_newsmedia) — 2020/05/13 ... 本記事では、 ドイツ の情報を英語で得られる ニュース 系メディア5選と、 ドイツ 国内で人気の ニュース 系メディア5選を紹介します。
+
+### Brazil (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV channel)](https://en.wikipedia.org/wiki/HLN_(TV_channel)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Myanmar (English)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Myanmar (English)` `2026-11`
+
+- [Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Myanmar_civil_war_(2021%E2%80%93present)) — The Myanmar civil war began following the military coup on 1 February 2021. The seizure of power triggered mass anti-coup demonstrations and a violent crackdown by the Tatmadaw (Myanmar armed forces), which significantly escalated the country's longstanding insurgencies.
+- [Timeline of the Myanmar civil war (2021–present)](https://en.wikipedia.org/wiki/Timeline_of_the_Myanmar_civil_war_(2021%E2%80%93present)) — The following is a timeline of major events during the Myanmar civil war (2021–present), following the 2021 military coup d'état and protests. It was also a renewed intensity of the existing Myanmar conflict.
+- [Myanmar conflict](https://en.wikipedia.org/wiki/Myanmar_conflict) — Myanmar has been in armed conflict since 1948, when the country, then known as Burma, gained independence from the United Kingdom. The conflict has largely been ethnic-based, with ethnic armed organisations fighting Myanmar's armed forces, the Tatmadaw, for self-determination.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [CB Bank](https://en.wikipedia.org/wiki/CB_Bank) — CB Bank is one of Myanmar's largest commercial banks. Established in 1992, it was the first bank in Myanmar to introduce ATM cards and credit cards.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [BBC News](https://en.wikipedia.org/wiki/BBC_News) — BBC News is an operational business division of the British Broadcasting Corporation (BBC) responsible for the gathering and broadcasting of news and current affairs in the UK and around the world. The department is the world's largest broadcast news organisation and generates about 120 hours of radio and television output each day, as well as online news coverage.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-19)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — RANK1中国への語学研修プログラム、費用だけ受け取って実施せず タイ 政府が調査に乗り出す · RANK2 タイ 3空港を結ぶ高速鉄道計画、EEC事務局が「当初計画は困難」 最高速度 ...
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【労働】水産局、外国人労働者の許可更新を呼びかけ 12月11日の期限前に手続きを · 【政治】アヌティン首相と李強首相、経済人と円卓会議 中国のBOI申請は国別で最多 · 【 ...
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — 日立エナジー、 タイ で27年初めから変圧器増産 AI需要拡大に対応 · 日本とILO、ミャンマー難民の就労支援 日系企業への就職後押し · 日本・ タイ 首相が会談 石油備蓄含め ...
+- [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — 高市早苗首相は17日、訪問中のマニラで、 タイ のアヌティン首相と会談し、宇宙分野など新たな産業分野での経済協力を進展させることで一致した。 タイ 政府によると、両首脳 ...
+- [タイニュース ＆ タイ ブログ (@Thai_News_JP) / X](https://x.com/Thai_News_JP) — タイ ・バンコクに関する ニュース やブログの更新情報を収集・配信しているBotです。 # タイ 旅行 # タイ 移住.
+- [タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/) — 「タイランドハイパーリンクス：Thai Hyper」は タイ 情報ポータルサイト＆ ニュース サイトです。バンコクなど タイ 各地の旅行情報、生活情報、エンタテイメント情報などを ...
+- [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイ ・ベトジェット航空、日本行き航空券が3割引！ 福岡・札幌・沖縄の3路線対象。… · シラチャ警察署の幹部2人を免職処分！ 刑事責任も追及へ。 · タイ で偽100ドル札54枚を ...
+
