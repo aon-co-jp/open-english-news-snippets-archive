@@ -1361,3 +1361,16 @@ Tags: `Taiwan` `2026-11`
 - [台灣民政府](https://zh.wikipedia.org/wiki/%E5%8F%B0%E7%81%A3%E6%B0%91%E6%94%BF%E5%BA%9C) — 台灣民政府是於2008年2月2日在台灣以政治名義成立的爭議性組織。台灣一些縣市警察局已將之列為詐騙集團。
 - [有线电视新闻网](https://zh.wikipedia.org/wiki/%E6%9C%89%E7%BA%BF%E7%94%B5%E8%A7%86%E6%96%B0%E9%97%BB%E7%BD%91) — 有線電視新聞網（英語：Cable News Network），英語縮寫及通稱「CNN」，是美國一個透過有線電視與衛星電視播出的新聞頻道，由泰德·透納於1980年創辦，最初由透納廣播公司經營，現隸屬天舞公司旗下。對全世界播出，CNN總部和主要播報室位於美國喬治亞州的亞特蘭大。
 
+### Taiwan(検索日時 / searched at: 2026-11-19)
+
+Tags: `Taiwan` `2026-11`
+
+- [台灣 TV 新聞 |即時新聞、政治、財經、生活娛樂|最新 頭條 報導](https://www.tvn.com.tw/) — 
+- [今日 頭條新聞 網 | 今日 新聞頭條 ,首屈一指的商業、科技、金融與財經新聞頭條平台](https://headnews.com.tw/) — 
+- [台灣 週報 - 提供台灣及全球即時 頭條新聞 , 財經信息,社會新聞,國際資訊](https://www.taiwanweekly.com/) — 
+- [台灣頭條 :您的地區 新聞 和企業新聞來源](https://twtops.com/) — 
+- [台海新闻网_今日 台湾新闻 _最新,最近中国台湾新闻报道-闽南网](http://www.mnw.cn/news/th/) — 
+- [台湾新闻 滚动--台湾频道--人民网](http://tw.people.com.cn/GB/104510/) — 
+- [中国 台湾 网的微博_微](https://weibo.com/chinataiwan/) — 
+- [海峡两岸首页](https://www.cctv.com/fuxingbbs/special/C21627/01/) — 
+
