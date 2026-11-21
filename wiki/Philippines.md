@@ -1079,3 +1079,16 @@ Tags: `Philippines` `2026-11`
 - [List of longest-running Philippine television series](https://en.wikipedia.org/wiki/List_of_longest-running_Philippine_television_series) — This is a list of the longest-running Philippine television series, ordered by number of years the show has been aired. This list includes only programs aired ten years and above.
 - [1987 in Philippine television](https://en.wikipedia.org/wiki/1987_in_Philippine_television) — The following is a list of events affecting Philippine television in 1987. Events listed include television show debuts, finales, cancellations, and channel launches, closures and rebrandings, as well as information about controversies and carriage disputes.
 
+### Philippines(検索日時 / searched at: 2026-11-20)
+
+Tags: `Philippines` `2026-11`
+
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — October 2, 2026 - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Balita Pilipinas Ngayon - Wikipedia](https://en.wikipedia.org/wiki/Balita_Pilipinas_Ngayon) — 2 weeks ago - Balita Pilipinas Ngayon (transl. news Philippines now) is a Philippine television news broadcasting show broadcast by GMA News TV. Anchored by Maki Pulido and Mark Salazar, it premiered on July 11, 2011.
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — October 11, 2026 - Philippine Entertainment Tabloid for the latest showbiz news
+- [Balitambayan - Balita, Kuwento, at Talakayan Mula Sa ...](https://www.gmanetwork.com/news/balitambayan/) — October 19, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita - National](https://balita.mb.com.ph/national/) — October 20, 2026 - Panfilo “Ping” Lacson na ang apela na mabigyan ng “due process” ang kasong kinahaharap ni Sen. Ronald “Bato” dela Rosa ay hindi panangga o pangharang sa paglilitis ng International Criminal Court (ICC). Kaugnay ito sa warrant of arrest na isinilbi ng naturang korte sa nagtatago ngayong mambabatas mula pa noong Nobyembre 2025.
+- [Daniel Razon](https://en.wikipedia.org/wiki/Daniel_Razon) — Daniel Soriano Razon (Tagalog: [ˈdɐnjɛl soɾˈjano ɾaˈson]; born October 11, 1967) is a Filipino television and radio host. He is currently the Overall Servant (minister; Tagalog: Lingkod Pangkalahatan) of the Members Church of God International, succeeding Eli Soriano after the latter's death on February 11, 2021.
+- [Balita - Balita](https://balita.mb.com.ph/balita/) — 3 weeks ago - Nasa 300% full capacity o puno na ang Emergency Room ng Ospital ng Maynila Medical Center (OMMC) ngayong Lunes, Nobyembre 16, ayon sa anunsyo ng Manila Public Information Office. 'Hinihiling ang pang-unawa at mahabang pasensya ng mga pasyenteng naghihintay ng atensyong medikal,' saad ng MPIO sa kanilang social media post as of 5:00 PM. 'Pinapayuhan din ang mga nangangailangan ng... Mariing nanawagan sa publiko si Sen. Robin Padilla na itigil daw muna ang mga pagtatalo sa loob ng Pilipinas kasabay ng mahalagang mga pangyayaring nagaganap ngayon sa 49th ASEAN Summit and Related Summits.
+- [List of Philippine television shows](https://en.wikipedia.org/wiki/List_of_Philippine_television_shows) — Here is the list of Philippine television shows categorised into its respective genres.
+
