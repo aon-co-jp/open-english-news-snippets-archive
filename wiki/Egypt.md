@@ -1658,3 +1658,55 @@ Tags: `Egypt (Japanese)` `2026-11`
 - [「 エジプト 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88) — 「 エジプト 」の検索結果。Yahoo! ニュース では、新聞・通信社が配信する ニュース のほか、映像、雑誌や個人の書き手が執筆する記事などを掲載しています。
 - [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425?page=2) — 「 エジプト 」 ニュース 一覧 · FIFA 決勝トーナメント エジプト のゴール取り消しを説明 · W杯 アルゼンチンが大逆転でベスト8へ メッシ 単独トップ8点目 · サッカーW杯 決勝 ...
 
+### Egypt(検索日時 / searched at: 2026-11-20)
+
+Tags: `Egypt` `2026-11`
+
+- [أخبار اليوم (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها التوأم مصطفى أمين (21 فبراير 1914-13ابريل1997) وعلي أمين (21 فبراير 1914-3 أبريل 1976) عام 1944.
+- [الصفحة الرئيسة](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9_%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9) — 
+- [دار أخبار اليوم](https://ar.wikipedia.org/wiki/%D8%AF%D8%A7%D8%B1_%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D9%8A%D9%88%D9%85) — دار أخبار اليوم من أكبر المؤسسات الصحفية في مصر والوطن العربي والشرق الأوسط وأشهرها. أسسها مصطفى أمين وعلي أمين عام 1944.
+- [الأخبار (جريدة مصرية)](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9_%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)) — جريدة الأخبار وهي جريدة يومية رسمية تصدر في القاهرة، وتُوزَع في مصر والعالم العربي. أسسها الأخوان مصطفى وعلي أمين سنة 1952 عن مؤسسة أخبار اليوم ورئيس التحرير أسامة السعيد.
+- [القاهرة الإخبارية](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9_%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A%D8%A9) — القاهرة الإخبارية هي قناة فضائية إخبارية مصرية، تتبع قطاع الاخبار بشركة المتحدة للخدمات الإعلامية، تُبث على القمر الصناعي المصري نايل سات، تختص بتقديم التغطيات الإخبارية للأحداث السياسية، الاقتصادية، الرياضية، الثقافية وغيرها، يقع مقرها الرئيسي بمدينة الإنتاج الإعلامي بالسادس من أكتوبر في محافظة الجيزة المصرية، وبدأت البث الرسمي على مدار 24 ساعة في 31 أكتوبر 2022.
+- [مصر](https://ar.wikipedia.org/wiki/%D9%85%D8%B5%D8%B1) — مِصرُ (رسميًّا: جُمْهُوْرِيَّةُ مِصْرَ العَرَبيَّةُ) دولةٌ عربية، عابرة للقارات، تمتد على الركن الشَّمالي الشرقي لإفريقيا والركنِ الجَنوبي الغربي من آسيا بجسر بري شكلته شبه جزيرة سَيناء. قُدِّر عدد سكانها بأكثرَ من 120 مليون نسَمة؛ لتكون الثالثةَ عشْرة بين دول العالم سكانًا، والأكثر سكاناً عربيًّا وشرقًا أوسطيًّا.
+- [أخبار الأدب (جريدة)](https://ar.wikipedia.org/wiki/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1_%D8%A7%D9%84%D8%A3%D8%AF%D8%A8_(%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9)) — جريدة أخبار الأدب صدرت عام 1993 عن دار أخبار اليوم في القاهرة كدورية ثقافية أسبوعية. تتناول الصحيفة أخبار الأوساط الأدبية والفنية، وتستعرض الإصدارات العربية والعالمية الحديثة، وتغطي الفعاليات الثقافية، والقضايا الفكرية المتداولة.
+- [كامل الوزير](https://ar.wikipedia.org/wiki/%D9%83%D8%A7%D9%85%D9%84_%D8%A7%D9%84%D9%88%D8%B2%D9%8A%D8%B1) — الفريق كامل عبد الهادي فرج الوزير (1957 - ) عسكري وسياسي مصري يشغل منصب وزير النقل، ووزير الصناعة والتجارة، ونائب رئيس مجلس الوزراء في مصر. خلف الوزير هشام عرفات، الذي استقال عقب كارثة محطة رمسيس للسكك الحديدية.
+
+### Austria (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Heraklion International Airport "Nikos Kazantzakis"](https://en.wikipedia.org/wiki/Heraklion_International_Airport_%22Nikos_Kazantzakis%22) — Heraklion International Airport "Nikos Kazantzakis" (IATA: HER, ICAO: LGIR) is the primary airport on the island of Crete, Greece, and the country's second busiest airport after Athens International Airport. It is located about 5 km (3.1 mi) east of the main city centre of Heraklion, near the municipality of Nea Alikarnassos.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Brazil (Japanese)` `2026-11`
+
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 朝日新聞の、 ブラジル に関する ニュース や速報記事一覧です。 ブラジル に関する現状や背景を、わかりやすくお伝えします。
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ブラジル 日報 · 300人超を拷問、軍事政権の暗殺者＝アルゼンチン独裁の闇、ドラマで＝自動車泥棒から「国家の拷問官」へ · 《滋賀県》サンタナ学園が存続へクラファン＝外国 ...
+- [【 ブラジルニュース 速報集】 ブラジル 日報 - X](https://x.com/BRASILNIPPOU) — 【 ブラジルニュース 速報集】 ブラジル 日報 · @BRASILNIPPOU · Nov 17. 16日付VEJAによれば、サッカー ブラジル 代表が14日、シンガポールでの親善試合で日本代表に3―2で敗れ ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「ブラジル」ニュース一覧 · サッカー日本代表 ブラジルに勝利 W杯の雪辱果たす 通算2勝目 · エルニーニョ現象 過去最大の強さに どんな影響が · サッカー日本代表 強化試合の ...
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ブラジル・南米 · 財政調整案が上院通過、下院へ ＝冷ややかな市場と深まる葛藤＝レアル安と債務肥大化の不吉な影 · レアル急落、一時1ドル＝5.93レアルに＝財政不安と米高 ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル発SNS選挙術、フランスに上陸 大統領選へ「成功例」追随 · 仏大統領選へ半年 極右追う急進左派、与党系3氏分裂で浮かぶ「両極」 · 仏極右ルペン氏「法の支配を回復」 ...
+- [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil · ブラジル大統領選、敗北のボルソナロ氏反発も所属党はルラ氏勝利認める · ブラジル大統領選、フラビオ氏が敗北認めず 選挙「無効」要求へ · 現職ルラ氏が大統領選で ...
+- [「 ブラジル 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/) — ブラジル 大統領選で敗れ出国、なぜ米国はボロソナーロ派の政治拠点になったのか？ 10/28: ブラジル 大統領選敗北のボルソナーロ氏、 ...
+
+### France (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `France (English)` `2026-11`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [France national football team](https://en.wikipedia.org/wiki/France_national_football_team) — The France national football team represents France in men's international football. It is overseen by the French Football Federation (FFF; Fédération française de football), the governing body for football in France.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [CTV News Channel (Canadian TV channel)](https://en.wikipedia.org/wiki/CTV_News_Channel_(Canadian_TV_channel)) — CTV News Channel is a Canadian specialty news channel owned by Bell Media (a wholly owned subsidiary of Bell Canada). It broadcasts national and international news headlines, breaking news, and information.
+

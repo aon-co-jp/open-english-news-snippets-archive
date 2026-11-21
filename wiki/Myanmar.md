@@ -1361,3 +1361,87 @@ Tags: `Thailand (Japanese)` `2026-11`
 - [タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/) — 「タイランドハイパーリンクス：Thai Hyper」は タイ 情報ポータルサイト＆ ニュース サイトです。バンコクなど タイ 各地の旅行情報、生活情報、エンタテイメント情報などを ...
 - [タイニュース ・クロスボンバー（X-bomber Thailand） | タイ ...](https://x-bomberth.com/) — タイ ・ベトジェット航空、日本行き航空券が3割引！ 福岡・札幌・沖縄の3路線対象。… · シラチャ警察署の幹部2人を免職処分！ 刑事責任も追及へ。 · タイ で偽100ドル札54枚を ...
 
+### Myanmar(検索日時 / searched at: 2026-11-20)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Thailand (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Thailand (English)` `2026-11`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Crime in Thailand](https://en.wikipedia.org/wiki/Crime_in_Thailand) — Crime in Thailand has been a defining issue in the country for decades, inspiring years of policy and international criticism. Drug use and corruption make up the majority of the crime in Thailand and due to this, many Thai administrations attempted to curtail the drug trade, most notably Thaksin Shinawatra with the 2003 War on Drugs.
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+
+### Switzerland (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Switzerland (English)` `2026-11`
+
+- [SWI swissinfo](https://en.wikipedia.org/wiki/SWI_swissinfo) — SWI swissinfo.ch is a Swiss multilingual international news and information company based in Bern. It is a part of the Swiss Broadcasting Corporation (SRG SSR).
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of international presidential trips made by Ranil Wickremesinghe](https://en.wikipedia.org/wiki/List_of_international_presidential_trips_made_by_Ranil_Wickremesinghe) — Ranil Wickremesinghe served as the 9th President of Sri Lanka from 21 July 2022 to 23 September 2024. This article documents all international presidential trips made by Wickremesinghe during his term in office.
+- [Prince Philipp of Liechtenstein](https://en.wikipedia.org/wiki/Prince_Philipp_of_Liechtenstein) — Prince Philipp of Liechtenstein (Philipp Erasmus Alois Ferdinand Maria Sebaldus; born 19 August 1946) is a member of the princely family of Liechtenstein.
+- [CNN](https://en.wikipedia.org/wiki/CNN) — Cable News Network, Inc. (CNN) is an American multinational news media company and the flagship namesake property of CNN Worldwide, a division of Skydance.
+- [Ye Live Concert Tour](https://en.wikipedia.org/wiki/Ye_Live_Concert_Tour) — The Ye Live Concert Tour is the ongoing seventh headlining concert tour by American rapper Kanye West, in support of his twelfth studio album, Bully (2026). It commenced on April 1, 2026, in Inglewood, California at the SoFi Stadium and is his first concert tour in a decade, following the Saint Pablo Tour in 2016.
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- [Taiwanization](https://en.wikipedia.org/wiki/Taiwanization) — Taiwanization (Chinese: 臺灣本土化運動), also known as the Taiwanese localization movement, is a conceptual term used in Taiwan to emphasize the importance of a Taiwanese culture, society, economy, nationality, and identity rather than to regard Taiwan as solely an appendage of China. This involves the teaching of history, geography, and culture from a Taiwan-centric perspective, as well as promoting languages locally established in Taiwan, including Taiwanese Hokkien (Taiwanese), Hakka, and Formosan languages.
+- [1450 Internet army](https://en.wikipedia.org/wiki/1450_Internet_army) — 1450 Internet army, also known as 1450, is a term referring to Internet users hired by the Taiwanese Democratic Progressive Party (DPP) to sway public opinion. The term originated in 2019, when the Council of Agriculture of Taiwan budgeted NT$14.5 million for public relations campaigns and the hiring of social media managers to debunk misinformation.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+- [Taiwan Pride](https://en.wikipedia.org/wiki/Taiwan_Pride) — Taiwan Pride (Chinese: 臺灣同志遊行) is the annual LGBTQ pride parade in Taiwan. The parade was first held in 2003.
+- [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
+- [Ting Hsin International Group](https://en.wikipedia.org/wiki/Ting_Hsin_International_Group) — Ting Hsin International Group (Chinese: 頂新國際集團; pinyin: Dǐngxīn Guójì Jítuán) is a Taiwanese-owned corporate group established in 1958. It owns various food brands such as the instant noodle maker Master Kong, Wei-Chuan Food Corporation and Dicos.
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+
+### China (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 首相の中国到着時タラップ段差、官房長官「最大限の安全配慮で対応」 · 中国独禁当局、百度に罰金1200万円 審査承認前の統合手続き巡り · 中国上海で日本人1人死亡 別の邦人 ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 台湾、メタに数千の不審アカウント通報 中国の情報戦で選挙介入と指摘 · TSMC、中国向けAI半導体の一部受注停止 米規制強化に対応 · ロシア軍戦略爆撃機が台湾東側を ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 深センで米朝会談の発表なし トランプ氏、帰国の途. 11月19日. 共同通信. ウクライナに「報復する」 クリミア橋攻撃、ロ大統領. 11月19日.
+- [中国 の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/china) — 中国 · IT大手が企業向けAIで火花 · ニュース ヘッドライン · 中国 のビジネスジェット客、見えから実用へ · AI拡大一致、「多国間貿易」見送り＝APEC · 太陽光発電の「 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/19: 【分析】前例なき3首脳会談、中ロが掲げる「新世界 ANALYSIS 【分析】前例なき3首脳会談、中ロが掲げる「新世界秩序」の勝利 · 米中ロの3首脳が会談、 ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 中国初、独立運転型メガワット級離島マイクログリッドが稼働 · 中国初の100kmを超える純水素長距離輸送パイプラインが正式に稼働 · 中国、新たに34カ所の最先端級スマート ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 上海で日本人1人死亡 別の日本人1人拘束― 中国 (11月20日 19:54) · 南シナ海巡り 中国 外相と会話 比大統領、両国関係を「楽観」(11月20日 19:52) · 中国 、APECで「大国」 ...
+- [Xinhua - jp. news .cn](https://jp.news.cn/) — 政治 · プーチン大統領「深圳は最も近代的で活力ある大都市の一つ」 · APEC非公式首脳会議、成果文書の協議開始 ; 経済 · 中国の工業企業、年末に向け生産急ピッチ.
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- [エジプト の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A8%E3%82%B8%E3%83%97%E3%83%88.html) — 最新 ニュース · 日本、 エジプト にPK勝ち サッカーU21代表 · 日本、 エジプト にPK勝ち サッカーU―21親善試合 · 日本、スペインに敗れる サッカーU21代表 · 日本、 ...
+- [「 エジプト 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/egypt/) — 2026. 11/09: エジプトで列車が衝突、7人死亡 112人負 傷; 10/09: スフィンクスと同じ岩盤層で見つかったワニの化石、新種と判明; 10/08: 古代エジプト人、王の死に際し ...
+- [「 エジプト 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/30182) — 日本貿易保険、豊田通商などの エジプト 風力支援 300億円融資に保険 · エジプト で列車追突、脱線し7人死亡 100人以上負傷 · 盟主 エジプト がサウジ軍事支援決断 フーシ攻撃激化 ...
+- [エジプト の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/egypt/page2) — エジプトのニュース・速報. 200件中 21~40件表示. エジプト、サウジに派兵か 下院、大統領に権限付与 . 10月27日. 共同通信. アフリカと首脳会議開催へ ロシア、28 ...
+- [エジプト の ニュース ・記事一覧 - Business Insider Japan](https://www.businessinsider.jp/tag/egypt/) — エジプト · ミイラの本当の作り方… · 2300年前の少年のミイラから49個の護符を発見… · 金箔で覆われた4300年前のミイラを発見… · 古代 エジプト 人は病とどう向き合っていたのか…
+- [「 エジプト 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000425) — G7外相会合閉幕 中東安定に向けた連携 ウクライナ支援継続確認 · エジプトで列車衝突事故 7人死亡 112人けが · サウジアラビア防衛のためイギリスやエジプトが軍事支援を表明.
+- [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — エジプト · 2026年11月12日. エジプト 中銀、政策金利を9カ月の据え置きから1ポイント引き上げ20.5％に( エジプト ) · 2026年11月12日 · 2026年11月9日 · 2026年10月30日 · 2026年 ...
+- [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Korotko Pro](https://en.wikipedia.org/wiki/Korotko_Pro) — Korotko Pro (Cyrillic: Коротко про; lit. 'Briefly about'), formerly KP in Ukraine (Ukrainian: КП в Україні; Russian: КП в Украине) is a Ukrainian newspaper in Kyiv, the nation's capital. It is a Ukrainian language newspaper.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+

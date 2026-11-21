@@ -1841,3 +1841,120 @@ Tags: `Brazil (Japanese)` `2026-11`
 - [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル発SNS選挙術、フランスに上陸 大統領選へ「成功例」追随 · 仏大統領選へ半年 極右追う急進左派、与党系3氏分裂で浮かぶ「両極」 · 仏極右ルペン氏「法の支配を回復」 ...
 - [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil · ブラジル 大統領選、敗北のボルソナロ氏反発も所属党はルラ氏勝利認める · ブラジル 大統領選、フラビオ氏が敗北認めず 選挙「無効」要求へ · 現職ルラ氏が大統領選で ...
 
+### Iran(検索日時 / searched at: 2026-11-20)
+
+Tags: `Iran` `2026-11`
+
+- [واکنش‌ها به جنگ دوازده‌روزه](https://fa.wikipedia.org/wiki/%D9%88%D8%A7%DA%A9%D9%86%D8%B4%E2%80%8C%D9%87%D8%A7_%D8%A8%D9%87_%D8%AC%D9%86%DA%AF_%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%E2%80%8C%D8%B1%D9%88%D8%B2%D9%87) — پس از آغاز جنگ دوازده‌روزه، واکنش‌ها به حملات اولیه و ضدحملات ادامه‌دار بین دولت‌ها و نهادهای غیردولتی بین‌الملل متنوع بود. دولت ایران، مردم داخل کشور و ایرانیان خارج از کشور به این رویداد واکنش نشان دادند.
+- [تحریف در صدا و سیمای جمهوری اسلامی ایران](https://fa.wikipedia.org/wiki/%D8%AA%D8%AD%D8%B1%DB%8C%D9%81_%D8%AF%D8%B1_%D8%B5%D8%AF%D8%A7_%D9%88_%D8%B3%DB%8C%D9%85%D8%A7%DB%8C_%D8%AC%D9%85%D9%87%D9%88%D8%B1%DB%8C_%D8%A7%D8%B3%D9%84%D8%A7%D9%85%DB%8C_%D8%A7%DB%8C%D8%B1%D8%A7%D9%86) — تحریف در صدا و سیمای جمهوری اسلامی ایران بیش از چهار دهه سابقه دارد. به عقیدهٔ برخی از تحلیل‌گران، سازمان صدا و سیمای جمهوری اسلامی ایران به صورت سیستماتیک دروغ می‌گوید و اخبار و گزارش‌های جعلی، تحریف شده و نامعتبر را منتشر می‌کند.
+- [یل (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%DB%8C%D9%84_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — يَلْ مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به نویسندگی و کارگردانی جمشید محمودی و تهیه‌کنندگی نوید محمودی است که برای شبکهٔ اینترنتی فیلم‌نت ساخته شده است. نوید محمدزاده، میلاد کی‌مرام، حسین یاری، سید جواد رضویان، پردیس احمدیه، ندا جبرائیلی، محسن قصابیان و بابک حمیدیان از بازیگران این مجموعه هستند.
+- [جان‌سخت (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%AC%D8%A7%D9%86%E2%80%8C%D8%B3%D8%AE%D8%AA_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — جان‌سخت مجموعهٔ نمایش خانگی ایرانی به کارگردانی و نویسندگی مصطفی تقی‌زاده و تهیه‌کنندگی سعید خانی است که از فیلم‌نت پخش می‌شد. مهرداد صدیقیان، الناز حبیبی، مجتبی پیرزاده، ماهور الوند و فرهاد اصلانی از بازیگران این مجموعه هستند.
+- [کارآگاه علوی ۳](https://fa.wikipedia.org/wiki/%DA%A9%D8%A7%D8%B1%D8%A2%DA%AF%D8%A7%D9%87_%D8%B9%D9%84%D9%88%DB%8C_%DB%B3) — کاراگاه علوی ۳ یک مجموعه تلویزیونی ایرانی به کارگردانی سیدجمال سیدحاتمی، نویسندگی حسن هدایت و تهیه‌کنندگی پرویز امیری محصول سال‌های ۱۴۰۴–۱۴۰۵ است، این مجموعه دنباله‌ای بر مجموعه‌های کارآگاه (۱۳۷۵) و کارگاه علوی ۲ (۱۳۸۷) است.
+- [زخم کاری](https://fa.wikipedia.org/wiki/%D8%B2%D8%AE%D9%85_%DA%A9%D8%A7%D8%B1%DB%8C) — زخم کاری یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به نویسندگی و کارگردانی محمدحسین مهدویان است که فصل اول آن بر پایهٔ رمان بیست زخم کاری نوشتهٔ محمود حسینی‌زاد و نمایشنامهٔ مکبث نوشتهٔ ویلیام شکسپیر برای سرویس پخش فیلیمو ساخته شده است. فصل دوم این سریال با نگاهی به نمایشنامهٔ هملت نوشتهٔ ویلیام شکسپیر و طراحی قصه مهدویان نوشته شده است.
+- [بازنده (مجموعه نمایش خانگی)](https://fa.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B2%D9%86%D8%AF%D9%87_(%D9%85%D8%AC%D9%85%D9%88%D8%B9%D9%87_%D9%86%D9%85%D8%A7%DB%8C%D8%B4_%D8%AE%D8%A7%D9%86%DA%AF%DB%8C)) — بازنده یک مجموعهٔ نمایش خانگی ایرانی در ژانر درام جنایی به کارگردانی و نویسندگی امین حسین‌پور و به تهیه‌کنندگی احسان ظلی‌پور است. این مجموعه اقتباسی از رمان زوج همسایه اثری از شاری لاپنا است.
+- [اکازیون](https://fa.wikipedia.org/wiki/%D8%A7%DA%A9%D8%A7%D8%B2%DB%8C%D9%88%D9%86) — اُکازیون یک مینی‌سریال نمایش خانگی در ژانر کمدی به کارگردانی مسعود اطیابی، تهیه‌کنندگی محمدحسین میرطاووسی و نویسندگی حمزه صالحی است که پخش آن از ۱ فروردین ۱۴۰۳ آغاز شد.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — パク・ボゴムにジュノ（2PM）、キム・ヘスも！大阪「MAMA」、人気アイドルに続き俳優陣も登場. スポーツソウル日本版; 11月20日 18時26分.
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓日が中東局長協議 緊密な情報交換継続を確認 · ［韓流］IVE 来年1月にソウルでワールドツアーのアンコール公演 · 韓国統一相 在韓国連軍司令官と板門店で異例の面会 · 韓国 ...
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 太平洋クロマグロ 韓国 や台湾との協議で大型魚25％増枠へ · 日中関係「良好だと思わず」93％ 過去最も高く 内閣府世論調査 · 韓国 で大学入試 スマートグラスなどAI不正に ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — 韓国海軍の新型護衛艦「平沢」進水式 · 大学入試でスマート機器持ち込み禁止 · 警察トップ候補の国会人事聴聞会 · 色鮮やかな落ち葉アート · 李大統領が中国・深圳に到着 · 先輩 ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします。](https://japanese.joins.com/) — 「非核化」に言及したのは日本だけ…トランプ氏初参加のクアッド共同声明に「韓半島」も「北朝鮮」もなし · フアン氏の復帰を拒否したエヌビディア取締役会…「 · ジェンスン・ ...
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — 韓国特検、二審も尹前大統領に死刑求刑 内乱首謀で一審は無期判決 · 韓国前大統領夫人、懲役4年が確定 最高裁が上告棄却 · 朝鮮半島 · 15時間前. 【ソウル=恩地洋介】韓国 ...
+
+### South Korea (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `South Korea (English)` `2026-11`
+
+- [NK News](https://en.wikipedia.org/wiki/NK_News) — NK News is an American subscription-based news website that provides stories and analysis about North Korea. The organization's main bureau is in Seoul, South Korea, with reporters in Washington, D.C., and London.
+- [North Korea](https://en.wikipedia.org/wiki/North_Korea) — North Korea, officially the Democratic People's Republic of Korea (DPRK), is a country in East Asia. It constitutes the northern half of the Korean Peninsula and borders China and Russia to the north at the Yalu (Amnok) and Tumen rivers, and South Korea (officially the Republic of Korea) to the south at the Korean Demilitarized Zone (DMZ).
+- [Media coverage of North Korea](https://en.wikipedia.org/wiki/Media_coverage_of_North_Korea) — Media coverage of North Korea (officially known as the Democratic People's Republic of Korea) is hampered by an extreme lack of reliable information, coupled with an abundance of sensationalist falsehoods. There are various reasons for this lack of information and inaccurate stories.
+- [Jung Kook](https://en.wikipedia.org/wiki/Jung_Kook) — Jeon Jung-kook (Korean: 전정국; born September 1, 1997), known professionally as Jung Kook, is a South Korean singer and songwriter. He rose to prominence as a member of South Korean boy band BTS. He has performed three solo songs as part of BTS' discography—"Begin" in 2016, "Euphoria" in 2018, and "My Time" in 2020—all of which charted on South Korea's Gaon Digital Chart.
+- [Ive (group)](https://en.wikipedia.org/wiki/Ive_(group)) — Ive (Korean: 아이브; RR: Aibeu; stylized in all caps) is a South Korean girl group formed by Starship Entertainment. The group is composed of six members: Gaeul, An Yu-jin, Rei, Jang Won-young, Liz, and Leeseo.
+- [Korean Americans](https://en.wikipedia.org/wiki/Korean_Americans) — Korean Americans (Korean: 한국계 미국인) are Americans who have full or partial Korean ethnic ancestry. While the broader term Overseas Korean in America (미주한인/재미교포/재미한인) may refer to all ethnic Koreans residing in the United States, the specific designation of Korean American implies the holding of American citizenship.
+- [Blackpink](https://en.wikipedia.org/wiki/Blackpink) — Blackpink (Korean: 블랙핑크; stylized in all caps) is a South Korean girl group formed by YG Entertainment. The group is composed of four members: Jisoo, Jennie, Rosé, and Lisa.
+- [Babymonster](https://en.wikipedia.org/wiki/Babymonster) — Babymonster (Korean: 베이비몬스터; stylized in all caps), also referred to as Baemon ( BAY-mon; 베몬), is a South Korean girl group formed by YG Entertainment. The group is composed of seven members: Ruka, Pharita, Asa, Ahyeon, Rami, Rora, and Chiquita.
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — タイ副首相、ミャンマー首脳のASEAN会議参加に慎重 「まだ早い」 · タイ外相、ミャンマー大統領に戦闘の越境被害防止を要請 · 対ミャンマー圧力の米国、対話路線に転換 新 ...
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ミャンマー · ニュース ヘッドライン · 政権トップ、ASEANとの関係見直しを表明 · 新規海上鉱区の開発、政権が人材確保に自信 · カンボジア発電所向け天然ガス供給、両国が ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — ミャンマー政権側 ICJ判決に「不公平」と反発 · ロヒンギャ迫害はジェノサイドと認定 国際司法裁判所が判決 · ミャンマー政権トップ「ASEANとの関係見直す」 · 日本政府が ...
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ミャンマー 情勢 関連 ニュース · ICJ判決「帰還のきっかけに」 ロヒンギャ避難先のバングラデシュ(11月20日 10:53) · ロヒンギャ迫害判決、米は賛否示さず ICJの「政治 ...
+- [ミャンマーニュース](https://www.myanmar-news.asia/) — ミャンマー南部で洪水・土砂災害、被害規模に食い違い · マレーシアのロヒンギャ送還計画に懸念 166市民団体などが即時停止を要求 · ミャンマーの女性政治犯、拷問や医療放置 ...
+- [ミャンマー - - 民際センター](https://www.minsai.org/countries/myanmar/) — 2021年の軍事クーデターから5年が経過しましたが、国軍と少数民族武装組織、そして民主派の抵抗勢力との間で続く内戦は、現在も終結していません。2025年12月～2026年1 ...
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — （ベルリン 11月14日 時事） ドイツ 連邦議会は13日、スパイや過激派の動向を探る情報機関の権限を強める法案を賛成多数で可決した。ロシアや中国、イランによる非軍事的手段 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 最新 ニュース · 消えた「化石燃料」の文言、会期末にうずまく批判【随時更新】 · 有志連合、ウクライナ支援強化を再確認 米中ロ会談「頭越し」を警戒 · 女子欧州CL、谷川 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — トランプ大統領 アジア訪問終えホワイトハウスに 各国の反応 は · 独首相「ヤルタ形式平和もたらさず」 大国外交をけん制 · ドイツBMW 2018年以来の24時間ストライキ実施へ.
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — 独フォルクスワーゲン、27〜28年の賃金上昇凍結 経営悪化で労組に提示 · 欧州首脳「ヤルタ方式で平和訪れぬ」 ウクライナ巡り米中ロ会談に警戒 · ドイツの病院、中国に学ぶ ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/19: ゴッホの「花咲く栗の木」、300億円で落札 ナチス巡る混乱もオークション記録更新; 11/16: 世界の「汚職度」ランキング、米国が過去最低順位に転落 ...
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ゴッホ晩年の作品、記録的な1億9040万ドルで落札 ナチスとの関係めぐり論争 · EU5カ国がルワンダに不法移民の強制送還センターを設置へ · ドイツ で生活費上昇への抗議デモ、 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — インファンティーノ氏は「独裁者」 前FIFA会長ブラッター氏が批判 · ドイツ 連邦軍でセクハラまん延、特に階級の低い女性兵士の被害が深刻 · 独軍、中国製ドローンの使用を ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネスニュース・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... ドイツ主要研究所が春季経済予測を一斉発表 、中東情勢の影響評価に濃淡(米国 ...
+
+### Iran (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Iran (English)` `2026-11`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests are a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [Crime in Iran](https://en.wikipedia.org/wiki/Crime_in_Iran) — Crime in Iran is present in various forms, and may include the following offences: murder, kidnapping, theft, fraud, money laundering, drug trafficking, drug dealing, alcohol smuggling, oil smuggling, tax evasion, terrorism, homosexuality, Guidance Patrol, eating and drinking during Ramadan, drinking alcohol, and many other crimes.
+- [2026 Iranian strikes on Israel](https://en.wikipedia.org/wiki/2026_Iranian_strikes_on_Israel) — Since the 2026 Iran war began with a series of attacks by the United States and Israel against Iran on 28 February 2026, following the breakdown of US-Iran talks and negotiations, locations across Israel have been subject to multiple retaliatory Iranian missile strikes. For several days after the start of hostilities, Israeli airspace was closed, disrupting flights from Ben Gurion Airport and elsewhere in the country.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+
+### China (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `China (English)` `2026-11`
+
+- [China Today (TV program)](https://en.wikipedia.org/wiki/China_Today_(TV_program)) — China Today is a news program that focuses on news issues and current affairs around China. China Today 30 minute's episodes are broadcast on CCTV-9 at 22:00 China Standard Time (UTC+8), or 14:00 UTC every day, and rebroadcasts twice at 01:00 and 07:00 UTC+8 the next morning, or 17:00 and 23:00 UTC. The Sunday edition of China Today is called China This Week, which takes a look back at major issues happen around the country within the previous 6 days.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+
+### Italy (English)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Italy (English)` `2026-11`
+
+- [Rai News 24](https://en.wikipedia.org/wiki/Rai_News_24) — Rai News 24 (Italian: Rai News Ventiquattro) is an Italian free-to-air television channel operated by a state-owned public broadcaster RAI. It is the company's all-news television channel, and is known for its 24-hour rolling news service and its live coverage of breaking news.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [HLN (TV channel)](https://en.wikipedia.org/wiki/HLN_(TV_channel)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-20)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · （GLOBAL HEALTH）ポリオ根絶、高い最後の壁 · 北回りと南回りの旧石器を追求し評価 奈文研の国武さんに岩宿文化賞 · 秋の叙勲 3960人が受章.
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 2021. 10/28: 米の対アフガン軍事作戦の拠点、ウズベクや タジキスタン 想定; 09/09: 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 ...
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 主要ニュース · 楽天証券の顧客情報流出、片山金融相「非常に遺憾で重く受け止めている」… · 160キロ超で死亡事故、「危険運転成立する」として男に懲役9年判決… · 集合 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+- [神田ADB総裁、 タジキスタン における雇用創出と成長促進に向け](https://www.adb.org/ja/news/adb-president-launches-new-partnership-strategy-boost-jobs-and-growth-tajikistan) — 神田眞人アジア開発銀行（ADB）総裁は本日、 タジキスタン のエモマリ・ラフモン大統領と会談し、より多くの質の高い雇用創出に向け、同国政府が目指す強靭で多様性に ...
+
