@@ -1387,3 +1387,42 @@ Tags: `Taiwan` `2026-11`
 - [台湾新闻 滚动--台湾频道--人民网](http://tw.people.com.cn/GB/104510/) — 
 - [中国 台湾 网的微博_微](https://weibo.com/chinataiwan/) — 
 
+### Taiwan(検索日時 / searched at: 2026-11-21)
+
+Tags: `Taiwan` `2026-11`
+
+- [Yahoo新聞](https://tw.news.yahoo.com/) — Yahoo新聞 · 登入 · 廣告 · 黃仁勳下台內幕曝 外媒揭董事會翻臉主因 · 「洋流慧聚」人潮爆棚 進場花10分鐘 · 蔣萬安、柯文哲同台 柯喊：看穿洋流幻象 · 看似清淡⋯營養師點名10大血糖地雷 · 洗碗海綿易成「細菌溫床」...
+- [李文儀](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E5%84%80) — 李文儀（1978年9月30日—），於台灣出生的台灣新聞主播、主持人、製作人，畢業於英國倫敦大學學院國際公共政策碩士。現為三立新聞台《台灣大頭條》當家主播、《消失的國界》主持人、三立iNEWS《台灣新思路》主持人。
+- [今日頭條新聞網 | 今日新聞頭條，首屈一指的商業、科技、金融與財經新聞頭條平台](https://headnews.com.tw/) — 提供最新商業新聞頭條、股市動態新聞頭條、科技發展新聞頭條、財經分析新聞頭條、產業趨勢、國際消息新聞頭條與創新創業新聞頭條的台灣專業新聞頭條。
+- [李晶玉](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%99%B6%E7%8E%89) — 李晶玉（1968年10月19日—），臺灣新聞主播及主持人，籍貫江西省，夫婿彭文正為通緝犯，夫妻二人曾主持過壹電視新聞台政論節目《正晶限時批》與民視新聞台政論節目《政經看民視》，現擔任網路政論節目《政經關不了》主持人、《今天遇見你》主持人。
+- [頭條焦點 | NOWnews今日新聞](https://www.nownews.com/cat/column-headline/) — 傳普丁解除澤倫斯基暗殺禁令！擬用極音速武器炸掩體 導火線曝。蔣萬安、沈伯洋支持者狹路相逢！下一秒這幕曝光民眾都笑了。主管涉走私晶片到中國！傳輝達向台灣官員喊冤 台積電也拒介入。
+- [字幕跑馬燈](https://zh.wikipedia.org/wiki/%E5%AD%97%E5%B9%95%E8%B7%91%E9%A6%AC%E7%87%88) — 新聞跑馬燈（有時簡稱跑馬燈；英語對應詞：News ticker）是在電視新聞畫面上的一個小空間，通常是用來顯示頭條新聞或是新聞報導中較小的細節。跑馬燈有時也指在某些建築物或室內空間用來表現訊息的顯示版，如鐵路站內的列車到站資訊顯示跑馬燈。
+- [台視新聞網](https://news.ttv.com.tw/) — 選擇地區 · 宜蘭市 · 基隆市 · 台北市 · 新北市 · 桃園市 · 新竹市 · 新竹縣 · 苗栗縣 · 台中市
+- [台灣偶像劇列表](https://zh.wikipedia.org/wiki/%E5%8F%B0%E7%81%A3%E5%81%B6%E5%83%8F%E5%8A%87%E5%88%97%E8%A1%A8) — 本表列出台灣各電視台、網路平台製作及播出的偶像劇。 中視1996年12月所播出的「偶像一級棒劇場」是臺灣首度出現名為「偶像劇」的戲劇節目時段，但並未成為一個正式劇種。
+
+### France (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — 朝日新聞の、 フランス に関する ニュース や速報記事一覧です。 フランス に関する現状や背景を、わかりやすくお伝えします。
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · パリ警察、一部の高校・大学の周囲で5日間の抗議禁止 · フランス、スーパーの冷蔵庫へのサイバー攻撃でイランを非難 · 【解説】抗議活動で勢いづく欧州の若者たち ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · ウクライナ支援の有志連合 初の軍事演習をメディアに公開 · 仏大統領選元首相立候補表明 極右ルペン氏支持トップ · 東大総長選どうなった？ · FIFA ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 仏政府、ウクライナへの軍派遣認める 整備要員など「戦闘意図なし」 · 米中ロ首脳「共同声明を準備」とロシア高官 中ロは18日に会談へ · フランス極右ルペン氏、ウクライナ ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/15: サザビーズによるピサロ絵画の売却、パリの裁判所が無効に; 11/10: 冷蔵庫狙った「前代未聞の」サイバー攻撃、 フランス がイランを非難; 11/06: フランス ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — 田嶋氏と仏連盟会長、FIFA会長選に立候補 インファンティーノ氏に対抗 · 仏ラジオ番組、フェミニスト活動家を「公共放送局ナンバー2の妻」と紹介し物議 · フランス で記者への ...
+- [ニュース ・社会問題 Archives - OVNI| オヴニー・パリの新聞](https://ovninavi.com/category/mieux-connaitre-la-france/actualites/) — 今 フランス で起きていることをわかりやすく解説。 ニュース · フランス の出来事 · 三面記事 · 経済 · 抵抗する人 · 社会ラボ.
+- [今日 の フランス](https://www.parisettoi.fr/news/) — 今日 の フランス · 今日の フランス . 2026.11.13. 宿泊・外食業、一連の抗議行動の煽りで客足遠のく · 2026.11.13. 2025年所得状況：所得税納付世帯が占める割合は48％ ...
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- [How do I solve an error with a Python scraping program](https://stackoverflow.com/questions/80009348) — We have some exciting news to share! &hellip; What with political upheaval on both sides of the Atlantic, and the continued conflicts in Ukraine and the Middle East, knowing where to invest has never been trickier.And yet, despite the UK stock market &hellip;
+- [Strana.ua](https://en.wikipedia.org/wiki/Strana.ua) — Strana.ua is a Ukrainian online newspaper launched on 16 February 2016. It was founded by journalist Igor Guzhva, and is one of the most popular Ukrainian online media, being one of the top 5 most visited online newspapers in Ukraine.
+- [Korotko Pro](https://en.wikipedia.org/wiki/Korotko_Pro) — Korotko Pro (Cyrillic: Коротко про; lit. 'Briefly about'), formerly KP in Ukraine (Ukrainian: КП в Україні; Russian: КП в Украине) is a Ukrainian newspaper in Kyiv, the nation's capital. It is a Ukrainian language newspaper.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Far-right politics in Ukraine](https://en.wikipedia.org/wiki/Far-right_politics_in_Ukraine) — Far-right politics does not have widespread electoral support in modern Ukraine. The country's far-right movement emerged in western Ukraine in the 1920s in the aftermath of the failed Ukrainian War of Independence, with the Organization of Ukrainian Nationalists (OUN) founded in 1929.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+

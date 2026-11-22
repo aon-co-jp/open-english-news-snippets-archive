@@ -1445,3 +1445,35 @@ Tags: `Ukraine (English)` `2026-11`
 - [Ask HN: Is this is a new kind of war?](https://news.ycombinator.com/item?id=35979060) — Hacker News · 7 points · 6 comments · 2023-05-17
 - [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
 
+### Myanmar(検索日時 / searched at: 2026-11-21)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — ミャンマーの日本語ニュースメディア 。現地の政治・経済・社会などの最新情報を毎日配信するミャンマーニュース専門サイト。
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — 政権トップ、ASEANとの関係見直しを表明 · カンボジア発電所向け天然ガス供給、両国が協議 · 小規模製鉄業者、原料不足で操業停止など苦境に · 流入 ミャンマー 人年33万人 ...
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 2021/5/7 - ミャンマー · ジェノサイド判決でも変わらぬロヒンギャの日常 難民への支援は縮小 · ASEAN首脳会議、ミャンマー「復帰」判断を見送り 弾圧やまず · ASEAN特使 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10101) — 国際司法裁、初のジェノサイド認定 ミャンマーによるロヒンギャ迫害 · 国家裁く国際司法裁判所とは？ ミャンマー少数民族の迫害責任を認定 · ミャンマー大統領「ASEANとの ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — ミャンマー ... 0:48. 特定技能のミャンマー人を虐待した疑いで警察が告訴状を受理 農場仕切る60代町議と40代次男の処罰求める 北海道京極町. HBCニュース北海道 - -14778秒 ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — ミャンマー政権側 ICJ判決に「不公平」と反発 · ロヒンギャ迫害はジェノサイドと認定 国際司法裁判所が判決 · ミャンマー政権トップ「ASEANとの関係見直す」 · 日本政府が ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — ロヒンギャ1万人、トルコ再定住 職業訓練で就労支援―マレーシア(11月20日 19:14) · ジェノサイド認定は「不公平」 ICJ判決受け― ミャンマー (11月20日 18:07) · ICJ判決 ...
+
+### Thailand (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Thailand (English)` `2026-11`
+
+- [Thailand](https://en.wikipedia.org/wiki/Thailand) — Thailand, officially the Kingdom of Thailand, and formerly known as Siam, is a country located in Mainland Southeast Asia. It shares land borders with Myanmar to the west and northwest, Laos to the east and northeast, Cambodia to the southeast, and Malaysia to the south.
+- [Bhumibol Adulyadej](https://en.wikipedia.org/wiki/Bhumibol_Adulyadej) — Bhumibol Adulyadej (5 December 1927 – 13 October 2016), titled Rama IX, was King of Thailand from 9 June 1946 until his death in 2016. His reign of 70 years and 126 days is the longest of any Thai monarch, the longest on record of any independent Asian sovereign, and the third-longest of any sovereign state with a verified date.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [CNA (TV network)](https://en.wikipedia.org/wiki/CNA_(TV_network)) — CNA (abbreviated from Channel NewsAsia) is a Singapore-based multinational news channel owned by Mediacorp, the country's state-owned media conglomerate. The network is broadcast in Singapore on free-to-air terrestrial television and Mediacorp's streaming service meWatch, and is distributed internationally via television providers in the Asia–Pacific, as well as streaming and free ad-supported streaming television (FAST) platforms.
+- [Jenna Bush Hager](https://en.wikipedia.org/wiki/Jenna_Bush_Hager) — Jenna Welch Bush Hager (née Bush; born November 25, 1981) is an American news personality, author, and journalist. She is the co-host of Today with Jenna & Sheinelle, the fourth hour of NBC's morning news program, Today.
+- [Horse racing in Thailand](https://en.wikipedia.org/wiki/Horse_racing_in_Thailand) — Horse racing was introduced to Thailand in the late nineteenth century and continues to take place at several locations throughout the country. Betting on horse races is one of the few legal forms of gambling in Thailand, and the sport became highly popular during the mid-twentieth century but has largely declined since.
+- [Lisa (rapper)](https://en.wikipedia.org/wiki/Lisa_(rapper)) — Lalisa Manobal (Thai: ลลิษา มโนบาล; born Pranpriya Manobal, March 27, 1997), known mononymously as Lisa (Thai: ลิซ่า; Korean: 리사), is a Thai rapper, singer, dancer, and actress. She rose to prominence as a member of the South Korean girl group Blackpink, which debuted under YG Entertainment in August 2016 and became one of the best-selling girl groups of all time.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+

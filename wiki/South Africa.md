@@ -1649,3 +1649,68 @@ Tags: `Austria (Japanese)` `2026-11`
 - [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — インファンティーノ氏は「独裁者」 前FIFA会長ブラッター氏が批判 · ドイツ 連邦軍でセクハラまん延、特に階級の低い女性兵士の被害が深刻 · 独軍、中国製ドローンの使用を ...
 - [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネスニュース・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... ドイツ主要研究所が春季経済予測を一斉発表 、中東情勢の影響評価に濃淡(米国 ...
 
+### South Africa(検索日時 / searched at: 2026-11-21)
+
+Tags: `South Africa` `2026-11`
+
+- [My horizontal navigation bar is not horizontal...it's a square](https://stackoverflow.com/questions/34983807) — </p> </div> <div class="content"> <h1>Elon Musk</h1> <p>Born in South Africa in 1971, Elon Musk became a multimillionaire in his late 20s when he sold his start-up company &hellip; </p> <h3>Young Elon</h3> <p>Born and raised in South Africa, Elon Musk purchased his first computer at age 10. &hellip;
+- [Democratic Alliance (South Africa)](https://en.wikipedia.org/wiki/Democratic_Alliance_(South_Africa)) — The Democratic Alliance (DA) is a liberal political party in South Africa, sitting on the centre to centre-right of the political spectrum. It has been the second-largest party in the country since its foundation in 2000.
+- [South Africa national soccer team](https://en.wikipedia.org/wiki/South_Africa_national_soccer_team) — The South Africa national soccer team represents South Africa in men's international soccer and is run by the South African Football Association, the governing body for soccer in South Africa. Nicknamed Bafana Bafana, the team plays at various stadiums around the country.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Australian cricket team in South Africa in 2026–27](https://en.wikipedia.org/wiki/Australian_cricket_team_in_South_Africa_in_2026%E2%80%9327) — The Australia national cricket team toured South Africa in September and October 2026 to play three One Day International (ODI) and three Test matches. The Test series formed part of the 2025–2027 World Test Championship cycle.
+- [Lara Logan](https://en.wikipedia.org/wiki/Lara_Logan) — Lara Logan (born 29 March 1971) is a South African television and radio journalist, war correspondent, and conspiracy theorist. Her career began with various South African news organizations in the 1990s.
+- [Second Boer War](https://en.wikipedia.org/wiki/Second_Boer_War) — The Second Boer War was a conflict fought between 1899 and 1902 between the British Empire and the Boer republics (the South African Republic and Orange Free State), triggered by the discovery of gold in the Transvaal, specifically the Witwatersrand gold fields, and the ensuing political dispute over the voting rights of British expatriates (Uitlanders). In 1877, the British annexed the bankrupt Transvaal, and the British military neutralized the regional threat of the Zulu Kingdom in 1879 in the Anglo-Zulu War.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Afghanistan (Japanese)` `2026-11`
+
+- [アフガニスタン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=2108afghanistan) — タリバン最高指導者が首都カブール訪問 異例の訴え、内部対立意識か―アフガン (11月18日 17:05) · アフガン隣国でケシ栽培急増 タリバンが禁止、越境作付けか(11月02日 16:11).
+- [「 アフガニスタン 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10105) — アフガニスタン隣国でケシ栽培急増 タリバン禁止で越境作付け · アフガニスタン、中国国境への道路開通 交易路の確立目指す · パキスタンが非常事態宣言 北西部の州、治安 ...
+- [「 アフガニスタン 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000226) — 少女たちに何が 深刻化する児童婚 · パキスタンが アフガニスタン 攻撃 対立の激化懸念 · UNDP＝国連開発計画“ アフガニスタン の女性への支援継続を” · アフガニスタン 東部地震 ...
+- [アフガニスタン - BBC ニュース](https://www.bbc.com/japanese/topics/cr50ykzr421t) — BBCのFMラジオ放送、アフガニスタンで停止される · パキスタンのモスクに爆発物を積んだ車突入、少なくとも21人が死亡 · 9/11の3年前に「爆発物を積んだ航空機」の脅威を米 ...
+- [Afghanistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Afghanistan) — イラン目指したアフガン人14人、灼熱の砂漠で遺体で発見 · タリバン幹部射殺事件、イスラム国ホラサン州が犯行声明「背教者をマシンガンで殺害」 · アフガンのタリバン暫定 ...
+- [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 「 アフガニスタン 」の ニュース . 2026. 07/21: 【分析】イラン戦争、過去の戦争と比べてどのくらい不人気な ANALYSIS 【分析】イラン戦争、過去の戦争と比べてどのくらい不 ...
+- [アフガニスタン ・イスラム共和国の関連情報 - フォロー](https://follow.yahoo.co.jp/themes/009cdd0d709727a72400/) — 0:33. アフガニスタン で人道支援 医師・中村哲さんのドキュメンタリー映画試写会【熊本】 · 911の年の「最重要映画」リバイバル上映へ。 · 韓日が中東局長協議 緊密な情報 ...
+- [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — シリアで凶弾に倒れた最愛の人との約束「戦場で倒れたら生き残った方が伝える」…自分もいつか、それでも ... 灼熱の太陽に照らされ、防弾チョッキを着込んだ体から汗が ...
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Ukraine (Japanese)` `2026-11`
+
+- [【 ウクライナ 情勢】特集 ニュース 速報・解説・分析 - 朝日新聞](https://www.asahi.com/topics/AP-7274059d-8405-4d7f-8dbd-8203b01bbbc8/) — ウクライナ 情勢. 2022年2月24日、ロシアが ウクライナ への侵攻を開始しました。国際社会の動きや、現地の様子などの ニュース をお伝えします。
+- [ウクライナ 情勢 | 最新 ウクライナニュース | ロイター - Reuters](https://www.reuters.com/jp/world/ukraine/) — 46分前. 焦点：無人兵器と兵士が共同戦線、 ウクライナ 「ビバルディ作戦」の内幕 · 6時間前. ポーランド、ロシアの領空侵犯を「挑発」と非難 NATO支援要請へ · 7時間前.
+- [新着 ニュース - ウクルインフォルム通信](https://www.ukrinform.jp/block-lastnews) — ウクライナ 首都キーウでは、20日未明のロシア軍の複合航空攻撃による死者数が7名、負傷者数が17名に上っている。 トランプ米大統領、ゼレンシキー宇大統領の参加なし ...
+- [「 ウクライナ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/ukraine/) — 2026. 11/21: ゼレンスキー氏、トランプ氏のプーチン氏「友人」発言に反応 「我々にとっては人殺し」 · トランプ氏、プーチン氏との「友情」を正当化 「米国にとって ...
+- [ウクライナ にロシアが侵略 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/22012404) — ウクライナ首都で橋損傷 ロシアが弾道ミサイル攻撃 · ロシア攻撃でキーウの外国大使館被害 窓吹き飛ぶ · 欧州首脳「ヤルタ方式で平和訪れぬ」 ウクライナ巡り米中ロ会談に ...
+- [ウクライナ 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202112ukraine) — ウクライナ情勢 関連ニュース · 欧州代表団、訪ロの用意 ウクライナ協議準備で ―仏(11月21日 05:20) · ロシア攻撃で外国大使館被害 窓吹き飛ぶ―ウクライナ首都(11月20日 15:26).
+- [ウクライナ 侵攻 - BBC ニュース](https://www.bbc.com/japanese/topics/c50vpymk750t) — 米特使、プーチン氏と会談 その後にゼレンスキー氏とも · ウクライナのドローン、ロシア軍艦を攻撃 フィンランド湾 · ウクライナ和平の3カ国協議が終了、突破口は開かれず.
+- [ウクライナ 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000296) — ウクライナ外相が来日へ 復興支援や無人機など意見交わす考え · チョルノービリ原発周辺自治体 復興で福島県双葉町と協定締結 · ウクライナ 世界遺産の“危機”.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — 韓国 に関連する最新の ニュース をお届けします。
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 太平洋クロマグロ 韓国 や台湾との協議で大型魚25％増枠へ · 日中関係「良好だと思わず」93％ 過去最も高く 内閣府世論調査 · 韓国 で大学入試 スマートグラスなどAI不正に ...
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — 韓国、大学入試でAIカンニングに厳戒 対策強化で高まる緊張感 · 韓国、大学入試のスマートグラス不正に厳戒 Wi-Fi切断などで対策 · 韓国・曺国氏の上陸拒否「入管法に従い ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします。](https://japanese.joins.com/) — 「非核化」に言及したのは日本だけ…トランプ氏初参加のクアッド共同声明に「韓半島」も「北朝鮮」もなし · フアン氏の復帰を拒否したエヌビディア取締役会…「 · ジェンスン・ ...
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国の年間輸出額1兆ドルを記念 ソウルでドローンショー開催へ · ［韓流］チ・チャンウクとNCT WISHシオンの旅番組 来月から日本で配信 · ［韓流］少女時代テヨン 来年1月に ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — 韓国 できょう大学入試 「AI不正」の防止対策徹底 · 大学入試会場周辺のWi-Fi利用不可に 不正行為対策で＝ 韓国 · 韓国 大学入試で「AI不正」処罰を大幅強化 受験資格10年停止に ...
+
+### Japan (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Japan (English)` `2026-11`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Cool Japan](https://en.wikipedia.org/wiki/Cool_Japan) — Cool Japan (クールジャパン, Kūru Japan) refers to the aspects of Japanese culture that non-Japanese people perceive as "cool". After the success of "Cool Britannia," the Japanese government started using the phrase.
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+

@@ -1226,3 +1226,16 @@ Tags: `Malaysia` `2026-11`
 - [TV1 (Malaysian TV network)](https://en.wikipedia.org/wiki/TV1_(Malaysian_TV_network)) — RTM TV1 (stylised as tv1) is a Malaysian free-to-air public television channel owned and operated by Radio Televisyen Malaysia, a broadcasting department of the Malaysian Government. Launched on 28 December 1963, TV1 is the first and oldest TV station in Malaysia.
 - [Sultanah Nur Diana Petra](https://en.wikipedia.org/wiki/Sultanah_Nur_Diana_Petra) — Sultanah Nur Diana Petra Abdullah (Jawi: سلطانة نور ديانا ڤيترا عبدالله; née Jana Jakubková; born 25 February 1988) is the Sultanah of Kelantan as the wife of Sultan Muhammad V, the 29th and current Sultan of the Malaysian state of Kelantan.
 
+### Malaysia(検索日時 / searched at: 2026-11-21)
+
+Tags: `Malaysia` `2026-11`
+
+- [Harian Metro | Berita Malaysia dan berita dunia terkini](https://www.hmetro.com.my/) — Laman Harian Metro membawa berita harian di Malaysia, berita dunia, berita sukan, berita ekonomi, isu semasa pendidikan & pelbagai lagi berita terkini.
+- [Utusan Malaysia](https://www.utusan.com.my/) — 3 days ago - Utusan Malaysia menerbitkan berita terkini, politik, sukan, gaya hidup, agama, dan hiburan serta dari dalam dan luar negara
+- [Berita Terkini Malaysia & Dunia | FMT Bahasa Melayu](https://www.freemalaysiatoday.com/berita) — 1 day ago - Gabungan pernah berjanji mengubah landskap politik Malaysia kini selesa mencari alasan atas kegagalannya, berbanding menilai mengapa pengundi semakin menjauh.
+- [Berita Malaysia, Nasional & Tempatan Terkini | BHarian Online](https://www.bharian.com.my/berita/nasional) — SHENZHEN: Pertemuan dua hala antara Datuk Seri Anwar Ibrahim dengan Presiden China, Xi Jinping, dijadualkan menjadi acara utama pada hari terakhir lawatan Perdana Menteri di Shenzhen, hari ini , sebelum berangkat pulang setelah menghadiri Mesyuarat ...
+- [BeautifulSoup scraping news article](https://stackoverflow.com/questions/60065910) — [SALAH] Passing Grade Universitas Indonesia 18 Tidak ada media arus utama yang mengangkat ber... &hellip; [BERITA] Kemenpan RB: Tidak Ada Pengangkatan C... 198 Juru Bicara Kepala BIN, Wawan Hari Purwanto me... &hellip;
+- [Malaysia News: Latest National News | Malay Mail](https://www.malaymail.com/news/malaysia) — October 9, 2026 - The star of the latest Malaysia news, news on politics, lifestyle, opinions & the world.
+- [Berita Nasional & Luar Negara Terkini | Berita Harian (BH Online)](https://www.bharian.com.my/berita) — Berita semasa dan terkini dari seluruh pelusuk negara.
+- [Media Prima](https://en.wikipedia.org/wiki/Media_Prima) — Media Prima Berhad is a Malaysian media company based in Bangsar, Kuala Lumpur. It is the largest media and entertainment conglomerate in Malaysia with business interests in television, print, radio, out-of-home advertising, content creation, and digital media.
+

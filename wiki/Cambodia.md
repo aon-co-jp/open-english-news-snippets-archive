@@ -1138,3 +1138,35 @@ Tags: `Cambodia` `2026-11`
 
 - [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
 
+### Cambodia(検索日時 / searched at: 2026-11-21)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
+### Brazil (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV channel)](https://en.wikipedia.org/wiki/HLN_(TV_channel)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Afghanistan (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Afghanistan (English)` `2026-11`
+
+- [Elections in Afghanistan](https://en.wikipedia.org/wiki/Elections_in_Afghanistan) — Though Afghanistan has had democratic elections throughout the 20th century, the electoral institutions have varied as changes in the political regime have disrupted political continuity. Elections were last held under the Islamic Republic of Afghanistan, which was deposed by the Taliban in August 2021.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Fox News](https://en.wikipedia.org/wiki/Fox_News) — The Fox News Channel (FNC), often referred to as Fox News, is an American multinational conservative news and political commentary television channel and website based in New York City. Owned by the Fox News Media subsidiary of Fox Corporation, as of 2022, it is the most-watched cable news network in the United States, and as of 2023, it generates approximately 70% of its parent company's pre-tax profit.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [List of current BBC newsreaders and reporters](https://en.wikipedia.org/wiki/List_of_current_BBC_newsreaders_and_reporters) — This is a list of newsreaders and journalists currently employed by BBC Television and BBC Radio. Presenters and journalists appear across BBC television and radio, and also contribute to BBC Online.
+- [The News Agents](https://en.wikipedia.org/wiki/The_News_Agents) — The News Agents is a British daily podcast produced by Global Media & Entertainment. It is presented by Emily Maitlis, Jon Sopel, and Lewis Goodall.
+- [PBS News Hour](https://en.wikipedia.org/wiki/PBS_News_Hour) — PBS News Hour (previously stylized as PBS NewsHour) is an American daily evening television news program broadcast on more than 350 PBS member stations since October 20, 1975. The nightly broadcast is known for its in-depth coverage of important issues and current events.
+- [David Muir](https://en.wikipedia.org/wiki/David_Muir) — David Jason Muir ( MURE; born November 8, 1973) is an American journalist and anchor for ABC World News Tonight and co-anchor of the ABC News magazine 20/20, part of the news department of the ABC broadcast-television network, based in New York City. Muir previously served as the weekend anchor and primary substitute anchor on ABC's World News Tonight with Diane Sawyer before succeeding her on September 1, 2014.
+

@@ -1003,3 +1003,133 @@ Tags: `Thailand` `2026-11`
 - [สนามข่าว 7 สี](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%99%E0%B8%B2%E0%B8%A1%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7_7_%E0%B8%AA%E0%B8%B5) — สนามข่าว 7 สี และ สนามข่าวเสาร์-อาทิตย์ เป็นรายการโทรทัศน์ประเภทรายการข่าวและเหตุการณ์ปัจจุบันของฝ่ายข่าวช่อง 7HD ที่สร้างความเข้มข้นและครบถ้วนในการรายงานของคนข่าวภาคสนามส่งตรงจากพื้นที่จริง ด้วยเนื้อหาและภาพที่ฉีกและแตกต่างไปจากรูปแบบของรายการข่าวอื่น ๆ โดยรายการนี้เป็นหนึ่งใน 3 รายการ ที่มีสถานะเทียบเท่ากับรายการภาคเช้าของช่อง 7HD โดยออกอากาศต่อเนื่องจากรายการ จ้อข่าวเช้า (เช้าข่าว 7 สี ตั้งแต่วันที่ 1 ตุลาคม 2557 - 31 พฤษภาคม 2567) และรายการ เช้านี้ที่หมอชิต ส่วนรายการในวันเสาร์-อาทิตย์ มีสถานะเทียบเท่ากับรายการภาคเช้าในวันเสาร์-อาทิตย์ (เดิมมีสถานะเป็นรายการข่าวที่ออกอากาศต่อเนื่องจากละครภาคค่ำ) โดยออกอากาศทุกวันจันทร์ - วันศุกร์ 07:00 - 08:20 น. และ รายการสนามข่าวเสาร์-อาทิตย์ ออกอากาศทุกวันเสาร์และวันอาทิตย์ 05:30 - 06:45 น.
 - [สมาคมนักข่าวนักหนังสือพิมพ์แห่งประเทศไทย](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%A1%E0%B8%B2%E0%B8%84%E0%B8%A1%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%AB%E0%B8%99%E0%B8%B1%E0%B8%87%E0%B8%AA%E0%B8%B7%E0%B8%AD%E0%B8%9E%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B9%8C%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B9%84%E0%B8%97%E0%B8%A2) — สมาคมนักข่าวนักหนังสือพิมพ์แห่งประเทศไทย เป็นองค์กรวิชาชีพของสื่อมวลชนไทย ก่อตั้งขึ้นเมื่อวันที่ 2 มีนาคม พ.ศ.
 
+### Thailand(検索日時 / searched at: 2026-11-21)
+
+Tags: `Thailand` `2026-11`
+
+- [สำนักข่าวไทย](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7%E0%B9%84%E0%B8%97%E0%B8%A2) — สำนักข่าวไทย (ชื่อย่อ: สขท.; อังกฤษ: THAI NEWS AGENCY; TNA) เป็นหน่วยงานประกอบกิจการข่าวสารของอสมท จัดตั้งขึ้นเมื่อวันที่ 16 มิถุนายน พ.ศ.
+- [วันนักข่าว](https://th.wikipedia.org/wiki/%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7) — วันนักข่าว หรือวันสื่อสารมวลชนแห่งชาติ ในประเทศไทย ตรงกับวันที่ 5 มีนาคม ของทุกปี ซึ่งตรงกับวันสถาปนาสมาคมนักข่าวแห่งประเทศไทย (สมาคมนักข่าวนักหนังสือพิมพ์แห่งประเทศไทย ในปัจจุบัน)
+- [ครอบครัวข่าว 3](https://th.wikipedia.org/wiki/%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%9A%E0%B8%84%E0%B8%A3%E0%B8%B1%E0%B8%A7%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7_3) — ครอบครัวข่าว 3 (อังกฤษ: Krobkruakao 3) เป็นหน่วยงานย่อยของกลุ่มบีอีซีเวิลด์ ซึ่งทำหน้าที่ผลิตข่าวสารทุกประเภท เพื่อสนับสนุนรายการโทรทัศน์ประเภทข่าวของช่อง 3 เอชดี โดยใช้ชื่อนี้เป็นตราสินค้ารวมของรายการข่าวในช่องตั้งแต่วันที่ 1 กรกฎาคม พ.ศ.
+- [สถานีโทรทัศน์แห่งประเทศไทย](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99%E0%B8%B5%E0%B9%82%E0%B8%97%E0%B8%A3%E0%B8%97%E0%B8%B1%E0%B8%A8%E0%B8%99%E0%B9%8C%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B9%84%E0%B8%97%E0%B8%A2) — สถานีโทรทัศน์แห่งประเทศไทย (อังกฤษ: The National Broadcasting Services of Thailand; ชื่อเดิม: สถานีวิทยุโทรทัศน์แห่งประเทศไทย; ชื่อย่อ: เอ็นบีที (NBT)) หรือ เอ็นบีที 2 เอชดี (อังกฤษ: NBT 2HD; อ่านว่า เอ็นบีที ทูเอชดี) เป็นหน่วยงานสถานีวิทยุโทรทัศน์ของรัฐบาล มีสถานะเป็นสถานีโทรทัศน์แห่งชาติของประเทศไทย สังกัดกรมประชาสัมพันธ์ สำนักนายกรัฐมนตรี (โดยมี ศุภมาส อิศรภักดี รัฐมนตรีประจำสำนักนายกรัฐมนตรี เป็นผู้กำกับดูแล) โดยมีการเปลี่ยนชื่อพร้อมปรับปรุงระบบการบริหารงานและรูปแบบของสถานีอยู่หลายครั้ง
+- [สำนักข่าวกรมประชาสัมพันธ์](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%B3%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7%E0%B8%81%E0%B8%A3%E0%B8%A1%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%8A%E0%B8%B2%E0%B8%AA%E0%B8%B1%E0%B8%A1%E0%B8%9E%E0%B8%B1%E0%B8%99%E0%B8%98%E0%B9%8C) — สำนักข่าวแห่งชาติ กรมประชาสัมพันธ์ (อังกฤษ: National News Bureau of Thailand ชื่อย่อ: NNT) มีที่มาจากการรวบรวมกองข่าวในประเทศ และกองข่าวต่างประเทศ และสำนักข่าว กรมประชาสัมพันธ์ ของกรมประชาสัมพันธ์เข้าด้วยกัน โดยกำหนดสถานะเป็นสำนักข่าวตั้งแต่ปี พ.ศ. 2537 ต่อมาจัดตั้งขึ้นเป็นทางการ เมื่อวันที่ 21 มกราคม พ.ศ.
+- [ข่าวช่อง 7HD](https://th.wikipedia.org/wiki/%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7%E0%B8%8A%E0%B9%88%E0%B8%AD%E0%B8%87_7HD) — ฝ่ายข่าว ช่อง 7HD (อังกฤษ: CH7HD News) เป็นหน่วยงานย่อยของบริษัท กรุงเทพโทรทัศน์และวิทยุ จำกัด หรือช่อง 7HD ที่ทำหน้าที่ผลิตข้อมูลข่าวสารทุกประเภท ในรูปของเนื้อหาข่าวสำหรับออกอากาศทางโทรทัศน์ ภาพบรรยากาศพิธีกรรม, การแข่งขันกีฬา และบรรยากาศอื่น ๆ และภาพวิดีโอข่าวสำหรับโทรทัศน์ หรือภาพนิ่งในบางกรณี เพื่อสนับสนุนกับรายการข่าวและเหตุการณ์ปัจจุบันที่สถานีฯ ผลิตขึ้นเอง รวมถึงสื่อประเภทอื่น ๆ ของช่อง 7 เอชดี เช่น เว็บไซต์ หรือสื่อสังคมออนไลน์ของสถานีฯ ก่อตั้งขึ้นในช่วงระยะแรกของการก่อตั้งสถานีฯ
+- [สนามข่าว 7 สี](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%99%E0%B8%B2%E0%B8%A1%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7_7_%E0%B8%AA%E0%B8%B5) — สนามข่าว 7 สี และ สนามข่าวเสาร์-อาทิตย์ เป็นรายการโทรทัศน์ประเภทรายการข่าวและเหตุการณ์ปัจจุบันของฝ่ายข่าวช่อง 7HD ที่สร้างความเข้มข้นและครบถ้วนในการรายงานของคนข่าวภาคสนามส่งตรงจากพื้นที่จริง ด้วยเนื้อหาและภาพที่ฉีกและแตกต่างไปจากรูปแบบของรายการข่าวอื่น ๆ โดยรายการนี้เป็นหนึ่งใน 3 รายการ ที่มีสถานะเทียบเท่ากับรายการภาคเช้าของช่อง 7HD โดยออกอากาศต่อเนื่องจากรายการ จ้อข่าวเช้า (เช้าข่าว 7 สี ตั้งแต่วันที่ 1 ตุลาคม 2557 - 31 พฤษภาคม 2567) และรายการ เช้านี้ที่หมอชิต ส่วนรายการในวันเสาร์-อาทิตย์ มีสถานะเทียบเท่ากับรายการภาคเช้าในวันเสาร์-อาทิตย์ (เดิมมีสถานะเป็นรายการข่าวที่ออกอากาศต่อเนื่องจากละครภาคค่ำ) โดยออกอากาศทุกวันจันทร์ - วันศุกร์ 07:00 - 08:20 น. และ รายการสนามข่าวเสาร์-อาทิตย์ ออกอากาศทุกวันเสาร์และวันอาทิตย์ 05:30 - 06:45 น.
+- [สมาคมนักข่าวนักหนังสือพิมพ์แห่งประเทศไทย](https://th.wikipedia.org/wiki/%E0%B8%AA%E0%B8%A1%E0%B8%B2%E0%B8%84%E0%B8%A1%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%82%E0%B9%88%E0%B8%B2%E0%B8%A7%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%AB%E0%B8%99%E0%B8%B1%E0%B8%87%E0%B8%AA%E0%B8%B7%E0%B8%AD%E0%B8%9E%E0%B8%B4%E0%B8%A1%E0%B8%9E%E0%B9%8C%E0%B9%81%E0%B8%AB%E0%B9%88%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B9%84%E0%B8%97%E0%B8%A2) — สมาคมนักข่าวนักหนังสือพิมพ์แห่งประเทศไทย เป็นองค์กรวิชาชีพของสื่อมวลชนไทย ก่อตั้งขึ้นเมื่อวันที่ 2 มีนาคม พ.ศ.
+
+### Iran (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Iran (English)` `2026-11`
+
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [2025–2026 Iranian protests](https://en.wikipedia.org/wiki/2025%E2%80%932026_Iranian_protests) — The 2025–2026 Iranian protests are a series of nationwide demonstrations against the government of Iran that began on 28 December 2025 amid a deepening economic crisis. The unrest followed a sharp depreciation of the Iranian rial, rising inflation, and widespread shortages linked to international sanctions and government mismanagement.
+- [Reactions to the 2026 Iran war](https://en.wikipedia.org/wiki/Reactions_to_the_2026_Iran_war) — On 28 February 2026, the United States and Israel launched joint airstrikes on Iran, starting the 2026 Iran war. The strikes targeted Iranian officials, military commanders, and military assets, assassinating Ali Khamenei, the supreme leader of Iran.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [Crime in Iran](https://en.wikipedia.org/wiki/Crime_in_Iran) — Crime in Iran is present in various forms, and may include the following offences: murder, kidnapping, theft, fraud, money laundering, drug trafficking, drug dealing, alcohol smuggling, oil smuggling, tax evasion, terrorism, homosexuality, Guidance Patrol, eating and drinking during Ramadan, drinking alcohol, and many other crimes.
+- [List of newspapers in Iran](https://en.wikipedia.org/wiki/List_of_newspapers_in_Iran) — The first Iranian newspapers appeared in the mid-19th century during the reign of Naser al-Din Shah. More specifically, the first newspaper in Iran, Kaghaz-e Akhbar (The Newspaper), was launched for the government by Mirza Saleh Shirazi in 1837.
+- [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ発ニュース · ECB理事候補に独仏経済学者ら · コメルツ銀買収条件で基本合意＝ドイツ政府とイタリア金融大手 · 独DHLが専用貨物サービス開始＝インド・中国・欧州結び週 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ元情報機関トップを逮捕 スパイ活動や国家反逆の疑い . 2026年10月7日. A member of the Nobel Committee annoucing the prize. 脳の内部の動きをを解明した米独3 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — トランプ大統領 アジア訪問終えホワイトハウスに 各国の反応 は · 独首相「ヤルタ形式平和もたらさず」 大国外交をけん制 · ドイツBMW 2018年以来の24時間ストライキ実施へ.
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/19: ゴッホの「花咲く栗の木」、300億円で落札 ナチス巡る混乱もオークション記録更新; 11/16: 世界の「汚職度」ランキング、米国が過去最低順位に転落 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相「ばかげている」発言で米次官に謝罪 ウクライナ巡り · 欧州首脳「ヤルタ方式で平和訪れぬ」 ウクライナ巡り米中ロ会談に警戒 · 中国も米国も信じぬ欧州 メルツ ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネスニュース・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... ドイツ主要研究所が春季経済予測を一斉発表 、中東情勢の影響評価に濃淡(米国 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — インファンティーノ氏は「独裁者」 前FIFA会長ブラッター氏が批判 · ドイツ 連邦軍でセクハラまん延、特に階級の低い女性兵士の被害が深刻 · 独軍、中国製ドローンの使用を ...
+
+### France (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `France (English)` `2026-11`
+
+- [France 24](https://en.wikipedia.org/wiki/France_24) — France 24 (France vingt-quatre in French) is a French state-owned publicly funded international news television network based in Paris. Its channels, broadcast in French, English, Arabic and Spanish, are aimed at the overseas market.
+- [USA Today](https://en.wikipedia.org/wiki/USA_Today) — USA Today (often stylized in all caps) is an American daily newspaper and news broadcasting company. Founded by Al Neuharth in 1980 and launched with its first issue on September 15, 1982, the newspaper operates from USA Today Co.'s corporate headquarters in New York City.
+- [Real Raw News](https://en.wikipedia.org/wiki/Real_Raw_News) — Real Raw News is an American fake news website created in April 2020. Many of its published stories include misinformation about COVID-19 vaccines, fictional arrests and supposed executions of public figures.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [New York Daily News](https://en.wikipedia.org/wiki/New_York_Daily_News) — The Daily News, widely known as the New York Daily News, is an American newspaper outlet based in Jersey City, New Jersey. It was founded in 1919 by Joseph Medill Patterson in New York City as the Illustrated Daily News.
+- [NBC News](https://en.wikipedia.org/wiki/NBC_News) — NBC News is the news division of the American broadcast television network NBC. It operates under the NBCUniversal News Group, a unit of NBCUniversal, which itself is a subsidiary of Comcast. The news division's various operations report to the president of NBC News, Rebecca Blumenstein.
+- [The Day Today](https://en.wikipedia.org/wiki/The_Day_Today) — The Day Today is a British comedy television show that parodies television news and current affairs programmes, broadcast from 19 January to 23 February 1994 on BBC2. It was created by Armando Iannucci and Chris Morris and is an adaptation of the radio programme On the Hour, which was broadcast on BBC Radio 4 between 9 August 1991 and 28 May 1992 and was also written by Morris, Iannucci, Steven Wells, Andrew Glover, Stewart Lee, Richard Herring, David Quantick, and the cast.
+- [CTV News Channel (Canadian TV channel)](https://en.wikipedia.org/wiki/CTV_News_Channel_(Canadian_TV_channel)) — CTV News Channel is a Canadian specialty news channel owned by Bell Media (a wholly owned subsidiary of Bell Canada). It broadcasts national and international news headlines, breaking news, and information.
+
+### Austria (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Santorini International Airport](https://en.wikipedia.org/wiki/Santorini_International_Airport) — Santorini International Airport (Greek: Διεθνής Αερολιμένας Σαντορίνης) (IATA: JTR, ICAO: LGSR) is an airport in Santorini, Greece, located north of the village of Kamari. The airport serves as both a military and a civil airport.
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- [最新 ロシアニュース | ロイター - Reuters](https://www.reuters.com/jp/world/russia/) — ロシア · 46分前. 焦点：無人兵器と兵士が共同戦線、ウクライナ「ビバルディ作戦」の内幕 · 2時間前. 国連次期事務総長、年内選出に黄信号 本命候補に2常任理事国が反対 · 3 ...
+- [ロシア - BBC ニュース](https://www.bbc.com/japanese/topics/cnq68k055pwt) — ロシア · ポーランドにロシアのミサイル着弾とトゥスク首相 近くでウクライナの同盟国が演習中 · ビデオ, 米中ロ3首脳は会談で何を得たのか、BBC各国特派員の意見, 所要時間 ...
+- [「 ロシア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20133) — ウクライナ首都で橋損傷 ロシアが弾道ミサイル攻撃 · JT社債に売り、「虎の子」ロシア事業連結除外で CDS保証料率上昇 · 米中ロ会談、中国識者の見方 「ヤルタ型でも一極型 ...
+- [「 ロシア 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000220) — 「ロシア」ニュース一覧 · ウクライナ支援の有志連合 初の軍事演習をメディアに公開 · トランプ大統領 中ロ首脳との3者会談の意義強調 · ゼレンスキー大統領「私たちにとって ...
+- [「 ロシア 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/russia/) — 2026. 11/21: ゼレンスキー氏、トランプ氏のプーチン氏「友人」発言に反応 「我々にとっては人殺し」 · トランプ氏、プーチン氏との「友情」を正当化 「米国にとって ...
+- [ヨーロッパ・ ロシアニュース 一覧 - テレ朝NEWS](https://news.tv-asahi.co.jp/news_international/20.html) — 今年10カ月で1144人の子どもが死傷 去年を上回る被害 ロシア 軍の攻撃続く · EU・英首脳会議 3分野で合意 食品の輸出入簡素化や若者10万人の受け入れなど · ヨーロッパ各地で ...
+- [ロシア のウクライナ侵攻 - Yahoo! ニュース](https://news.yahoo.co.jp/pages/20220217a) — ウソやデマにだまされない · ウクライナ 今年10カ月で1144人の子どもが死傷 · トランプ政権、来年1月までに ロシア ・ウクライナ和平合意を期待か 民主党が多数派になる前に ...
+- [ロシア | 国際の ニュース | JBpress (ジェイビープレス)](https://jbpress.ismedia.jp/subcategory/%E3%83%AD%E3%82%B7%E3%82%A2) — 初の米中ロ首脳会談が示した「対立と協調」の境界線 、国連改革を掲げながらICCをけん制する大国の論理 · JTがロシア事業の支配喪失、いったいなぜ？ · ウクライナの攻撃で ...
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ発ニュース · ECB理事候補に独仏経済学者ら · コメルツ銀買収条件で基本合意＝ドイツ政府とイタリア金融大手 · 独DHLが専用貨物サービス開始＝インド・中国・欧州結び週 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 朝日新聞の、 ドイツ に関する ニュース や速報記事一覧です。 ドイツ に関する現状や背景を、わかりやすくお伝えします。
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ元情報機関トップを逮捕 スパイ活動や国家反逆の疑い . 2026年10月7日. A member of the Nobel Committee annoucing the prize. 脳の内部の動きをを解明した米独3 ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — トランプ大統領 アジア訪問終えホワイトハウスに 各国の反応 は · 独首相「ヤルタ形式平和もたらさず」 大国外交をけん制 · ドイツBMW 2018年以来の24時間ストライキ実施へ.
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/19: ゴッホの「花咲く栗の木」、300億円で落札 ナチス巡る混乱もオークション記録更新; 11/16: 世界の「汚職度」ランキング、米国が過去最低順位に転落 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相「ばかげている」発言で米次官に謝罪 ウクライナ巡り · 欧州首脳「ヤルタ方式で平和訪れぬ」 ウクライナ巡り米中ロ会談に警戒 · 中国も米国も信じぬ欧州 メルツ ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネスニュース・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... ドイツ主要研究所が春季経済予測を一斉発表 、中東情勢の影響評価に濃淡(米国 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — インファンティーノ氏は「独裁者」 前FIFA会長ブラッター氏が批判 · ドイツ 連邦軍でセクハラまん延、特に階級の低い女性兵士の被害が深刻 · 独軍、中国製ドローンの使用を ...
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- [Bondi Beach shooting](https://en.wikipedia.org/wiki/Bondi_Beach_shooting) — On 14 December 2025, an antisemitic and Islamic State (IS)–inspired terrorist attack occurred at the Archer Park area of Bondi Beach in Sydney, New South Wales, Australia, during a celebration of the Jewish holiday of Hanukkah attended by around 1,000 people. Sajid Akram and his son, Naveed Akram, allegedly shot dead 15 people, aged between 10 and 87, and injured 40 others, including two police officers.
+- [Zapad 2025](https://en.wikipedia.org/wiki/Zapad_2025) — Zapad 2025 (Russian: Запад-2025, Belarusian: Захад-2025, romanized: Zakhad-2025, lit. 'West 2025') was a Russian-Belarusian joint strategic military exercise, that took place in Belarus on 12–16 September 2025. Belarus has said the drills will test the Union State's defensive readiness, with main activities staged at central training areas near Barysaw and a reciprocal movement of units between the two states.
+- [2026](https://en.wikipedia.org/wiki/2026) — 2026 (MMXXVI) is the current year, and is a common year starting on Thursday of the Gregorian calendar, the 2026th year of the Common Era (CE) and Anno Domini (AD) designations, the 26th year of the 3rd millennium and the 21st century, and the 7th year of the 2020s decade. The early part of the year saw escalating armed conflicts in the Americas and Middle East.
+- [2026 Summer Youth Olympics](https://en.wikipedia.org/wiki/2026_Summer_Youth_Olympics) — The 2026 Summer Youth Olympics (French: Jeux Olympiques de la jeunesse d'été de 2026), officially known as the IV Summer Youth Olympic Games and commonly known as Dakar 2026 (Wolof: Ndakaaru 2026), was the fourth edition of the Summer Youth Olympics, an international sports, education and cultural festival for teenagers, in a city designated by the International Olympic Committee (IOC). Originally scheduled to be held for 18 days in Dakar, Senegal, from 22 October to 9 November 2022, it is now scheduled to be held there for 14 days—from 31 October to 13 November 2026, becoming the first IOC event to be held in Africa and the first Youth Olympic Games under the IOC presidency of Kirsty Coventry.
+- [2020s in politics](https://en.wikipedia.org/wiki/2020s_in_politics) — This article lists significant political and societal historical events of the 2020s, presented as a historical overview in narrative format.
+- [Islamic veiling practices by country](https://en.wikipedia.org/wiki/Islamic_veiling_practices_by_country) — Various styles of head coverings, most notably the khimar, hijab, chador, niqab, paranja, yashmak, tudong, shayla, safseri, çarşaf, haik, dupatta, boshiya and burqa, are worn by Muslim women around the world, where the practice varies from mandatory to optional or restricted in different majority Muslim and non-Muslim countries. Wearing the hijab is mandatory in Islamic Republic of Iran and the Taliban-led Islamic Emirate of Afghanistan.
+- [Kash Patel](https://en.wikipedia.org/wiki/Kash_Patel) — Kashyap Pramod Patel (born February 25, 1980) is an American lawyer who has served since 2025 as the director of the Federal Bureau of Investigation. Patel also served as acting director of the Bureau of Alcohol, Tobacco, Firearms and Explosives from February to April 2025.
+- [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- [タジキスタン - 。 今日 の最新 ニュース と主な出来事。](https://sputniknews.jp/geo_tajikistan/) — タジキスタン · 岸田首相、中央アジア訪問 新規事業に3000億円の保証枠設置へ · 岸田首相、8月中旬に中央アジア歴訪 新たな協力枠組み発表 · 習主席、カザフスタンで開催の ...
+- [タジキスタン の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3.html) — 最新 ニュース · （GLOBAL HEALTH）ポリオ根絶、高い最後の壁 · 北回りと南回りの旧石器を追求し評価 奈文研の国武さんに岩宿文化賞 · 秋の叙勲 3960人が受章.
+- [タジキスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/74884/) — 天皇陛下、来日したウズベキスタン大統領らと会見 … · カスピ海ルート物流網を整備支援、ロシア経由せず経済安保上のリスク軽減… · 中国版「秩序」広がり欠く 米に対抗「世界 ...
+- [Tajikistan：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Tajikistan) — タジキスタン、ロシアでの10歳児童刺殺事件を非難「民族憎悪」 . Tajikistan. スイス氷河崩落は世界への警鐘 専門家が指摘 · 女性が着るべき服装の「指針本」出版へ ...
+- [「 タジキスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/tajikistan/) — 選手の不安が現実に タリバンが女性のスポーツ禁止、代表チーム相次ぎ出国 · Video.
+- [ニュース 及びイベント | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/information/news-and-events-ja?page=8) — タジキスタン 、アフガニスタン、中央アジアのためのEUプログラムとプロジェクトの採択を歓迎した。 安全保障問題に関する議論では、中央アジアの安全を確保し、 ...
+- [トピック ニュース | 駐日 タジキスタン 共和国大使館](https://www.mfa.tj/ja/tokyo/topical-news-ja) — 2024年12月4日付けで発令された タジキスタン 共和国大統領令により、マジュリシ・ナモヤンダゴンおよび地方議会議員の選挙が2025年3月2日に開かれます。 この選挙は、 ...
+- [「 タジキスタン 」の検索結果 - Yahoo! ニュース](https://news.yahoo.co.jp/search?p=%E3%82%BF%E3%82%B8%E3%82%AD%E3%82%B9%E3%82%BF%E3%83%B3) — タジキスタンからの国費留学生受け入れで合意 日本語学校経営者協会 · 【PANCRASE】3大王座戦に！ · 米国務長官、中央アジア5カ国外相と会談 ウズベクと投資合意も · 中国首相 ...
+
+### China (Japanese)(検索日時 / searched at: 2026-11-21)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 友人同士のトラブルか 中国上海、邦人死亡事件 · エルメスなど仏高級ブランド、3社株価が年初来4割安 中国低迷で減速 · 元米運輸長官「造船業再生、日米連携で」 次世代交通 ...
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 台湾、メタに数千の不審アカウント通報 中国の情報戦で選挙介入と指摘 · TSMC、中国向けAI半導体の一部受注停止 米規制強化に対応 · ロシア軍戦略爆撃機が台湾東側を ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 深センで米朝会談の発表なし トランプ氏、帰国の途. 11月19日. 共同通信. ウクライナに「報復する」 クリミア橋攻撃、ロ大統領. 11月19日.
+- [最新の 中国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/42/) — 最新の中国ニュース ; ダカールユース五輪、中国とアフリアのスポーツ協力深める · 11月21日 22時48分 ; 中国青海省デリンハ市でM5.6の地震 · 11月21日 21時13分 ; 国産「沱江」 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 2026. 11/19: 【分析】前例なき3首脳会談、中ロが掲げる「新世界 ANALYSIS 【分析】前例なき3首脳会談、中ロが掲げる「新世界秩序」の勝利 · 米中ロの3首脳が会談、 ...
+- [「 中国 」 ニュース 一覧 - NHKニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「 中国 」 ニュース 一覧 · トランプ大統領 中ロ首脳との3者会談の意義強調 · ペルー ケイコ・フジモリ大統領“米中双方と連携 対話を歓迎” · 高市首相 ICCの赤根所長と来週面会へ ...
+- [人民網日本語版--People's Daily Online](http://j.people.com.cn/) — 習近平国家主席がトランプ米大統領と会談 · 中露米首脳会談について王毅外交部部長が説明 · 彭麗媛夫人がAPEC各首脳・代表の配偶者と「嶺南無形文化遺産の継承と革新」展を ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 米中首脳、AI安全策で合意とトランプ氏 軍事利用は人間が判断(11月21日 07:34) · トランプ氏、「レガシー外交」本格化 米中ロ、歴史的会談も成果乏しく(11月21日 07:08).
+
