@@ -1239,3 +1239,94 @@ Tags: `Malaysia` `2026-11`
 - [Berita Nasional & Luar Negara Terkini | Berita Harian (BH Online)](https://www.bharian.com.my/berita) — Berita semasa dan terkini dari seluruh pelusuk negara.
 - [Media Prima](https://en.wikipedia.org/wiki/Media_Prima) — Media Prima Berhad is a Malaysian media company based in Bangsar, Kuala Lumpur. It is the largest media and entertainment conglomerate in Malaysia with business interests in television, print, radio, out-of-home advertising, content creation, and digital media.
 
+### Malaysia(検索日時 / searched at: 2026-11-22)
+
+Tags: `Malaysia` `2026-11`
+
+- [Liputan Harian Berita Terkini Di Malaysia](https://www.astroawani.com/berita-malaysia) — August 31, 2026 - Berikut adalah berita yang paling menjadi tumpuan sepanjang Sabtu, 21 November 2026. ... Operasi tertumpu kepada mencari dan menyelamat mangsa wanita yang dilaporkan hilang namun keadaan arus air ketika ini masih deras. ... Daripada tiga insiden itu, satu kes melaporkan tentang seorang lelaki warga Malaysia yang menyembunyikan jongkong emas di dalam kasutnya.
+- [Utusan Malaysia](https://www.utusan.com.my/) — 4 days ago - Utusan Malaysia menerbitkan berita terkini, politik, sukan, gaya hidup, agama, dan hiburan serta dari dalam dan luar negara
+- [Harian Metro | Berita Malaysia dan berita dunia terkini](https://www.hmetro.com.my/) — Laman Harian Metro membawa berita harian di Malaysia, berita dunia, berita sukan, berita ekonomi, isu semasa pendidikan & pelbagai lagi berita terkini.
+- [Berita Harian (BHarian Online) | Berita Malaysia & Dunia Terkini](https://www.bharian.com.my/) — LANGKAWI: Ahli Parlimen Muar, Syed Saddiq Syed Abdul Rahman gagal mencapai sasaran menamatkan cabaran IRONMAN Malaysia 2026 dalam tempoh bawah 12 jam .
+- [BeautifulSoup scraping news article](https://stackoverflow.com/questions/60065910) — [SALAH] Passing Grade Universitas Indonesia 18 Tidak ada media arus utama yang mengangkat ber... &hellip; [BERITA] Kemenpan RB: Tidak Ada Pengangkatan C... 198 Juru Bicara Kepala BIN, Wawan Hari Purwanto me... &hellip;
+- [Berita Malaysia, Nasional & Tempatan Terkini | BHarian Online](https://www.bharian.com.my/berita/nasional) — KUALA KANGSAR: Sultan Perak Sultan Nazrin Shah dan Raja Permaisuri Perak Tuanku Zara Salim, hari ini berkenan bercemar duli menyertai Larian Hari Keputeraan Sultan Perak 2026. ... PUTRAJAYA: Memperkukuh identiti nasional, menyemai semangat ...
+- [Berita Nasional & Luar Negara Terkini | Berita Harian (BH Online)](https://www.bharian.com.my/berita) — Lima firma Bumiputera berjaya disenarai ... - JPA · Selebriti sejam yang lepas · Lepas 17 tahun menduda, Mamat Exists bertunang hari ini ·...
+- [Berita tempatan pilihan sepanjang hari ini | Awani](https://www.astroawani.com/berita-malaysia/berita-tempatan-pilihan-sepanjang-hari-ini-283) — Now - Usaha mengawal premium insurans perubatan semata-mata tidak akan menyelesaikan masalah peningkatan kos penjagaan kesihatan, memandangkan kos asas bagi rawatan itu sendiri juga perlu ditangani, kata Gabenor Bank Negara Malaysia (BNM) Datuk Seri Abdul Rasheed Ghaffour. Bendera merah di empat pantai di Kelantan, ombak melebihi 1.5 meter · Empat pantai peranginan di Kelantan, iaitu Pantai Geting, Pantai Cahaya Bulan, Pantai Irama dan Pantai Bisikan Bayu dipasang bendera merah berikutan keadaan laut bergelora dengan ketinggian ombak melebihi 1.5 meter. Bomba waspada risiko banjir susulan air pasang besar malam ini
+
+### Brazil (English)(検索日時 / searched at: 2026-11-22)
+
+Tags: `Brazil (English)` `2026-11`
+
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Brazil v Germany (2014 FIFA World Cup)](https://en.wikipedia.org/wiki/Brazil_v_Germany_(2014_FIFA_World_Cup)) — The Brazil versus Germany football match (also known by its score as 7–1, or Mineiraço in Brazil) was the first of two semi-final matches of the 2014 FIFA World Cup that took place on 8 July 2014 at the Mineirão stadium in Belo Horizonte, Brazil. Both Brazil and Germany reached the semi-finals with an undefeated record in the competition, with the Brazilians' quarter-final with Colombia causing them to lose forward Neymar to injury, and defender and captain Thiago Silva to accumulation of yellow cards.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [List of news presenters](https://en.wikipedia.org/wiki/List_of_news_presenters) — This is a list of news presenters by nationality.
+- [List of miscellaneous fake news websites](https://en.wikipedia.org/wiki/List_of_miscellaneous_fake_news_websites) — This is a list of miscellaneous fake news websites that do not fit into any of the other fake news website lists such as these lists of: fake news website campaigns by individuals, corporate disinformation website campaigns, fraudulent fact-checking websites, fake news websites based on generative AI hate group-sponsored fake news websites, elsewhere, satirical fake news websites, troll farm websites involved in fake news, user-generated fake news websites, and other fake news online networks.
+- [HLN (TV channel)](https://en.wikipedia.org/wiki/HLN_(TV_channel)) — HLN is an American basic cable television channel owned by CNN Worldwide, a division of Skydance. The channel primarily carries true-crime programming, recently drifting away from limited live news programming.
+
+### Austria (English)(検索日時 / searched at: 2026-11-22)
+
+Tags: `Austria (English)` `2026-11`
+
+- [Vienna](https://en.wikipedia.org/wiki/Vienna) — Vienna ( vee-EN-ə; German: Wien [viːn] ; Austro-Bavarian: Wean [veɐ̯n]) is the capital, most populous city, and one of the nine states of Austria. It is Austria's primate city, with just over two million inhabitants.
+- [Anif Palace](https://en.wikipedia.org/wiki/Anif_Palace) — Anif Palace (German: Schloss Anif), also known as the Water Palace Anif, is located beside an artificial pond in Anif on the southern edge of Salzburg, Austria. The palace was once the seat of the bishops of Chiemsee, and then later was used as a court until the nineteenth century.
+- [Veterans Today](https://en.wikipedia.org/wiki/Veterans_Today) — Veterans Today, also known as VT Foreign Policy, is an American antisemitic and conspiracy theory website. It describes itself as a "military veterans and foreign affairs journal", while multiple sources describe it as a pro-Kremlin propaganda outlet.
+- [Breitbart News](https://en.wikipedia.org/wiki/Breitbart_News) — Breitbart News Network ( BRYTE-bart; known commonly as Breitbart News, Breitbart, or Breitbart.com) is an American far-right news, opinion, and commentary website founded in 2007 by American conservative commentator Andrew Breitbart. Its content has been described as misogynistic, xenophobic, and racist by various academics and journalists.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [Murder of Don Solovich](https://en.wikipedia.org/wiki/Murder_of_Don_Solovich) — Don L. Solovich (6 April 1892 – 6 January 1928) was a gay man formerly from Austria-Hungary employed by famed actor Charlie Chaplin who was murdered by Sheldon Clark in 1928. The murder trial made international headlines.
+- [Fake news](https://en.wikipedia.org/wiki/Fake_news) — Fake news is false or misleading information (misinformation, disinformation, propaganda, and hoaxes) claiming the aesthetics and legitimacy of news. Fake news often has the aim of damaging the reputation of a person or entity, or making money through advertising revenue.
+- [Heraklion International Airport "Nikos Kazantzakis"](https://en.wikipedia.org/wiki/Heraklion_International_Airport_%22Nikos_Kazantzakis%22) — Heraklion International Airport "Nikos Kazantzakis" (IATA: HER, ICAO: LGIR) is the primary airport on the island of Crete, Greece, and the country's second busiest airport after Athens International Airport. It is located about 5 km (3.1 mi) east of the main city centre of Heraklion, near the municipality of Nea Alikarnassos.
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-11-22)
+
+Tags: `Brazil (Japanese)` `2026-11`
+
+- [ブラジル の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%96%E3%83%A9%E3%82%B8%E3%83%AB.html) — 朝日新聞の、 ブラジル に関する ニュース や速報記事一覧です。 ブラジル に関する現状や背景を、わかりやすくお伝えします。
+- [ブラジル 日報の記事一覧 - Yahoo! ニュース](https://news.yahoo.co.jp/media/nikkey) — ブラジル 日報 · 300人超を拷問、軍事政権の暗殺者＝アルゼンチン独裁の闇、ドラマで＝自動車泥棒から「国家の拷問官」へ · 《滋賀県》サンタナ学園が存続へクラファン＝外国 ...
+- [「 ブラジル 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/40282) — ブラジル・ルラ氏、大統領選「生きるか死ぬかだった」 逆転勝利を回顧 · SNS「1000万人網」の逆転劇 現地記者が語るブラジル大統領選 · ブラジル大統領選ルラ氏逆転、 ...
+- [南米の鼓動をキャッチ！ ブラジル 日報](https://brasilnippou.com/) — ブラジル・南米 · 財政調整案が上院通過、下院へ ＝冷ややかな市場と深まる葛藤＝レアル安と債務肥大化の不吉な影 · レアル急落、一時1ドル＝5.93レアルに＝財政不安と米高 ...
+- [「 ブラジル 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000420) — 「ブラジル」ニュース一覧 · サッカー日本代表 ブラジルに勝利 W杯の雪辱果たす 通算2勝目 · エルニーニョ現象 過去最大の強さに どんな影響が · サッカー日本代表 強化試合の ...
+- [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil. ノリスがサンパウロGP制覇、メルセデスはコンストラクターズタイトル獲得 · ブラジル大統領選敗北のフラビオ氏、米逃亡は「迫害」が理由と主張 ...
+- [「 ブラジル 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/brazil/) — ブラジル 大統領選で敗れ出国、なぜ米国はボロソナーロ派の政治拠点になったのか？ 10/28: ブラジル 大統領選敗北のボルソナーロ氏、 ...
+- [ブラジル - BBC ニュース](https://www.bbc.com/japanese/topics/c5qvpx7pjwzt) — ビデオ, 【検証】ボルソナロ氏はどのように米マイアミにたどり着いたのか、アルゼンチンとエクアドルを経由, 所要時間 1,32 · ブラジル 大統領選で敗れたボルソナロ氏、国外 ...
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-22)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 関連の最新 ニュース を24時間体制で多面的に展開。南北関係や 韓国 政治、外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [聯合 ニュース](https://jp.yna.co.kr/) — 韓国 きょうの ニュース （11月20日） · 今日 の歴史（11月21日） · 韓国 大学入試で111人が不正行為 メール一斉送信で54人摘発 · 韓国 カカオ ...
+- [最新の 韓国ニュース - ライブドアニュース](https://news.livedoor.com/article/category/44/) — 韓国 に関連する最新の ニュース をお届けします。
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — 「韓国」ニュース一覧 · 韓国 大学入試 スマートグラスなどの対策で混乱 教育相が辞意 · 太平洋クロマグロ 韓国や台湾との協議で大型魚25％増枠へ · 日中関係「良好だと思わず ...
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします。](https://japanese.joins.com/) — アジア株式市場に「ブラックフライデー」… 韓国 株価、年初来上昇率116％から15％に急落 · 【リセットコリア】証券市場制度直せば株価上がるという錯覚捨てなくては · 韓国 株価 ...
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — SKハイニックス、キオクシアの筆頭株主へ 社債転換で普通株取得 · 韓国大学入試で不正行為111件摘発 厳戒警備でもスマートグラスなど使用 · 現代自やホンダ、米国でHVシフト ...
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — BTS公演会場で入場用リストバンド100個盗む 中国籍の男に執行猶予＝ 韓国 地裁. 11/22(日) 15:50. 韓国 教育相 大学入試の不正行為防止巡る混乱で辞意＝李大統領が ...
+
+### China (English)(検索日時 / searched at: 2026-11-22)
+
+Tags: `China (English)` `2026-11`
+
+- [China Today (TV program)](https://en.wikipedia.org/wiki/China_Today_(TV_program)) — China Today is a news program that focuses on news issues and current affairs around China. China Today 30 minute's episodes are broadcast on CCTV-9 at 22:00 China Standard Time (UTC+8), or 14:00 UTC every day, and rebroadcasts twice at 01:00 and 07:00 UTC+8 the next morning, or 17:00 and 23:00 UTC. The Sunday edition of China Today is called China This Week, which takes a look back at major issues happen around the country within the previous 6 days.
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — crash to 26 all out - again", "description": "Cricket News: ​China may have the world's biggest population and the second largest economy, but they are yet to impress in one area: the cricket &hellip; field, where they", "url": "https://timesofindia.indiatimes.com/sports/cricket/news/sticky-wicket-as-china-crash-to-26-all-out-again/articleshow/66164330.cms", "urlToImage": "https &hellip;
+- [Today Daily News (Toronto)](https://en.wikipedia.org/wiki/Today_Daily_News_(Toronto)) — Today Daily News (Chinese: 現代日報; pinyin: Xiàndài Rìbào) was a Chinese language newspaper in Canada, launched on November 1, 2005. It was published by Today Daily News International in Scarborough.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — 48:40Z" }, { "source": { "id": "usa-today", "name": "USA Today" }, "author": "Erin Jensen", "title": "Miss &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [Headlines (disambiguation)](https://en.wikipedia.org/wiki/Headlines_(disambiguation)) — The headline is the text at the top of a newspaper article, indicating the nature of the article below it.
+- [Convert XAML to FlowDocument to display in RichTextBox in WPF](https://stackoverflow.com/questions/2830987) — /20100504/world-news">World News</Hyperlink></Span><LineBreak /><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/view/20100504/world-news/new-iceland-volcano-ash-grounds-flights-in-ireland &hellip; ">Strikes to disrupt Greek flights as from today</Hyperlink><LineBreak /><LineBreak /><Span FontWeight="bold"><Hyperlink Foreground="#555555" NavigateUri="http://www.timesofmalta.com/articles/headlines &hellip;
+- [The Diplomat Magazine Exposed Yan Limeng and Guo Wengui](https://news.ycombinator.com/item?id=36148847) — Hacker News · 4 points · 0 comments · 2023-06-01
+
+### Iran (Japanese)(検索日時 / searched at: 2026-11-22)
+
+Tags: `Iran (Japanese)` `2026-11`
+
+- [イラン 情勢の ニュース ・速報 - 47NEWS](https://www.47news.jp/topic/iran-situation) — イラン情勢のニュース・速報. 200件中 1~20件表示. 米イラン本格交渉至らず 仲介外交継続、なおも溝 . 06時25分. 共同通信. 【速報】イランがバーレーン攻撃. 05時45分.
+- [「 イラン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/iran/) — 2026. 11/20: トランプ氏、 イラン 戦争巡る判断は「急がず」 年明けに情勢を見極める考え; 11/19: イラン 、湾岸地域での攻撃範囲拡大 米軍によるミサイル発射施設への ...
+- [イラン 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=201905iran) — イラン 、バーレーンの米軍施設攻撃 今月4度目、「報復」主張(11月22日 19:47) · 米国とイスラエル軍高官、対 イラン で対応協議(11月19日 06:48) · 米軍が イラン ・ケシム島 ...
+- [最新 イラン 情勢 特集サイト - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000183) — イラン外交団が仲介国で協議 最高指導者は大規模反撃を指示 . 11月1日 5:50 · 米のイラン攻撃回避に向け仲介外交 ホルムズでタンカー炎上も. 10月31日 6:03.
+- [イラン - BBC ニュース](https://www.bbc.com/japanese/topics/c8y946g2nz3t) — イラン · 米中ロ3首脳、顔を合わせ握手 中国での歴史的会談を前に · イラン 、バーレーンの米軍基地をドローン攻撃 · ビデオ, トランプ氏、 イラン 戦争に「我々は勝った」と発言 ...
+- [イラン 情勢-WSJ日本版-jp.wsj.com](https://jp.wsj.com/news/iran) — イラン 情勢 ; イスラエル情報機関トップ、米に イラン 再攻撃を要請していた · By. Anat Peled. 2026年11月19日 ; イラン 国境の武装勢力、高まる政府への脅威 · By. Benoit ...
+- [イラン 大統領の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%82%A4%E3%83%A9%E3%83%B3%E5%A4%A7%E7%B5%B1%E9%A0%98.html) — 最新ニュース · イラン「我々こそテロ被害者」 米との交渉再開にも含み 大統領演説 · 国連で「我々はテロ被害者」 イラン大統領演説、米代表は退席 · 「我々はテロの被害者」 ...
+- [イラン 軍事衝突 最新 ニュース と解説 - 日本経済新聞](https://www.nikkei.com/topics/19061400) — イラン軍事衝突 · トランプ氏、イラン対応は年内判断せず 「決断は急がない」 · UAE原油生産、迂回路拡大で能力増強弾み 世界消費の5%に · ホルムズ海峡通航の石油「衝突前の ...
+

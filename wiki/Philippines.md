@@ -1105,3 +1105,42 @@ Tags: `Philippines` `2026-11`
 - [Balita - Philippine News](https://balita.mb.com.ph/) — Ipinagluluksa ng basketball community sa Pilipinas ang biglaang pagpanaw ni Philippine Basketball Association (PBA) Star Peter June “PJ” Simon noong Biyernes, Nobyembre 20. Batay sa mga ulat, isinugod si PJ sa San Pedro Hospital matapos siyang makita ng ilang witnesses na nahihirapang huminga bago himatayin.
 - [Balitambayan - Balita, Kuwento, at Talakayan Mula Sa ...](https://www.gmanetwork.com/news/balitambayan/) — October 19, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
 
+### Philippines(検索日時 / searched at: 2026-11-22)
+
+Tags: `Philippines` `2026-11`
+
+- [Balita Pilipinas Ngayon - Wikipedia](https://en.wikipedia.org/wiki/Balita_Pilipinas_Ngayon) — 2 weeks ago - Balita Pilipinas Ngayon (transl. news Philippines now) is a Philippine television news broadcasting show broadcast by GMA News TV. Anchored by Maki Pulido and Mark Salazar, it premiered on July 11, 2011.
+- [Abante News Online | Una sa Balita](https://www.abante.com.ph/) — October 2, 2026 - Abante ang #1 leading tabloid sa Pilipinas. Tutok lang para sa latest Pinoy balita at showbiz news ngayon. Abante lang ang laging una sa balitang mainit-init pa
+- [Balita Ngayon | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/balita-ngayon) — Balita Ngayon · November 12, 2026 - 12:00am · Daghan ang mialma sa pamahayag ni Vice President Sara Duterte atubangan sa mga Overseas Filipino Workers (OFW) didto sa Hong Kong tungod kay giisip ni sa uban nga “unpatriotic”. Balita Ngayon ...
+- [Balita | Balitambayan](https://www.gmanetwork.com/news/balitambayan/balita/) — Mababasa at mapapanood ang maiinit at mahahalagang ulat pambansa, politikal, krimen at iba pa sa seksyon na 'Balita'. The 'BALITA' section offers national news, political developments and crime stories.
+- [Pilipino Star Ngayon - Bansa | Philstar.com](https://www.philstar.com/pilipino-star-ngayon/bansa) — Inihayag ni Philippine Ambassador to the United States Jose Manuel Romualdez na may plano umanong i-develop ng bilyonaryong si Elon Musk ang isa o dalawang isla sa Pilipinas matapos magpakita ng matinding interes sa bansa.
+- [Balita | Bandera - Inquirer.net](https://bandera.inquirer.net/balita) — October 11, 2026 - Philippine Entertainment Tabloid for the latest showbiz news
+- [Balitambayan - Balita, Kuwento, at Talakayan Mula Sa ...](https://www.gmanetwork.com/news/balitambayan/) — October 19, 2026 - Mga latest na balita, kuwento, at chika sa Pilipinas.
+- [Balita - Philippine News](https://balita.mb.com.ph/) — 18:38 BALITA VP Sara rumesbak tungkol sa pahayag ng PNP ukol sa kaniyang ex-household staff member
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-22)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- [ドイツ の最新 ニュース を日本語で毎日お届け -](http://www.newsdigest.de/newsde/news/news/) — ドイツ発ニュース · ECB理事候補に独仏経済学者ら · コメルツ銀買収条件で基本合意＝ドイツ政府とイタリア金融大手 · 独DHLが専用貨物サービス開始＝インド・中国・欧州結び週 ...
+- [ドイツ の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%89%E3%82%A4%E3%83%84.html) — 最新ニュース · 交渉決裂のおそれも、議論続くCOP31 会場閑散と 【随時更新】 · 堂安、町田はフル出場 サッカーのドイツ1部 · 「別班」と現実の落差 日本のインテリジェンス ...
+- [「 ドイツ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000225) — トランプ大統領 アジア訪問終えホワイトハウスに 各国の反応 は · 独首相「ヤルタ形式平和もたらさず」 大国外交をけん制 · ドイツBMW 2018年以来の24時間ストライキ実施へ.
+- [ドイツ - BBC ニュース](https://www.bbc.com/japanese/topics/c7zp51608w0t) — ドイツ元情報機関トップを逮捕 スパイ活動や国家反逆の疑い . 2026年10月7日. A member of the Nobel Committee annoucing the prize. 脳の内部の動きをを解明した米独3 ...
+- [「 ドイツ 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/germany/) — 2026. 11/19: ゴッホの「花咲く栗の木」、300億円で落札 ナチス巡る混乱もオークション記録更新; 11/16: 世界の「汚職度」ランキング、米国が過去最低順位に転落 ...
+- [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相「ばかげている」発言で米次官に謝罪 ウクライナ巡り · 欧州首脳「ヤルタ方式で平和訪れぬ」 ウクライナ巡り米中ロ会談に警戒 · 中国も米国も信じぬ欧州 メルツ ...
+- [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — ビジネスニュース・レポート: ビジネス短信 · 地域・分析レポート · 調査レポート ... ドイツ主要研究所が春季経済予測を一斉発表 、中東情勢の影響評価に濃淡(米国 ...
+- [Germany：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Germany) — インファンティーノ氏は「独裁者」 前FIFA会長ブラッター氏が批判 · ドイツ 連邦軍でセクハラまん延、特に階級の低い女性兵士の被害が深刻 · 独軍、中国製ドローンの使用を ...
+
+### Russia (English)(検索日時 / searched at: 2026-11-22)
+
+Tags: `Russia (English)` `2026-11`
+
+- [What in JavaScript can make both contentEditable and textarea unable to recieve any input?](https://stackoverflow.com/questions/26450780) — - box-1 ["Russia Today", "http://rt.com/"], ["Reuters", "http://www.reuters.com/"], ["Al Jazeera", "http://america.aljazeera.com/"], ["The Raw Story", "http://rawstory.com/"], &hellip; http://whatshouldireadnext.com/"], ["Which Book", "http://www.openingthebook.com/whichbook/"], ["TechRaptor", "http://techraptor.net/"], ["TechCrunch", "http://techcrunch.com/"], ["Gamer Headlines &hellip;
+- [Russia Beyond](https://en.wikipedia.org/wiki/Russia_Beyond) — Russia Beyond (formerly Russia Beyond The Headlines), rebranded as Gateway to Russia in December 2024, is a Russian multilingual project operated by RT (formerly Russia Today) parent ANO TV-Novosti, founded by the Russian state media agency RIA Novosti.
+- [RT (TV network)](https://en.wikipedia.org/wiki/RT_(TV_network)) — RT, formerly Russia Today (Russian: Россия Сегодня, romanized: Rossiya Segodnya), is a Russian state-controlled international news television network funded by the Russian government. It operates pay television and free-to-air channels directed to audiences outside of Russia, as well as providing Internet content in Russian, English, Spanish, French, German, Arabic, Portuguese and Serbian.
+- [Propaganda in Russia](https://en.wikipedia.org/wiki/Propaganda_in_Russia) — Propaganda in Russia promotes views, perceptions, or agendas of the government of Russia. The media include state-run outlets and online technologies, and may involve using "Soviet-style 'active measures' as an element of modern Russian 'political warfare.'" Notably, contemporary Russian propaganda promotes the cult of personality of Vladimir Putin and positive views of Soviet history.
+- [How do i Parsing JSON in Php Seprate and loop through data](https://stackoverflow.com/questions/50705864) — That should worry Trump.", "description": "More legal pressure on Manafort=more chance he'll flip in the Russia investigation.", "url": "https://www.washingtonpost.com/news/the-fix &hellip; php $json = file_get_contents('https://newsapi.org/v2/top-headlines? &hellip;
+- [Failed to pass Service data to the Component](https://stackoverflow.com/questions/52760901) — { Observable, of } from 'rxjs'; import { switchMap } from 'rxjs/operators'; @Injectable() export class SportsService implements OnInit { sports: any = []; _urll = 'https://newsapi.org/v2/top-headlines &hellip; 'Bentley' on 25th birthday", "description": "Off the field News: India cricketer Hardik Pandya, who on Thursday turned 25, introduced a new addition to his family - 'Bentley' - through social &hellip;
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [Show HN: Forty.News – Daily news, but on a 40-year delay](https://forty.news) — Hacker News · 443 points · 180 comments · 2025-11-22
+
