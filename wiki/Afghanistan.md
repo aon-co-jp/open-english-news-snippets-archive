@@ -1497,3 +1497,24 @@ Tags: `Tajikistan (English)` `2026-11`
 - [Geographical distribution of Russian speakers](https://en.wikipedia.org/wiki/Geographical_distribution_of_Russian_speakers) — This article details the geographical distribution of Russian speakers. After the dissolution of the Soviet Union in 1991, the status of the Russian language often became a matter of controversy.
 - [List of earthquakes in 2026](https://en.wikipedia.org/wiki/List_of_earthquakes_in_2026) — This is a list of earthquakes in 2026. Only earthquakes of magnitude 6 or above are included, unless they result in significant damage and/or casualties.
 
+### Afghanistan(検索日時 / searched at: 2026-11-23)
+
+Tags: `Afghanistan` `2026-11`
+
+- [افغانستان](https://ps.wikipedia.org/wiki/%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86) — افغانستان په رسمي توګه د افغانستان اسلامي امارت په غرونو کې کلابند يو غرنيز او سمسور هېواد دی چې د "۴۳ میلیونه" وګړو او «۶۵۲۸۶۴» کیلومتره مربع ځمکي په درلودلو سره د آسيا په زړه کي پروت دی. په ټولیزه توګه دا هېواد د منځنۍ اسيا يوه ستراتېژیکه سیمه ګڼل کېږي چي په لوېدیځ کي له ایران، په شمال لوېدیځ کي له ترکمنستان، په شمال کي له ازبکستان او تاجکستان او په شمال ختیځ کي له چین سره ګډې پولې لري.
+- [د لنډې کيسې تاريخچه](https://ps.wikipedia.org/wiki/%D8%AF_%D9%84%D9%86%DA%89%DB%90_%DA%A9%D9%8A%D8%B3%DB%90_%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%DA%86%D9%87) — 
+- [انځور خبريالي](https://ps.wikipedia.org/wiki/%D8%A7%D9%86%DA%81%D9%88%D8%B1_%D8%AE%D8%A8%D8%B1%D9%8A%D8%A7%D9%84%D9%8A) — د ليكلو توكيو ترڅنگ د انځورونو خپراوى د انځوريزې خبريالۍ په نوم ياديږي. په اوسني پرمختللي پېر كې انځورخبريالي دډله یيزو رسنيو يوه بايده برخه گرځېدلې او له انځور پرته د ورځپاڼو خپراوى ناشونى او بيخونده برېښي.
+
+### France (Japanese)(検索日時 / searched at: 2026-11-23)
+
+Tags: `France (Japanese)` `2026-11`
+
+- [フランス - BBC ニュース](https://www.bbc.com/japanese/topics/cjgn7kqz4jpt) — フランス · パリ警察、一部の高校・大学の周囲で5日間の抗議禁止 · フランス、スーパーの冷蔵庫へのサイバー攻撃でイランを非難 · 【解説】抗議活動で勢いづく欧州の若者たち ...
+- [フランス の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%95%E3%83%A9%E3%83%B3%E3%82%B9.html) — フランス . 最新 ニュース . 閉幕への会議6時間超、脱化石燃料めぐり反対続出【COP31報告】 · COP31で閉幕に向けた全体会合の一部は、日付を越え · 閉幕への会議6時間超、脱 ...
+- [「 フランス 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000293) — 「フランス」ニュース一覧 · ウクライナ支援の有志連合 初の軍事演習をメディアに公開 · 仏大統領選元首相立候補表明 極右ルペン氏支持トップ · 東大総長選どうなった？ · FIFA ...
+- [「 フランス 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/france/) — 2026. 11/15: サザビーズによるピサロ絵画の売却、パリの裁判所が無効に; 11/10: 冷蔵庫狙った「前代未聞の」サイバー攻撃、 フランス がイランを非難; 11/06: フランス ...
+- [ニュース ・社会問題 Archives - OVNI| オヴニー・パリの新聞](https://ovninavi.com/category/mieux-connaitre-la-france/actualites/) — 今 フランス で起きていることをわかりやすく解説。 ニュース · フランス の出来事 · 三面記事 · 経済 · 抵抗する人 · 社会ラボ.
+- [今日 の フランス](https://www.parisettoi.fr/news/) — 今日 の フランス · 今日の フランス . 2026.11.13. 宿泊・外食業、一連の抗議行動の煽りで客足遠のく · 2026.11.13. 2025年所得状況：所得税納付世帯が占める割合は48％ ...
+- [French：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/French) — 仏銀行にサイバー攻撃、約177億円流出 顧客に損失なし . French. 欧州の天然ガス備蓄、2013年以来の低水準 IEA · 仏で3週連続の物価高抗議デモ 一部過激化、火炎瓶 ...
+- [「 フランス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20163) — 在日フランス商工会議所のシュシャン会頭「日本をアジア事業のハブに」 · 米中の論理にあらがうフランス マクロン大統領、日韓訪問3つの狙い · 日仏の原子力協力50年、核 ...
+
