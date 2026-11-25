@@ -1331,3 +1331,42 @@ Tags: `Russia (English)` `2026-11`
 - [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
 - [Show HN: Forty.News – Daily news, but on a 40-year delay](https://forty.news) — Hacker News · 443 points · 180 comments · 2025-11-22
 
+### Switzerland(検索日時 / searched at: 2026-11-24)
+
+Tags: `Switzerland` `2026-11`
+
+- [Heute (Fernsehsendung)](https://de.wikipedia.org/wiki/Heute_(Fernsehsendung)) — heute ist eine Nachrichtensendung des Zweiten Deutschen Fernsehens (ZDF) mit aktuellen Meldungen des Tages aus den Bereichen Politik, Wirtschaft, Wissenschaft, Kultur, Gesellschaft, Sport und Wetter. Die Hauptausgabe der heute-Sendung wird täglich um 19:00 Uhr ausgestrahlt.
+- [Schweiz](https://de.wikipedia.org/wiki/Schweiz) — Die Schweiz (schweizerdeutsch Schwiz, französisch [sɥis(ə)], italienisch [ˈzvitːsera], rätoromanisch [ˈʒviːtsrɐ] oder [ˈʒviːtsʁɐ], lateinisch Helvetia), amtlich Schweizerische Eidgenossenschaft (schweizerdeutsch Schwizerischi Eidgnosseschaft, französisch Confédération suisse, italienisch Confederazione Svizzera, rätoromanisch , lateinisch Confoederatio Helvetica), ist ein föderalistischer, demokratischer Staat in Mitteleuropa. Er grenzt im Norden an Deutschland, im Osten an Österreich und Liechtenstein, im Süden an Italien und im Westen an Frankreich.
+- [Freiburger Nachrichten](https://de.wikipedia.org/wiki/Freiburger_Nachrichten) — Die Freiburger Nachrichten sind eine regionale Schweizer Tageszeitung in Freiburg im Üechtland.
+- [Heute-journal](https://de.wikipedia.org/wiki/Heute-journal) — Das heute-journal ist ein Nachrichtenmagazin des ZDF.
+- [Neue Zürcher Nachrichten](https://de.wikipedia.org/wiki/Neue_Z%C3%BCrcher_Nachrichten) — Die Neuen Zürcher Nachrichten (NZN) waren eine katholische Tageszeitung, die von 1904 bis 1991 in der Stadt Zürich erschien. Die Zeitung stand der 1896 in Zürich gegründeten Christlichsozialen Partei (heutige Christlichdemokratische Volkspartei, CVP) nahe und unterstützte den Aufbau und die Festigung der katholischen Verbände und der christlich-sozialen Parteiarbeit rund um Zürich.
+- [Nationale Mythen der Schweiz](https://de.wikipedia.org/wiki/Nationale_Mythen_der_Schweiz) — Als nationaler Mythos (im Sinne einer «Erzählung mit einem kollektiven, sinn- und identitätsstiftenden Wirkungspotential») der Schweiz wird oft die «immerwährende Neutralität» (auch «immerwährende bewaffnete Neutralität») bezeichnet; daneben auch die «direkte Demokratie», die «humanitäre Tradition», das Schweizer Réduit und die Verteidigungsbereitschaft im Zweiten Weltkrieg, teilweise auch mundänere Institutionen wie der Schweizer Franken, das (ehemalige) Bankgeheimnis, die Bundesbahnen und die (ehemaligen Institutionen) Post und Swissair, die als Ausdruck «nationaler» Charakteristika wie Pünktlichkeit oder Stabilität verstanden werden. Als nationale Gründungsmythen gelten die historiographischen Legenden zu Entstehung und Wachstum der Alten Eidgenossenschaft im 14.
+- [Basler Zeitung](https://de.wikipedia.org/wiki/Basler_Zeitung) — Die Basler Zeitung (kurz BaZ) ist eine Schweizer Tageszeitung mit Sitz in Basel. Sie ging im Januar 1977 aus der Fusion der linksliberalen National-Zeitung mit den bürgerlich-konservativen Basler Nachrichten hervor und wird von den Basler Zeitung Medien herausgegeben.
+- [Schweizer Radio DRS](https://de.wikipedia.org/wiki/Schweizer_Radio_DRS) — Das Schweizer Radio DRS (Radio der deutschen und rätoromanischen Schweiz (SR DRS)) war zusammen mit dem Schweizer Fernsehen (SF) eines der beiden ehemaligen Schweizer Medienunternehmen, die am 1. Januar 2011 in der Unternehmung Schweizer Radio und Fernsehen (SRF) vereint wurden.
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-24)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします。](https://japanese.joins.com/) — アジア株式市場に「ブラックフライデー」… 韓国 株価、年初来上昇率116％から15％に急落 · 「欧州抜きで欧州安保は…」 · 「金正恩氏と会う可能性ある」と言っていたトランプ氏 ...
+- [「 韓国 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10085) — 韓国大統領、外相に任雄淳氏指名 情報機関トップは初の女性起用へ · 金正恩氏、トランプ氏の誘いに動かず 揺らぐ米朝交渉の主導権 · 韓国の教育相が辞任 大学入試の不正対策 ...
+- [聯合 ニュース](https://jp.yna.co.kr/) — 韓国 統一地方選で投票率改ざんの疑い 選管職員1人の逮捕状発付 · ［速報］北朝鮮航空機とみられる飛行体が 韓国 領空を侵犯か · 韓国主要 紙の朝刊ヘッドライン（11月24日）.
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 国防部 ロシア軍機の領空接近で国防武官に抗議＝外交部は再発防止要求. 11/24(火) 16:59. 韓国 株が大幅反発 6.3％高＝エヌビディアCEO復帰受け. 11/24(火) 16:53.
+- [「 韓国 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000376) — ロシア軍機が韓国の防空識別圏に進入 韓国が抗議 · 高市首相 韓国国会議長と面会“来年1月のイ大統領訪日に期待” · 韓国イ政権 重要閣僚交代へ 対米関係立て直しねらいか.
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [最新の 韓国ニュース - ライブドアニュース - Livedoor](https://news.livedoor.com/article/category/44/) — BTOB・ソンジェ、主演ドラマ制作発表会の前日にあごを縫うケガ…起立性低血圧で転倒. スポーツソウル日本版; 11月24日 18時17分. 「裏方なのに目立ちすぎ」ALPHA DRIVE ...
+- [ハンギョレ新聞 : 日文版](https://japan.hani.co.kr/) — 韓国 、国家安保室長以外の外交・安保陣容を「刷新」…韓米対立の突破口への布石 李在明（イ・ジェミョン）大統領は23日、国家情報院長と外交部長官、統一部長官をすべて交代 ...
+
+### China (Japanese)(検索日時 / searched at: 2026-11-24)
+
+Tags: `China (Japanese)` `2026-11`
+
+- [最新 中国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/china/) — 中国 関連の最新 ニュース を24時間体制で多面的に展開。 中国 の内政や外交、経済、社会、企業、災害関連についての ニュース を幅広く発信しています。
+- [中国 ・台湾の最新 ニュース ・特集 - 日本経済新聞](https://www.nikkei.com/international/china-taiwan/) — 中国、上海市トップの陳吉寧氏を調査 「重大な規律違反」 · 小米、7〜9月の純利益68%減 メモリー高騰でスマホ出荷絞る · ファーウェイ、25年の特許収入3割増の1300億円 AI ...
+- [中国 の ニュース ・速報|47NEWS（よんなな ニュース ）](https://www.47news.jp/world/china) — 中国 の ニュース ・速報. 【速報】ソロモン、 中国 との安保協定更新終了方針か. 17時09分. 共同通信. 米エヌビディアのジェンスン・フアン氏. 中国 紙「スパイ疑惑に結論」 ...
+- [中国 ・習近平政権 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=Xi_Jinping) — 上海市トップが失脚 陳吉寧氏、規律違反で ―中国(11月24日 22:49) · 中国側の警戒解けず 半導体調達網、米が締め付け―フアン氏復帰も(11月24日 21:22) · タラップ故障の可能性 ...
+- [中国 ・台湾 < 国際 - 産経 ニュース](https://www.sankei.com/world/china/) — 中国 で上海市トップを規律・法律違反で調査、失脚か 党最高指導部入り有望視されるポスト · 高市首相のタラップ段差、 中国 側から事前通告なし 金杉駐 中国 大使が降機直前に ...
+- [「 中国 」 ニュース 一覧 | NHK ニュース - NHK ONE](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000215) — 「 中国 」 ニュース 一覧 ; ICC赤根所長 “管轄権厳格に守り活動 世界のために努力”. 11月24日 19:42 ; 【詳しく】エヌビディアCEO フアン氏が復帰へ 水面下の動きは. 11月24日 ...
+- [中華人民共和国の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD.html) — 最新 ニュース · 女の悲しみ伝える 中国 の「女文字」 33年通い続ける研究者の思い · 習氏、14カ国と首脳会談、台湾問題で布石 日本など4カ国非開催 · 習氏、14カ国と首脳会談 ...
+- [「 中国 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/china/) — 中国、政府職員に死刑判決 外国のスパイに国家機密引き渡した罪 11/24; 西太平洋での有事シナリオ、主要部隊の展開速度に懸念 米陸軍監査機関が報告 11/24; イラン、女性 ...
+
