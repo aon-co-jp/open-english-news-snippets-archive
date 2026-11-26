@@ -1305,3 +1305,61 @@ Tags: `Switzerland (Japanese)` `2026-11`
 - [「 スイス 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20148) — 浜松ホトニクス、スイスにレーザー新工場 医療分野の需要に対応 · 福島県のワイナリー2社がスイスへ輸出 欧州への定着目指す · ソフトバンクGとABB、ロボット企業の中国事業 ...
 - [スイス の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/68179/) — 新着一覧 · 中野ブロードウェイで盗まれた高級腕時計、宅配便で店に戻る… · 故・海野教授イグ・ノーベル受賞、後輩ら歓喜... · 中野ブロードウェイでまた時計盗、4600万円 ...
 
+### Cambodia(検索日時 / searched at: 2026-11-25)
+
+Tags: `Cambodia` `2026-11`
+
+- [Kun Khmer](https://en.wikipedia.org/wiki/Kun_Khmer) — Kun Khmer (Khmer: គុនខ្មែរ [kun kʰmae] lit. 'Khmer martial arts'), or Pradal Serey (Khmer: ប្រដាល់សេរី [prɑɗal seːrəj] lit. 'free boxing'), is a combat sport that originated in Cambodia. The sport consists of stand up striking and clinch fighting, where the objective is to knock an opponent out, force a technical knockout, or win a match by points.
+
+### Japan (English)(検索日時 / searched at: 2026-11-25)
+
+Tags: `Japan (English)` `2026-11`
+
+- [Margin on a flex item pushes another flex item instead](https://stackoverflow.com/questions/69353901) — DOCTYPE html> <html> <head> <link rel = "shortcut icon" href = "images/icon.png"> <title>News: U.S and World News Headlines: VPR</title> <link rel = "stylesheet" type = "text/css" href = &hellip; </h3> </div> <div class = "item third-story"> <h4>Japan</h4> <h3>Japan Animation Industry Sales Fall 1.8% In 2020,<br> First Drop In Decade. &hellip;
+- [Japanese newspapers](https://en.wikipedia.org/wiki/Japanese_newspapers) — Japanese newspapers (新聞 shinbun, or older spelling shimbun), similar to their worldwide counterparts, run the gamut from general news-oriented papers to special-interest newspapers devoted to economics, sports, literature, industry, and trade. Newspapers are circulated either nationally, by region (such as Kantō or Kansai), by each prefecture, or by each city.
+- [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
+- [How best create parent child relationship in Elasticsearch](https://stackoverflow.com/questions/51523980) — One contains news articles and the other comments about the same articles. I'd like to create a parent-child relationship between each article and that articles comments except for headline. &hellip; A typical message containing, entity_name, source_name, headline, which comes through Logstash looks like this: "Thomson Reuters Corp.","Japan Today","Trump claims victory after forcing NATO crisis &hellip;
+- [Toutiao](https://en.wikipedia.org/wiki/Toutiao) — Toutiao (头条, "headlines") or Jinri Toutiao (今日头条, "Today's Headlines") is a Chinese news and information content platform, a core product of the China-based company ByteDance. By analyzing the features of content, users and users' interaction with content, the company's algorithm models generate a tailored feed list of content for each user.
+- [News](https://en.wikipedia.org/wiki/News) — News is information about current events. This may be provided through many different media: word of mouth, printing, postal systems, broadcasting, electronic communication, or through the testimony of observers and witnesses to events.
+- [List of news television channels](https://en.wikipedia.org/wiki/List_of_news_television_channels) — 
+- [BBC News (British TV channel)](https://en.wikipedia.org/wiki/BBC_News_(British_TV_channel)) — The BBC News channel is a British free-to-air public broadcast television news channel owned and operated by the BBC. The channel is based at and broadcasts from Broadcasting House in the West End of London from which it is anchored during British daytime, with overnight broadcasts anchored from Washington, D.C. and Singapore. It was launched as BBC News 24 on 9 November 1997 at 17:30, as part of the BBC's foray into digital domestic television channels, becoming the first competitor to Sky News, which had been running since 1989.
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-25)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- [タイ の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/thailand) — タイ 経済の詳細やビジネスに直結する新着 ニュース を掲載。現地の最新動向を一目で把握できます。法律、会計、労務などの特集も多数掲載。
+- [newsclip.be | " タイ ニュース "”タイランド ニュース ”"バンコク ...](https://newsclip.be/) — タイ・エアアジアXの成田発便遅延、運輸省が航空会社に適切な補償を指導 · タイ洪水被害2100億円相当、農業が最大打撃 エルニーニョの干ばつにも警戒 · バンコクでのバラバラ ...
+- [「 タイ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/10084) — タイ王室系金融SCBX、デジタル銀行に参入 5年で300万人獲得目標 · タイ中銀、政策金利3会合連続据え置き 景気減速対応が最優先に · タイ不動産大手、伊高級ホテル買収 ...
+- [時事速報：アジア／バンコク版－時事通信社](https://jijiweb.jiji.com/info/sample/bangkok.html) — 《各地の タイ 関連 ニュース 》. 小鵬の「G9L」、 タイ とインドネシアに投入＝現地生産・販売網拡充―中国; 正恩氏「友好国と協力強化」＝北朝鮮、外交多極化に意欲.
+- [タイニュース | バンコク週報](https://bangkokshuho.com/category/thainews/) — 【社会】 タイ 北部の河川でヒ素汚染、政府が12月2日に150キロを管理区域に指定 · 2026-11-24. 【不動産】 タイ の注文住宅市場が2130億バーツへ、地方が8割で高級住宅も ...
+- [バンコクの最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%90%E3%83%B3%E3%82%B3%E3%82%AF.html) — 最新ニュース · 英国、ミ ャ ンマー国軍に制裁 資産凍結や渡航禁止 ジェノサイド判決 · 最優秀監督に黒田氏 サッカー · バイクの免許、初めて発行？ · 高島屋、好調の背景 円安で ...
+- [「 タイ 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000386) — 「タイ」ニュース一覧 · 日本政府がミャンマー避難民の就労を支援へ · 「ルフィ」事件 詐欺グループトップ 拠点立ち上げ経緯明かす · “ニセ警察官詐欺”に生成AIの影 · 特殊詐欺 ...
+- [タイランド ニュース | タイランドハイパーリンクス：Thai Hyper](https://www.thaich.net/news) — タイ 版「ドラゴンボール超」孫悟空役に71歳のベテラン声優が復帰、誹謗中傷で約100人に法的措置へ · タイ の 今日 は何の日？ 11月25日は「ワチラーウットの日」 · ムック ...
+
+### South Korea (Japanese)(検索日時 / searched at: 2026-11-25)
+
+Tags: `South Korea (Japanese)` `2026-11`
+
+- [聯合 ニュース](https://jp.yna.co.kr/) — 孫正義氏 韓国 ・大邱で先祖の墓参り＝家族ら伴い非公開で · ソウル地下鉄のスト回避 始発から通常運行＝賃金交渉妥結 · 韓国主要 紙の朝刊ヘッドライン（11月25日） · 芸能 ...
+- [最新の 韓国ニュース - ライブドアニュース - livedoor](https://news.livedoor.com/article/category/44/) — 韓国 に関連する最新の ニュース をお届けします。
+- [中央日報 - 韓国 の最新 ニュース を日本語でサービスします。](https://japanese.joins.com/) — 揺れる 韓国 証券市場 ジェンスン・フアン氏の帰還に安堵する 韓国 企業…「もう ... 今日 が初出勤」…社員ら歓声 · 中国国家秘密保護局「政府幹部にスパイ容疑で死刑判決 ...
+- [韓国 ・朝鮮半島に関する ニュース と解説 - 日本経済新聞](https://www.nikkei.com/international/korea/) — 韓国 と北朝鮮に関する ニュース と解説、特集をまとめました。日韓関係やサムスン、現代自動車などの 韓国 企業、北朝鮮のミサイル問題などの ニュース を読めます。
+- [朝鮮日報オンライン：Chosunonline.com](https://www.chosunonline.com/) — 韓国 最大の発行部数を誇る朝鮮日報の日本語 ニュース サイト。朝鮮日報の 主要 記事をはじめ、社会、国際、北朝鮮、政治、経済、スポーツ、芸能など、 韓国 の幅広い ニュース を
+- [聯合 ニュース の記事一覧 - Yahoo!ニュース](https://news.yahoo.co.jp/media/yonh) — 韓国 外相 オマーンにアデン湾派遣部隊の活動協力要請 · 李大統領 アデン湾部隊の活動範囲拡大に「戦争不介入、ホルムズは範囲外」 · 韓国 きょうの ニュース （11月25日）.
+- [ハンギョレ新聞 : 日文版](https://japan.hani.co.kr/) — 韓国 、国家安保室長以外の外交・安保陣容を「刷新」…韓米対立の突破口への布石 李在明（イ・ジェミョン）大統領は23日、国家情報院長と外交部長官、統一部 ...
+- [韓国 | 最新 韓国ニュース | ロイター - Reuters](https://www.reuters.com/jp/world/korea/) — 韓国 ; 北朝鮮が初のAIチャットボット公開か、米シンクタンク分析 · 北朝鮮の金正恩総書記 ; 北朝鮮、寧辺の核施設にウラン濃縮施設増設＝IAEA · 北朝鮮・寧辺の核関連 ...
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-25)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- [ミャンマー 最新 ニュース ・情報誌－MYANMAR JAPON](https://myanmarjapon.com/) — 【国際】【経済】 · ミャンマー産アボカド、中国への正式輸出に向け準備進む ; 【国際】【経済】 · ミャンマー、韓国の国際コーヒー見本市で公式招待国に選出 ; 【政治】 · 民主 ...
+- [「 ミャンマー 」の ニュース 一覧 - 日本経済新聞](https://www.nikkei.com/regions/10101) — マレーシア副首相、ロヒンギャ難民のトルコへの移住巡る投稿を削除 · マレーシア、ロヒンギャ難民1万人をトルコへ 移住計画決定 · マレーシアがミャンマー人送還、親軍政権に ...
+- [ミャンマー の経済 ニュース ・ビジネス情報 - NNA ASIA](https://www.nna.jp/countries/myanmar) — ニュースヘッドライン · マウビンで天然ガス増産、砂層から試験採取 · 商業副大臣、アセアンと中国の協力深化呼びかけ · 武装勢力の攻撃による死者、5年間で8千人超 · 親軍 ...
+- [「 ミャンマー 」 ニュース 一覧 - NHKニュース](https://news.web.nhk/newsweb/pl/news-nwa-topic-nationwide-E0000000207) — ミャンマー政権側 ICJ判決に「不公平」と反発 · ロヒンギャ迫害はジェノサイドと認定 国際司法裁判所が判決 · ミャンマー政権トップ「ASEANとの関係見直す」 · 日本政府が ...
+- [ミャンマー 連邦の関連情報 - フォロー - Yahoo! JAPAN](https://follow.yahoo.co.jp/themes/0b2a6a8f9979b8202346/) — 3:22 · 2:37 · ミャンマー、外交方針見直しも ICJ判決受け解決圧力 · 【ミャンマー】親軍政権、徴兵制度巡る不正で199人に法的措置 · ICJ判決、14カ国が追認 ミャンマーの ...
+- [ミャンマー 情勢 関連 ニュース ：時事ドットコム](https://www.jiji.com/jc/v7?id=202102Myanmar) — 《 ミャンマー 情勢の最新 ニュース 、解説記事一覧は下に》. ICJ判決、14カ国が追認 ミャンマー のジェノサイド巡り(11月24日 14:26). ミャンマー によるロヒンギャ迫害 ...
+- [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
+- [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 2021/5/7 - 朝日新聞の、ミャンマーに関するニュースや速報記事一覧 です。ミャンマーに関する現状や背景を、わかりやすくお伝えします。
+
