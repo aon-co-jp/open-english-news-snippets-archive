@@ -1491,3 +1491,15 @@ Tags: `Taiwan (English)` `2026-11`
 - [Yan Limeng and Guo Wengui as anti-communist swindlers](https://news.ycombinator.com/item?id=36135865) — Hacker News · 1 points · 0 comments · 2023-05-31
 - [Taiwanese Mandarin](https://en.wikipedia.org/wiki/Taiwanese_Mandarin) — Taiwanese Mandarin, natively referred to as Guoyu (Chinese: 國語; pinyin: Guóyǔ; Zhuyin Fuhao: ㄍㄨㄛˊ ㄩˇ; lit. 'national language') or Huayu (Chinese: 華語; pinyin: Huáyǔ; Zhuyin Fuhao: ㄏㄨㄚˊ ㄩˇ; lit.
 
+### Taiwan(検索日時 / searched at: 2026-11-26)
+
+Tags: `Taiwan` `2026-11`
+
+- (no items / 記事なし)
+
+### Iran (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Iran (English)` `2026-11`
+
+- (no items / 記事なし)
+

@@ -1300,3 +1300,15 @@ Tags: `Philippines` `2026-11`
 - [List of longest-running Philippine television series](https://en.wikipedia.org/wiki/List_of_longest-running_Philippine_television_series) — This is a list of the longest-running Philippine television series, ordered by number of years the show has been aired. This list includes only programs aired ten years and above.
 - [1987 in Philippine television](https://en.wikipedia.org/wiki/1987_in_Philippine_television) — The following is a list of events affecting Philippine television in 1987. Events listed include television show debuts, finales, cancellations, and channel launches, closures and rebrandings, as well as information about controversies and carriage disputes.
 
+### Philippines(検索日時 / searched at: 2026-11-26)
+
+Tags: `Philippines` `2026-11`
+
+- (no items / 記事なし)
+
+### Austria (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Austria (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+

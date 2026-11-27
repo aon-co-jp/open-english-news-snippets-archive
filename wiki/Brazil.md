@@ -1665,3 +1665,21 @@ Tags: `Russia (English)` `2026-11`
 - [Weekend Today](https://en.wikipedia.org/wiki/Weekend_Today) — Weekend editions of Today, an American morning news and talk program that airs daily on NBC, began with the launch of the Sunday edition of the program on September 20, 1987. After NBC expanded Today to seven days a week in the 1990s, the name Weekend Today was adapted primarily for promotional purposes.
 - [APEC China 2026](https://en.wikipedia.org/wiki/APEC_China_2026) — The APEC China 2026 was a year-long hosting of the Asia-Pacific Economic Cooperation (APEC) meetings, which concluded with the APEC Economic Leaders' Meeting in November 2026. It will be the third time China hosted the summit, having previously hosted in 2001 and 2014.
 
+### Brazil(検索日時 / searched at: 2026-11-26)
+
+Tags: `Brazil` `2026-11`
+
+- (no items / 記事なし)
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Taiwan (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Thailand (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Thailand (English)` `2026-11`
+
+- (no items / 記事なし)
+

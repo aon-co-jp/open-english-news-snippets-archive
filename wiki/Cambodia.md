@@ -1363,3 +1363,21 @@ Tags: `Myanmar (Japanese)` `2026-11`
 - [ミャンマー 最新情報 - GIC](https://gicjp.com/myanmar-information) — こちらのページでは、 ミャンマー の最新 ニュース 、政府方針の影響分析、そして現地ネットワークを活用した独自の視点で、他では得られない価値ある情報をお届けします。
 - [ミャンマー の最新 ニュース - 朝日新聞](https://www.asahi.com/topics/word/%E3%83%9F%E3%83%A3%E3%83%B3%E3%83%9E%E3%83%BC.html) — 2021/5/7 - 朝日新聞の、ミャンマーに関するニュースや速報記事一覧 です。ミャンマーに関する現状や背景を、わかりやすくお伝えします。
 
+### Cambodia(検索日時 / searched at: 2026-11-26)
+
+Tags: `Cambodia` `2026-11`
+
+- (no items / 記事なし)
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Myanmar (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Myanmar (English)` `2026-11`
+
+- (no items / 記事なし)
+

@@ -1857,3 +1857,39 @@ Tags: `Germany (Japanese)` `2026-11`
 - [ドイツ - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/de/) — EU首脳、AIで初の本格協議、技術主権へ大型投資の必要性で一致(米国、EU、イタリア、英国、 ドイツ 、フランス、ポーランド、ロシア、ウクライナ). 2026年11月24日.
 - [「 ドイツ 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20157) — ドイツ国防相「ばかげている」発言で米次官に謝罪 ウクライナ巡り · 欧州首脳「ヤルタ方式で平和訪れぬ」 ウクライナ巡り米中ロ会談に警戒 · 中国も米国も信じぬ欧州 メルツ ...
 
+### South Africa(検索日時 / searched at: 2026-11-26)
+
+Tags: `South Africa` `2026-11`
+
+- (no items / 記事なし)
+
+### China (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `China (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Switzerland (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+

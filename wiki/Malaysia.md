@@ -1460,3 +1460,15 @@ Tags: `Brazil (Japanese)` `2026-11`
 - [Brazil：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Brazil) — Brazil. ノリスがサンパウロGP制覇、メルセデスはコンストラクターズタイトル獲得 · ブラジル大統領選敗北のフラビオ氏、米逃亡は「迫害」が理由と主張 ...
 - [ブラジル - BBC ニュース](https://www.bbc.com/japanese/topics/c5qvpx7pjwzt) — ブラジル大統領選で敗れたボルソナロ氏、国外逃亡を否定 米マイアミ到着後. 2026年 ... BBCニュースを他言語で読む; Do not share or sell my info. © 2026 BBC. BBC ...
 
+### Malaysia(検索日時 / searched at: 2026-11-26)
+
+Tags: `Malaysia` `2026-11`
+
+- (no items / 記事なし)
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- (no items / 記事なし)
+

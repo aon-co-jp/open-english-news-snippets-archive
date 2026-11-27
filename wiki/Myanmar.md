@@ -1644,3 +1644,15 @@ Tags: `Iran (English)` `2026-11`
 - [2026 Strait of Hormuz crisis](https://en.wikipedia.org/wiki/2026_Strait_of_Hormuz_crisis) — Shipping traffic through the Strait of Hormuz, a major maritime choke point for world energy trade, has been largely blocked by Iran since 28 February 2026, when the United States and Israel launched an air war against Iran. In retaliation, the Iranian Revolutionary Guard Corps (IRGC) issued warnings forbidding passage through the strait, boarded and attacked merchant ships, and laid sea mines in the strait.
 - [Economic impact of the 2026 Iran war](https://en.wikipedia.org/wiki/Economic_impact_of_the_2026_Iran_war) — The 2026 Iran war, including the closure of the Strait of Hormuz, has led to what the International Energy Agency has characterized as the "largest supply disruption in the history of the global oil market". The conflict has echoed the 1970s energy crisis through acute supply shortages, currency volatility, inflation and heightened risks of stagflation and recession.
 
+### Myanmar(検索日時 / searched at: 2026-11-26)
+
+Tags: `Myanmar` `2026-11`
+
+- (no items / 記事なし)
+
+### Iran (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Iran (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+

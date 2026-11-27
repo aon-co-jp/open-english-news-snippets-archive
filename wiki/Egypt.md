@@ -1905,3 +1905,27 @@ Tags: `Italy (Japanese)` `2026-11`
 - [イタリア - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/europe/it/) — イタリア · 2026年11月24日. EU首脳、AIで初の本格協議、技術主権へ大型投資の必要性で一致(米国、EU、 イタリア 、英国、ドイツ、フランス、ポーランド、ロシア、ウクライナ).
 - [「 イタリア 」の ニュース 一覧 - 日本経済新聞](https://r.nikkei.com/regions/20138) — GCAP次期戦闘機開発、ドイツ参画にイタリア「反対」 FT報道 · 中国も米国も信じぬ欧州 メルツ独首相が語った「日本との絆」 · ドイツ国防相、次期戦闘機構想で日英伊への合流 ...
 
+### Egypt(検索日時 / searched at: 2026-11-26)
+
+Tags: `Egypt` `2026-11`
+
+- (no items / 記事なし)
+
+### Germany (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Germany (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### South Korea (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `South Korea (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### France (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `France (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+

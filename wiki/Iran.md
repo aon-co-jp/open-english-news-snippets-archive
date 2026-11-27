@@ -2166,3 +2166,21 @@ Tags: `Afghanistan (Japanese)` `2026-11`
 - [「 アフガニスタン 」の ニュース - CNN.co.jp](https://www.cnn.co.jp/topic/afghanistan/) — 西太平洋での有事シナリオ、 主要 部隊の展開速度に懸念 米陸軍監査機関が報告 11/24; イラン、女性歌手ら5人に鞭打ち刑執行か ヒジャブ非着用のパフォーマンスが理由と ...
 - [アフガニスタン の ニュース ・読売新聞の最新記事](https://www.yomiuri.co.jp/keyword/29272/) — 新着一覧 · クリケットの初戦は強豪・アフガニスタンに完敗 、主将が語った「今の日本に足りないもの」… · 佐野市に本拠を構える「クリケット協会」、知られざる日本の現在地 ...
 
+### Iran(検索日時 / searched at: 2026-11-26)
+
+Tags: `Iran` `2026-11`
+
+- (no items / 記事なし)
+
+### Afghanistan (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Afghanistan (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Ukraine (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Ukraine (English)` `2026-11`
+
+- (no items / 記事なし)
+

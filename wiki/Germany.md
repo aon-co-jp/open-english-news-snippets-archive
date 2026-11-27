@@ -1280,3 +1280,45 @@ Tags: `Germany` `2026-11`
 - [Redaktionsnetzwerk Deutschland](https://de.wikipedia.org/wiki/Redaktionsnetzwerk_Deutschland) — Die RND Redaktionsnetzwerk Deutschland GmbH (Eigenschreibweise RedaktionsNetzwerk Deutschland, kurz rnd bzw. RND) mit Sitz in Hannover ist die Redaktion für überregionale Inhalte der Verlagsgesellschaft Madsack GmbH & Co.
 - [Bundeskanzler (Deutschland)](https://de.wikipedia.org/wiki/Bundeskanzler_(Deutschland)) — Der Bundeskanzler der Bundesrepublik Deutschland (kurz: Bundeskanzler; Abkürzung BK) ist der Regierungschef der Bundesrepublik Deutschland. Er bildet zusammen mit den Bundesministern die Bundesregierung und bestimmt laut Verfassung die Richtlinien deren Politik.
 
+### Germany(検索日時 / searched at: 2026-11-26)
+
+Tags: `Germany` `2026-11`
+
+- (no items / 記事なし)
+
+### Switzerland (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Switzerland (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Brazil (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Brazil (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Japan (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Japan (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Austria (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Austria (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-26)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### France (English)(検索日時 / searched at: 2026-11-26)
+
+Tags: `France (English)` `2026-11`
+
+- (no items / 記事なし)
+
