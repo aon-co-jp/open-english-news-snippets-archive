@@ -1395,3 +1395,9 @@ Tags: `Myanmar (Japanese)` `2026-11`
 
 - (no items / 記事なし)
 
+### Switzerland(検索日時 / searched at: 2026-11-27)
+
+Tags: `Switzerland` `2026-11`
+
+- (no items / 記事なし)
+

@@ -1312,3 +1312,9 @@ Tags: `Austria (Japanese)` `2026-11`
 
 - (no items / 記事なし)
 
+### Philippines(検索日時 / searched at: 2026-11-27)
+
+Tags: `Philippines` `2026-11`
+
+- (no items / 記事なし)
+

@@ -729,3 +729,9 @@ Tags: `United States` `2026-11`
 - [Today (American TV program)](https://en.wikipedia.org/wiki/Today_(American_TV_program)) — Today (also called The Today Show) is an American morning television show that airs weekdays from 7:00 a.m. to 11:00 a.m.
 - [Headline](https://en.wikipedia.org/wiki/Headline) — A headline is the text indicating the content or nature of the article below it, typically a news piece, by providing a form of brief summary of its contents. The large type front page headline did not come into use until the late 19th century when increased competition between newspapers led to the use of attention-getting headlines.
 
+### United States(検索日時 / searched at: 2026-11-27)
+
+Tags: `United States` `2026-11`
+
+- (no items / 記事なし)
+
