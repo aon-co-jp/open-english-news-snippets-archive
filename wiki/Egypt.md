@@ -1929,3 +1929,9 @@ Tags: `France (Japanese)` `2026-11`
 
 - (no items / 記事なし)
 
+### Egypt(検索日時 / searched at: 2026-11-27)
+
+Tags: `Egypt` `2026-11`
+
+- (no items / 記事なし)
+

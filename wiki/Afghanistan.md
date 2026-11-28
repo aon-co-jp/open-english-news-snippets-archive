@@ -1566,3 +1566,111 @@ Tags: `Afghanistan` `2026-11`
 
 - (no items / 記事なし)
 
+### Afghanistan(検索日時 / searched at: 2026-11-27)
+
+Tags: `Afghanistan` `2026-11`
+
+- (no items / 記事なし)
+
+### Brazil (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Brazil (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Russia (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Russia (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Thailand (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Thailand (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### China (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `China (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Myanmar (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Myanmar (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Taiwan (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Taiwan (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Switzerland (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Switzerland (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### China (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `China (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### France (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `France (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Tajikistan (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Tajikistan (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### South Korea (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `South Korea (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Taiwan (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Taiwan (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Ukraine (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Ukraine (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Brazil (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Brazil (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Germany (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Germany (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Afghanistan (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Afghanistan (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Myanmar (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Myanmar (English)` `2026-11`
+
+- (no items / 記事なし)
+

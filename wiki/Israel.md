@@ -714,3 +714,27 @@ Tags: `Egypt (Japanese)` `2026-11`
 - [エジプト - ビジネス短信 - ジェトロ](https://www.jetro.go.jp/biznewstop/biznews/africa/eg/) — エジプト · 2026年10月30日. 地域情勢の緊張下で エジプト ・ポンド安が進行、対ドル為替レートが56ポンド台を記録(サウジアラビア、 エジプト ) · 2026年10月29日 · 2026年10月29 ...
 - [Egypt：国際 ニュース ：AFPBB News](https://www.afpbb.com/subcategory/Egypt) — クシュナー氏がガザ和平案推進に向けハマスと会談、中東諸国はイスラエル非難 · 2000年前の墓群とビザンツ期の町の遺構、 エジプト で発見 · ガザ和平計画が第2段階に移行 専門 ...
 
+### Israel(検索日時 / searched at: 2026-11-27)
+
+Tags: `Israel` `2026-11`
+
+- (no items / 記事なし)
+
+### France (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `France (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Russia (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Russia (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Italy (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Italy (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+

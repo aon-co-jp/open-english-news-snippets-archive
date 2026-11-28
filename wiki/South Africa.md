@@ -1893,3 +1893,39 @@ Tags: `Russia (Japanese)` `2026-11`
 
 - (no items / 記事なし)
 
+### South Africa(検索日時 / searched at: 2026-11-27)
+
+Tags: `South Africa` `2026-11`
+
+- (no items / 記事なし)
+
+### Egypt (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Egypt (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Egypt (Japanese)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Egypt (Japanese)` `2026-11`
+
+- (no items / 記事なし)
+
+### Tajikistan (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Tajikistan (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Switzerland (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Switzerland (English)` `2026-11`
+
+- (no items / 記事なし)
+
+### Italy (English)(検索日時 / searched at: 2026-11-27)
+
+Tags: `Italy (English)` `2026-11`
+
+- (no items / 記事なし)
+
